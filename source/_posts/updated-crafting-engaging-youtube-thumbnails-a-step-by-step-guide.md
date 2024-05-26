@@ -1,0 +1,516 @@
+---
+title: "\"[Updated] Crafting Engaging YouTube Thumbnails  A Step-by-Step Guide\""
+date: 2024-05-24 19:46:53
+updated: 2024-05-25 11:23:56
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] Crafting Engaging YouTube Thumbnails: A Step-by-Step Guide\""
+excerpt: "\"This Article Describes [Updated] Crafting Engaging YouTube Thumbnails: A Step-by-Step Guide\""
+keywords: "\"Youtube Thumbnails Guide,Thumbnail Design Tips,Enhancing Video Attractiveness,Engaging YouTube Images,Thumbnail Optimization Steps,Crafting Click-Worthy Titles,Effective Video Thumbnails\""
+thumbnail: https://www.lifewire.com/thmb/DdypE3IFlSjfet1uIEYdsYO39G8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/usingbingai-66291c204fc442b3a2c3bf504dc7af68.jpg
+---
+
+## Crafting Engaging YouTube Thumbnails: A Step-by-Step Guide
+
+# How to Make Video Thumbnails for YouTube
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The **video thumbnails** you use for YouTube are vital to getting views and subscribers. There are a lot of things that go into making people watch your videos, but your video thumbnail might be the most important factor.
+
+Here are 5 easy tips for creating thumbnails that get views.
+
+1. **[Have a Consistent Layout](#one)**
+2. **[Use Your Face](#two)**
+3. **[Use Graphics/Emojis That is On Topic](#three)**
+4. **[Make Your Text Huge](#four)**
+5. **[Keep It Clutter-Free!](#five)**
+
+ _Contest now closed._
+
+## Edit Your Videos Before Creating Video Thumbnails
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 1\. Have a Consistent Layout
+
+Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
+
+An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
+
+![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+
+## **2\. Use Your Face**
+
+People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
+
+## 3\. Use Graphics/Emojis that are On Topic
+
+Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
+
+Make sure the images you choose are relevant to the topic of your video.
+
+## 4\. Make Your Text Huge
+
+If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
+
+Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+## 5\. Keep it Clutter-Free
+
+It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
+
+A good rule for text is to use only 1-3 words. That way they won’t clutter your screen, and you can make them large enough to read on small-screened devices.
+
+ [For even more tips on making great YouTube thumbnails, click here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The **video thumbnails** you use for YouTube are vital to getting views and subscribers. There are a lot of things that go into making people watch your videos, but your video thumbnail might be the most important factor.
+
+Here are 5 easy tips for creating thumbnails that get views.
+
+1. **[Have a Consistent Layout](#one)**
+2. **[Use Your Face](#two)**
+3. **[Use Graphics/Emojis That is On Topic](#three)**
+4. **[Make Your Text Huge](#four)**
+5. **[Keep It Clutter-Free!](#five)**
+
+ _Contest now closed._
+
+## Edit Your Videos Before Creating Video Thumbnails
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 1\. Have a Consistent Layout
+
+Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
+
+An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
+
+![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+
+## **2\. Use Your Face**
+
+People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
+
+## 3\. Use Graphics/Emojis that are On Topic
+
+Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
+
+Make sure the images you choose are relevant to the topic of your video.
+
+## 4\. Make Your Text Huge
+
+If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
+
+Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+## 5\. Keep it Clutter-Free
+
+It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
+
+A good rule for text is to use only 1-3 words. That way they won’t clutter your screen, and you can make them large enough to read on small-screened devices.
+
+ [For even more tips on making great YouTube thumbnails, click here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The **video thumbnails** you use for YouTube are vital to getting views and subscribers. There are a lot of things that go into making people watch your videos, but your video thumbnail might be the most important factor.
+
+Here are 5 easy tips for creating thumbnails that get views.
+
+1. **[Have a Consistent Layout](#one)**
+2. **[Use Your Face](#two)**
+3. **[Use Graphics/Emojis That is On Topic](#three)**
+4. **[Make Your Text Huge](#four)**
+5. **[Keep It Clutter-Free!](#five)**
+
+ _Contest now closed._
+
+## Edit Your Videos Before Creating Video Thumbnails
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 1\. Have a Consistent Layout
+
+Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
+
+An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
+
+![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+
+## **2\. Use Your Face**
+
+People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
+
+## 3\. Use Graphics/Emojis that are On Topic
+
+Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
+
+Make sure the images you choose are relevant to the topic of your video.
+
+## 4\. Make Your Text Huge
+
+If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
+
+Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+## 5\. Keep it Clutter-Free
+
+It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
+
+A good rule for text is to use only 1-3 words. That way they won’t clutter your screen, and you can make them large enough to read on small-screened devices.
+
+ [For even more tips on making great YouTube thumbnails, click here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The **video thumbnails** you use for YouTube are vital to getting views and subscribers. There are a lot of things that go into making people watch your videos, but your video thumbnail might be the most important factor.
+
+Here are 5 easy tips for creating thumbnails that get views.
+
+1. **[Have a Consistent Layout](#one)**
+2. **[Use Your Face](#two)**
+3. **[Use Graphics/Emojis That is On Topic](#three)**
+4. **[Make Your Text Huge](#four)**
+5. **[Keep It Clutter-Free!](#five)**
+
+ _Contest now closed._
+
+## Edit Your Videos Before Creating Video Thumbnails
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 1\. Have a Consistent Layout
+
+Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
+
+An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
+
+![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+
+## **2\. Use Your Face**
+
+People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
+
+## 3\. Use Graphics/Emojis that are On Topic
+
+Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
+
+Make sure the images you choose are relevant to the topic of your video.
+
+## 4\. Make Your Text Huge
+
+If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
+
+Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+## 5\. Keep it Clutter-Free
+
+It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
+
+A good rule for text is to use only 1-3 words. That way they won’t clutter your screen, and you can make them large enough to read on small-screened devices.
+
+ [For even more tips on making great YouTube thumbnails, click here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+## Stepwise Simplification: Broadcasting Personal YT Videos Using Gmail
+
+# How to Share a Private YouTube Video?
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Want to share a private YouTube video? A private video is a video that is posted to YouTube, but only viewable to a select group of people who you choose to share it with. It could be that this is a personal video only intended for friends and family, or it could be that you want to get feedback from people you trust before making it public.
+
+Private YouTube videos can be shared with 50 Google accounts.
+
+* [**Part 1: How to Share a Private YouTube Video**](#share)
+* [**Part 2: Private Video Limitations on YouTube**](#limits)
+* [**Part 3: How to Share Unlisted Videos on YouTube**](#unlisted)
+
+## Make Your YouTube Video with Wondershare Filmora
+
+To make YouTube videos awesome, Wondershare Filmora has features like overlays & effects, Advanced color tuning, green screen, a power tool that would certainly help you create a video intended for a personal review. The tools and features on Wondershare Filmora are unbeatable in terms of quality and precision and you can use it for your YouTube video editing and directly upload them from the Wondershare Filmora dashboard itself to avoid that time-consuming process of transferring your videos device to device if you are using another system to edit your videos.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## **Part 1: How to Share a Private YouTube Video**
+
+You can make a YouTube video private either within the Creator studio or by choosing the option when you first upload a video.
+
+When you mark a video as private you will be able to send the video out to up to 50 e-mail addresses, names of contacts on Google, or your circles on Google plus. As soon as you add a new contact to the list they will receive an invite link to view the video.
+
+Unlike with an unlisted video, the contacts allowed to view a private video will not be able to share the URL of your video with their own friends and contacts.
+
+## **Part 2: Private Video Limitations on YouTube**
+
+The video cannot be shared again and only the individuals invited can view the video at its URL.
+
+ ![private video limitation](https://images.wondershare.com/filmora/article-images/private-video-limitation.gif)
+
+ Contacts that you send the private invite too will have to have a YouTube account and be signed in to it, in order to view your video.
+
+## **Part 3: How to Share Unlisted Videos on YouTube**
+
+Another option that YouTube delivers for privacy is the chance to mark videos as unlisted. Unlisted videos will not be included in any of the Google search engine results and only individuals that have the link will be able to view the videos on YouTube. A person does not have to have a Google account or any type of password to see unlisted videos, only the link, which means the people you share the video with will also be able to share it with whoever they like.
+
+To share an unlisted video, simply send its URL to anyone you want to watch it. This is easier than sharing private YouTube videos, but not quite as private.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Want to share a private YouTube video? A private video is a video that is posted to YouTube, but only viewable to a select group of people who you choose to share it with. It could be that this is a personal video only intended for friends and family, or it could be that you want to get feedback from people you trust before making it public.
+
+Private YouTube videos can be shared with 50 Google accounts.
+
+* [**Part 1: How to Share a Private YouTube Video**](#share)
+* [**Part 2: Private Video Limitations on YouTube**](#limits)
+* [**Part 3: How to Share Unlisted Videos on YouTube**](#unlisted)
+
+## Make Your YouTube Video with Wondershare Filmora
+
+To make YouTube videos awesome, Wondershare Filmora has features like overlays & effects, Advanced color tuning, green screen, a power tool that would certainly help you create a video intended for a personal review. The tools and features on Wondershare Filmora are unbeatable in terms of quality and precision and you can use it for your YouTube video editing and directly upload them from the Wondershare Filmora dashboard itself to avoid that time-consuming process of transferring your videos device to device if you are using another system to edit your videos.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## **Part 1: How to Share a Private YouTube Video**
+
+You can make a YouTube video private either within the Creator studio or by choosing the option when you first upload a video.
+
+When you mark a video as private you will be able to send the video out to up to 50 e-mail addresses, names of contacts on Google, or your circles on Google plus. As soon as you add a new contact to the list they will receive an invite link to view the video.
+
+Unlike with an unlisted video, the contacts allowed to view a private video will not be able to share the URL of your video with their own friends and contacts.
+
+## **Part 2: Private Video Limitations on YouTube**
+
+The video cannot be shared again and only the individuals invited can view the video at its URL.
+
+ ![private video limitation](https://images.wondershare.com/filmora/article-images/private-video-limitation.gif)
+
+ Contacts that you send the private invite too will have to have a YouTube account and be signed in to it, in order to view your video.
+
+## **Part 3: How to Share Unlisted Videos on YouTube**
+
+Another option that YouTube delivers for privacy is the chance to mark videos as unlisted. Unlisted videos will not be included in any of the Google search engine results and only individuals that have the link will be able to view the videos on YouTube. A person does not have to have a Google account or any type of password to see unlisted videos, only the link, which means the people you share the video with will also be able to share it with whoever they like.
+
+To share an unlisted video, simply send its URL to anyone you want to watch it. This is easier than sharing private YouTube videos, but not quite as private.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Want to share a private YouTube video? A private video is a video that is posted to YouTube, but only viewable to a select group of people who you choose to share it with. It could be that this is a personal video only intended for friends and family, or it could be that you want to get feedback from people you trust before making it public.
+
+Private YouTube videos can be shared with 50 Google accounts.
+
+* [**Part 1: How to Share a Private YouTube Video**](#share)
+* [**Part 2: Private Video Limitations on YouTube**](#limits)
+* [**Part 3: How to Share Unlisted Videos on YouTube**](#unlisted)
+
+## Make Your YouTube Video with Wondershare Filmora
+
+To make YouTube videos awesome, Wondershare Filmora has features like overlays & effects, Advanced color tuning, green screen, a power tool that would certainly help you create a video intended for a personal review. The tools and features on Wondershare Filmora are unbeatable in terms of quality and precision and you can use it for your YouTube video editing and directly upload them from the Wondershare Filmora dashboard itself to avoid that time-consuming process of transferring your videos device to device if you are using another system to edit your videos.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## **Part 1: How to Share a Private YouTube Video**
+
+You can make a YouTube video private either within the Creator studio or by choosing the option when you first upload a video.
+
+When you mark a video as private you will be able to send the video out to up to 50 e-mail addresses, names of contacts on Google, or your circles on Google plus. As soon as you add a new contact to the list they will receive an invite link to view the video.
+
+Unlike with an unlisted video, the contacts allowed to view a private video will not be able to share the URL of your video with their own friends and contacts.
+
+## **Part 2: Private Video Limitations on YouTube**
+
+The video cannot be shared again and only the individuals invited can view the video at its URL.
+
+ ![private video limitation](https://images.wondershare.com/filmora/article-images/private-video-limitation.gif)
+
+ Contacts that you send the private invite too will have to have a YouTube account and be signed in to it, in order to view your video.
+
+## **Part 3: How to Share Unlisted Videos on YouTube**
+
+Another option that YouTube delivers for privacy is the chance to mark videos as unlisted. Unlisted videos will not be included in any of the Google search engine results and only individuals that have the link will be able to view the videos on YouTube. A person does not have to have a Google account or any type of password to see unlisted videos, only the link, which means the people you share the video with will also be able to share it with whoever they like.
+
+To share an unlisted video, simply send its URL to anyone you want to watch it. This is easier than sharing private YouTube videos, but not quite as private.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Want to share a private YouTube video? A private video is a video that is posted to YouTube, but only viewable to a select group of people who you choose to share it with. It could be that this is a personal video only intended for friends and family, or it could be that you want to get feedback from people you trust before making it public.
+
+Private YouTube videos can be shared with 50 Google accounts.
+
+* [**Part 1: How to Share a Private YouTube Video**](#share)
+* [**Part 2: Private Video Limitations on YouTube**](#limits)
+* [**Part 3: How to Share Unlisted Videos on YouTube**](#unlisted)
+
+## Make Your YouTube Video with Wondershare Filmora
+
+To make YouTube videos awesome, Wondershare Filmora has features like overlays & effects, Advanced color tuning, green screen, a power tool that would certainly help you create a video intended for a personal review. The tools and features on Wondershare Filmora are unbeatable in terms of quality and precision and you can use it for your YouTube video editing and directly upload them from the Wondershare Filmora dashboard itself to avoid that time-consuming process of transferring your videos device to device if you are using another system to edit your videos.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## **Part 1: How to Share a Private YouTube Video**
+
+You can make a YouTube video private either within the Creator studio or by choosing the option when you first upload a video.
+
+When you mark a video as private you will be able to send the video out to up to 50 e-mail addresses, names of contacts on Google, or your circles on Google plus. As soon as you add a new contact to the list they will receive an invite link to view the video.
+
+Unlike with an unlisted video, the contacts allowed to view a private video will not be able to share the URL of your video with their own friends and contacts.
+
+## **Part 2: Private Video Limitations on YouTube**
+
+The video cannot be shared again and only the individuals invited can view the video at its URL.
+
+ ![private video limitation](https://images.wondershare.com/filmora/article-images/private-video-limitation.gif)
+
+ Contacts that you send the private invite too will have to have a YouTube account and be signed in to it, in order to view your video.
+
+## **Part 3: How to Share Unlisted Videos on YouTube**
+
+Another option that YouTube delivers for privacy is the chance to mark videos as unlisted. Unlisted videos will not be included in any of the Google search engine results and only individuals that have the link will be able to view the videos on YouTube. A person does not have to have a Google account or any type of password to see unlisted videos, only the link, which means the people you share the video with will also be able to share it with whoever they like.
+
+To share an unlisted video, simply send its URL to anyone you want to watch it. This is easier than sharing private YouTube videos, but not quite as private.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
