@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 11-Year-Old Video Sensation  Unprecedented Wealth Accumulation\""
-date: 2024-05-22 22:18:30
-updated: 2024-05-23 10:48:51
+date: 2024-05-25T16:34:36.901Z
+updated: 2024-05-26T16:34:36.901Z
 tags:
   - ai video
   - ai youtube
@@ -692,3 +692,100 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/behind-the-scenes-insider-knowledge-for-youtube-video-production-for-2024/"><u>Behind the Scenes  Insider Knowledge for YouTube Video Production for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-avoid-pitfalls-maintaining-youtube-thumbnail-quality/"><u>2024 Approved  Avoid Pitfalls  Maintaining YouTube Thumbnail Quality</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-stepwise-approach-to-add-youtube-videos-into-slate/"><u>A Stepwise Approach to Add YouTube Videos Into Slate</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/closing-powerhouses-free-top-6-video-closers-for-2024/"><u>Closing Powerhouses  Free Top 6 Video Closers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-creative-vanguard-audio-visual-convergence/"><u>[New] Creative Vanguard  Audio-Visual Convergence</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-the-financial-pathway-of-tseries-within-youtube-market-space/"><u>Charting the Financial Pathway of TSeries Within YouTube Market Space</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/win-and-mac-mp3-converter-unlock-your-music-from-youtube/"><u>Win & Mac MP3 Converter  Unlock Your Music From YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-20-must-watch-youtube-music-bands/"><u>[Updated] 20 Must-Watch YouTube Music Bands</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-basics-of-online-videos-the-easiest-10-ideas-for-beginners-on-youtube/"><u>2024 Approved  Basics of Online Videos  The Easiest 10 Ideas for Beginners on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-a-trailblazers-guide-youtube-studio-location-unveiled/"><u>In 2024, A Trailblazer’s Guide  YouTube Studio Location Unveiled</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-epicurean-epiphanies-filming-feast-creation/"><u>[Updated] Epicurean Epiphanies  Filming Feast Creation</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cyber-sovereigns-youtubes-number-one-tens/"><u>Cyber Sovereigns  YouTube’s Number One Tens</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-video-dominance-hashtag-hacks-exposed/"><u>Unlocking Video Dominance  Hashtag Hacks Exposed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-iphone-and-android-photo-and-video-capture-applications-reviewed-for-2024/"><u>Best iPhone & Android Photo & Video Capture Applications Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-ease-into-content-creation-crafting-the-top-10-accessible-youtube-videos/"><u>[New] Ease Into Content Creation  Crafting the Top 10 Accessible YouTube Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-comprehensive-walkthrough-for-embedding-youtube-plays-in-web-design/"><u>2024 Approved  A Comprehensive Walkthrough for Embedding YouTube Plays in Web Design</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-direct-twitch-stream-transfer-to-youtube-playback/"><u>2024 Approved  Direct Twitch Stream Transfer to YouTube Playback</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/master-the-algorithm-top-youtube-seo-tips-and-techniques/"><u>Master the Algorithm  Top YouTube SEO Tips and Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-yt-presence-and-skyrocket-to-1000plus-fans/"><u>2024 Approved  Elevate Your YT Presence and Skyrocket To 1000+ Fans</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-15-video-vaults-for-science-buffs-online/"><u>Top 15 Video Vaults for Science Buffs Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unveiling-the-top-10-youtube-makeup-maestros-to-follow/"><u>Unveiling the Top 10 YouTube Makeup Maestros to Follow</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-steps-to-producing-a-youtube-hit-music-reaction-video-guide-for-2024/"><u>Essential Steps to Producing a YouTube Hit  Music Reaction Video Guide for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-your-videos-potential-with-these-youtube-seo-insights/"><u>Unlock Your Videos' Potential with These YouTube SEO Insights</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-video-replays-your-comprehensive-tutorial/"><u>Mastering YouTube Video Replays  Your Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/peeking-at-the-reason-behind-highlighted-comments-on-youtube/"><u>Peeking at the Reason Behind Highlighted Comments on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-chuckling-chords-and-clever-cuts-10-parody-classics/"><u>In 2024, Chuckling Chords & Clever Cuts  10 Parody Classics</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/visual-branding-in-small-business-marketing/"><u>Visual Branding in Small Business Marketing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/secure-methods-for-youtube-to-mp4-conversion/"><u>Secure Methods for Youtube-to-MP4 Conversion</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-7-unique-android-apps-for-effortless-ad-free-use/"><u>Top 7 Unique Android Apps for Effortless, Ad-Free Use</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-engaging-extended-videos-a-youtube-experts-guide-for-2024/"><u>Crafting Engaging, Extended Videos  A YouTube Expert's Guide for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-6-voice-changer-software-for-youtube-videos-free-and-paid/"><u>Top 6 Voice Changer Software for Youtube Videos [Free & Paid]</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/express-yourself-incorporating-emojis-into-yt-feedback/"><u>Express Yourself  Incorporating Emojis Into YT Feedback</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-decoding-chroma-techniques-from-raw-footage-to-final-cut/"><u>[New] Decoding Chroma Techniques  From Raw Footage to Final Cut</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/maximizing-revenue-with-youtubes-2024-partner-program/"><u>Maximizing Revenue with YouTube's 2024 Partner Program</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-decoding-digital-dollars-an-effective-triple-step-process-to-determine-your-subscriber-profits/"><u>In 2024, Decoding Digital Dollars  An Effective Triple Step Process to Determine Your Subscriber Profits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pioneer-productions-leading-free-editors-on-android/"><u>Pioneer Productions  Leading Free Editors on Android</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-visuals-using-chroma-key-effectively-for-2024/"><u>Enhancing Visuals  Using Chroma Key Effectively for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhancing-video-soundtracks-on-digital-platforms/"><u>[New] Enhancing Video Soundtracks on Digital Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dominance-in-video-landscape-mirrorless-vs-dslr-cameras/"><u>Dominance in Video Landscape  Mirrorless vs DSLR Cameras</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enrich-your-viewing-habit-with-essential-movie-channels/"><u>Enrich Your Viewing Habit with Essential Movie Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-best-cameras-for-quality-youtube-content/"><u>In 2024, Best Cameras for Quality YouTube Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-video-builder-how-to-create-video-ads-for-free/"><u>YouTube Video Builder  How to Create Video Ads for Free?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/gain-an-edge-in-views-with-these-5-youtube-thumbnail-creators/"><u>Gain an Edge in Views with These 5 YouTube Thumbnail Creators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-rotation-simplified-techniques-for-any-degree-updated-edition/"><u>YouTube Rotation Simplified  Techniques for Any Degree [Updated Edition]</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-evaluating-mr-beasts-financial-heft/"><u>[Updated] Evaluating Mr. Beast's Financial Heft</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/movies-to-watch-instead-7-best-list/"><u>Movies to Watch Instead - #7 Best List</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-your-digital-identity-start-a-youtube-channel-today-for-2024/"><u>Building Your Digital Identity  Start a YouTube Channel Today for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-vlogging-quality-the-ultimate-12-recommended-cam-picks/"><u>[New] Elevate Vlogging Quality - The Ultimate 12 Recommended Cam Picks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-itel-p55plus-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Itel P55+ PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-vivo-s17e-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Vivo S17e Phone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-video-editor-selection-guide-understanding-filmora-and-democracy-creator/"><u>[Updated] Video Editor Selection Guide  Understanding Filmora and Democracy Creator</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/iphone-transfer-transfer-contact-from-apple-iphone-8-plus-to-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>iPhone Transfer Transfer Contact from Apple iPhone 8 Plus to iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-nokia-c12-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Nokia C12 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-samsung-galaxy-m34-5g-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Samsung Galaxy M34 5G</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-mac-audiophiles-guide-to-the-best-5-audio-mixing-tools/"><u>Updated 2024 Approved Mac Audiophiles Guide to the Best 5 Audio Mixing Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-nubia-red-magic-8s-proplus-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Nubia Red Magic 8S Pro+</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-effortlessly-share-vimeo-video-on-instagram/"><u>[Updated] In 2024, How to Effortlessly Share Vimeo Video on Instagram</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/explore-extravagance-best-terrafirma-mapping-for-2024/"><u>Explore Extravagance  Best Terrafirma Mapping for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-efficient-ways-to-turn-off-tiktok-audio-while-watching-videos/"><u>Updated Efficient Ways to Turn Off TikTok Audio While Watching Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Pokemon Go Joystick on Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/davinci-resolves-aural-alchemy-transforming-unprocessed-audio-through-normalization-for-2024/"><u>DaVinci Resolves Aural Alchemy Transforming Unprocessed Audio Through Normalization for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-free-top-12-best-idle-games-you-can-try-on-pc-for-2024/"><u>[Updated] FREE Top 12 Best Idle Games You Can Try on PC for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-seamless-tweet-to-facebook-video-transfers-users/"><u>In 2024, Seamless Tweet-to-Facebook Video Transfers Users</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Lava Blaze 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-exploring-the-future-of-android-calls-beyond-apples-facetime/"><u>New Exploring the Future of Android Calls Beyond Apples FaceTime</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-10-proven-strategies-for-earning-money-with-your-videos-on-vimeo/"><u>[New] 10 Proven Strategies for Earning Money with Your Videos on Vimeo</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-navigating-internet-based-audio-manipulation-techniques/"><u>Updated 2024 Approved Navigating Internet-Based Audio Manipulation Techniques</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-files-for-htc-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD .mts files for HTC ? </u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-essentials-checklist-for-evaluating-vidma-recorder/"><u>[Updated] Essentials Checklist for Evaluating Vidma Recorder</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-make-your-profile-cover-video-more-attractive/"><u>[New] How to Make Your Profile Cover Video More Attractive</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/detailed-guide-on-removing-apple-iphone-11-activation-lock-without-previous-owner-by-drfone-ios/"><u>Detailed Guide on Removing Apple iPhone 11 Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-xiaomi-redmi-k70e-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Xiaomi Redmi K70E Phone?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-get-a-grip-on-your-footage-3-ways-to-stabilize-video-in-ae/"><u>New Get a Grip on Your Footage 3 Ways to Stabilize Video in AE</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-how-to-securely-obtain-facebooks-elite-verified-status/"><u>[New] 2024 Approved  How to Securely Obtain Facebook’s Elite Verified Status</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-elevate-your-facebook-voice-with-gratuitous-enhancement-tools/"><u>[Updated] In 2024, Elevate Your Facebook Voice with Gratuitous Enhancement Tools</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-erasing-identity-the-most-effective-face-blur-video-editing-software/"><u>Updated 2024 Approved Erasing Identity The Most Effective Face Blur Video Editing Software</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-preventive-measures-for-smooth-streaming-with-obs-for-2024/"><u>[New] Preventive Measures for Smooth Streaming with OBS for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-x-to-mac-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone X to Mac? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/uncovering-untapped-territories-in-meme-culture/"><u>Uncovering Untapped Territories in Meme Culture</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-detailed-breakdown-chilled-delights-on-your-screen/"><u>[Updated] In 2024, Detailed Breakdown  Chilled Delights on Your Screen</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-6s-to-other-iphone-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 6s To Other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/in-2024-7-best-real-time-video-translation-apps/"><u>In 2024, 7 Best Real Time Video Translation Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unlocking-instagram-memories-with-these-apps/"><u>[Updated] In 2024, Unlocking Instagram Memories with These Apps</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-lava-blaze-2-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Lava Blaze 2 Pro Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-leave-a-life360-group-on-infinix-note-30i-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Infinix Note 30i Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/discovering-the-stars-that-sparkle-in-your-domains-social-space-for-2024/"><u>Discovering the Stars that Sparkle in Your Domain's Social Space for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-vivo-v27-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Vivo V27 Phone Screen?</u></a></li>
+</ul></div>
+
