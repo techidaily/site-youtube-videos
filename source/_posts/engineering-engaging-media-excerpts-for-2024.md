@@ -1,7 +1,7 @@
 ---
 title: "Engineering Engaging Media Excerpts for 2024"
-date: 2024-05-25T15:08:48.154Z
-updated: 2024-05-26T15:08:48.154Z
+date: 2024-06-10T00:24:39.819Z
+updated: 2024-06-11T00:24:39.819Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Engineering Engaging Media Excerpts for 2024"
 excerpt: "This Article Describes Engineering Engaging Media Excerpts for 2024"
 keywords: "Media Attraction,Interactive Content,Engineering Stories,Engaging Designs,Captivating Visuals,Engineered Images,Compelling Excerpts"
-thumbnail: https://www.lifewire.com/thmb/F5BTzUP2d_h2drCRoj1OLhAxwKo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/samsung-galaxy-s24-ultra-d98962629d6f44f1ba48f09829e604eb.jpeg
+thumbnail: https://thmb.techidaily.com/c6cef7d8d098cc3ec193ea28736f5c8bb8a150dde0b8653330eff8897000d29a.jpeg
 ---
 
 ## Engineering Engaging Media Excerpts

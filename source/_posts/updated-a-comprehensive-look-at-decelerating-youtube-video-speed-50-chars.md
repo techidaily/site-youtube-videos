@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Comprehensive Look at Decelerating YouTube Video Speed (50 Chars)"
-date: 2024-05-25T16:35:20.094Z
-updated: 2024-05-26T16:35:20.094Z
+date: 2024-06-10T00:24:46.795Z
+updated: 2024-06-11T00:24:46.795Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] A Comprehensive Look at Decelerating YouTube Video Speed (50 Chars)"
 excerpt: "This Article Describes [Updated] A Comprehensive Look at Decelerating YouTube Video Speed (50 Chars)"
 keywords: "YouTube Video Speed Deceleration,Slowing Down YouTube Playback,Reduce YouTube Video Pace,Adjust YouTube Video Rate,Slower YouTube Video Speeding,Control YouTube Vid Velocity,Slash YouTube Video Hastiness"
-thumbnail: https://www.lifewire.com/thmb/NEhBa_X6gWPGl78-qJ9CVbmTiy0=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/003_how-to-fix-it-when-a-zoom-microphone-is-not-working-4844958-fd711ebc7fc646ac86c36f8f5b56d84d.jpg
+thumbnail: https://thmb.techidaily.com/69d60ad1b0674fb9a6dcacd9cfd5c9b2973dbd0d026e48a10d4a2c1cd89022d5.jpg
 ---
 
 ## A Comprehensive Look at Decelerating YouTube Video Speed (50 Chars)

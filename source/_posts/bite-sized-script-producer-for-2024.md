@@ -1,7 +1,7 @@
 ---
 title: "\"Bite-Sized Script Producer for 2024\""
-date: 2024-05-25T14:43:37.157Z
-updated: 2024-05-26T14:43:37.157Z
+date: 2024-06-10T00:24:41.497Z
+updated: 2024-06-11T00:24:41.497Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Bite-Sized Script Producer for 2024\""
 excerpt: "\"This Article Describes Bite-Sized Script Producer for 2024\""
 keywords: "\"Bite-Script Pro,Sized Screenwriting,Short Film Production,Quick Script Making,Micro-Screenwriter,Small Scripts Art,Minimalist Writing\""
-thumbnail: https://www.lifewire.com/thmb/nLpKesmQSuo3IFqmqAKkvYey-vw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1252378476-858b12c063df49e5b63f3514a07a01f7.jpg
+thumbnail: https://thmb.techidaily.com/5c86eead36fe273b4ffc3fa6b58927f405a2b86a9e9fd87736937318bdb673f7.jpg
 ---
 
 ## Bite-Sized Script Producer

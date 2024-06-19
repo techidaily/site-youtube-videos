@@ -1,7 +1,7 @@
 ---
 title: "10 Common Vlogging Fears and How To Beat Them"
-date: 2024-05-25T14:13:17.862Z
-updated: 2024-05-26T14:13:17.862Z
+date: 2024-06-10T00:24:40.339Z
+updated: 2024-06-11T00:24:40.339Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes 10 Common Vlogging Fears and How To Beat Them"
 excerpt: "This Article Describes 10 Common Vlogging Fears and How To Beat Them"
 keywords: "Overcoming Vlog Fears,Beating Vlogger Anxiety,Defeat Vlogging Challenges,Solving Common Vlogs Issues,Strategies to Conquer Vlogging Hurdles,Tips for Vloggers' Success,Managing Fear in Video Blogging"
-thumbnail: https://www.lifewire.com/thmb/x562yeOMRuW1GNtLKp1-SW2b_FI=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/ConnectedCarTech_metamorworks_GettyImages-966859036_CROPPED-a9460403602c4b67a7a8c1acd599c9be.jpg
+thumbnail: https://thmb.techidaily.com/3d0b2d16ee1d6e6a1474c3b5739a00253bf279f4294e6c37548bb9b82e10821e.jpg
 ---
 
 ## Unraveling Vloggers' Terrors and Techniques to Triumph

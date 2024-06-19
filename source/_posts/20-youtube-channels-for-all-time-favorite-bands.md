@@ -1,7 +1,7 @@
 ---
 title: "\"20 YouTube Channels for All-Time Favorite Bands\""
-date: 2024-05-25T14:14:56.437Z
-updated: 2024-05-26T14:14:56.437Z
+date: 2024-06-10T00:24:41.145Z
+updated: 2024-06-11T00:24:41.145Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 20 YouTube Channels for All-Time Favorite Bands\""
 excerpt: "\"This Article Describes 20 YouTube Channels for All-Time Favorite Bands\""
 keywords: "\"Band Music Channels,Top Band Vids,Classic Band Playlists,Must-See Band Videos,Prime Band YouTube,Ultimate Band Channels,Favorite Bands' Content\""
-thumbnail: https://www.lifewire.com/thmb/WkwmryU-mysmu097V_UdLIizOp4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/getty-185234332-56c8b46c5f9b5879cc44921f.jpg
+thumbnail: https://thmb.techidaily.com/e6c4e66a053f4adf51b38aa148d1e7f1b0fe37b06c40a2dc84de8d83be8e3fd3.jpg
 ---
 
 ## 20 YouTube Channels for All-Time Favorite Bands

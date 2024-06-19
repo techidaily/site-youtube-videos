@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Add a Pop of Color to Your Videos  Implementing Neons in YouTubes\""
-date: 2024-05-25T15:23:27.669Z
-updated: 2024-05-26T15:23:27.669Z
+date: 2024-06-10T00:24:40.164Z
+updated: 2024-06-11T00:24:40.164Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes In 2024, Add a Pop of Color to Your Videos: Implementing Neons in YouTubes\""
 excerpt: "\"This Article Describes In 2024, Add a Pop of Color to Your Videos: Implementing Neons in YouTubes\""
 keywords: "Video Color Pop,Neon Film Effects,YouTube Bold Colors,Videography Enhancements,Bright Video Techniques,Online Video Glamour,Dynamic Video Styling"
-thumbnail: https://www.lifewire.com/thmb/TSZ_Vw5p-v557Gf7TAMUa0a95eQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-929731418-5b564d78c9e77c001a7729f7.jpg
+thumbnail: https://thmb.techidaily.com/abfdd510a65bfb2974ae748187d91d88c050827e452b20253ad5c2d81a1eb51a.jpg
 ---
 
 ## Add a Pop of Color to Your Videos: Implementing Neons in YouTubes

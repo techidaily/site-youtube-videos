@@ -1,7 +1,7 @@
 ---
 title: "How to Change YouTube Video Playback Speed [Desktop/Mobile] for 2024"
-date: 2024-05-25T15:19:10.205Z
-updated: 2024-05-26T15:19:10.205Z
+date: 2024-06-10T00:24:33.571Z
+updated: 2024-06-11T00:24:33.571Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes How to Change YouTube Video Playback Speed [Desktop/Mobile] for 2024"
 excerpt: "This Article Describes How to Change YouTube Video Playback Speed [Desktop/Mobile] for 2024"
 keywords: "Video Speed Control,Adjusting Video Rate,Slow/Fast Video Playback,Modify Video Pace,YouTube Speed Settings,Video Tempo Adjustment,Change Video Speed Rate"
-thumbnail: https://www.lifewire.com/thmb/hofjzwWxFXQOP-TMMBgrBGFlUvQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/why-does-car-battery-die-4140227-ad907eef646446d6a1306940af16410a.jpg
+thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b00431bdf0c9ec5881d711d0e.jpg
 ---
 
 ## How to Change YouTube Video Playback Speed [Desktop/Mobile]

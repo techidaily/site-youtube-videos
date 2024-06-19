@@ -1,7 +1,7 @@
 ---
 title: "\"Smile and Watch  Your Guide to the Top 15 Funny YouTubers\""
-date: 2024-05-25T16:17:04.702Z
-updated: 2024-05-26T16:17:04.702Z
+date: 2024-06-10T00:24:55.562Z
+updated: 2024-06-11T00:24:55.562Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Smile and Watch: Your Guide to the Top 15 Funny YouTubers\""
 excerpt: "\"This Article Describes Smile and Watch: Your Guide to the Top 15 Funny YouTubers\""
 keywords: "Funny YouTube Creators,Comedy Vid Stars,Laughter Streams,Hilarious Videographers,Humor Content Makers,Giggle Video Guide,Chuckle Channel Authors"
-thumbnail: https://www.lifewire.com/thmb/is45Yw-eZ0hbBH1GVSPPw-e8Duo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsung-smart-tv-lifestyle-alt-5c89160046e0fb00013365c2.jpg
+thumbnail: https://thmb.techidaily.com/a7150b4ff2ea7550c12f390526178357d28d5879ccd1eca0b9ed1b9c559e12d9.jpg
 ---
 
 ## Smile and Watch: Your Guide to the Top 15 Funny YouTubers

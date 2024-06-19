@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Create Captivating Sports Videography"
-date: 2024-05-25T15:31:28.842Z
-updated: 2024-05-26T15:31:28.842Z
+date: 2024-06-10T00:24:30.138Z
+updated: 2024-06-11T00:24:30.138Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes In 2024, Create Captivating Sports Videography"
 excerpt: "This Article Describes In 2024, Create Captivating Sports Videography"
 keywords: "Sports Video Art,Engaging Sports Cams,Dynamic Sport Filming,Vivid Sports Cinematography,Thrilling Sports Media,Intense Sports Videos,Captivating Sports Shots"
-thumbnail: https://www.lifewire.com/thmb/fAu6_ORb9M5oeIYjTL2bgG5hxho=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-use-image-creator-from-microsoft-designer-7fad906276724cac96622cfcf3af3322.jpg
+thumbnail: https://thmb.techidaily.com/246a59716ccd46798f84896d6b6802f3ff638286b1b806ed68510f39b79036cf.jpg
 ---
 
 ## Create Captivating Sports Videography

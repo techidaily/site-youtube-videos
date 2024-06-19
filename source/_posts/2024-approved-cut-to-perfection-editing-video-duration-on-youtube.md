@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Cut to Perfection  Editing Video Duration on YouTube\""
-date: 2024-05-25T14:25:43.133Z
-updated: 2024-05-26T14:25:43.133Z
+date: 2024-06-10T00:24:34.763Z
+updated: 2024-06-11T00:24:34.763Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Cut to Perfection: Editing Video Duration on YouTube\""
 excerpt: "\"This Article Describes 2024 Approved: Cut to Perfection: Editing Video Duration on YouTube\""
 keywords: "Edit Shorty Videos,Optimize Video Length,Reduce Clip Time,Tighten YT Videos,Condense Film Durations,Sharpen Screen Content,Streamline Video Runtime"
-thumbnail: https://www.lifewire.com/thmb/oaJBlY3wVkDX0BYHYgdDvvnTh3o=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-492096052-5c5906d846e0fb000164e557.jpg
+thumbnail: https://thmb.techidaily.com/1b264feb60401b06f1b5b9d369aaa689e44f7f3921972fa9eb3d747a1df53b5a.jpg
 ---
 
 ## Cut to Perfection: Editing Video Duration on YouTube

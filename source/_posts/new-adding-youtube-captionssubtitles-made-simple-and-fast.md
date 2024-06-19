@@ -1,7 +1,7 @@
 ---
 title: "[New] Adding YouTube Captions/Subtitles Made Simple and Fast"
-date: 2024-05-25T15:50:56.475Z
-updated: 2024-05-26T15:50:56.475Z
+date: 2024-06-10T00:24:28.633Z
+updated: 2024-06-11T00:24:28.633Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Adding YouTube Captions/Subtitles Made Simple and Fast"
 excerpt: "This Article Describes [New] Adding YouTube Captions/Subtitles Made Simple and Fast"
 keywords: "Simplify Subtitle Addition,Quick YouTube Captioning,Easy Video Subtitles,Speed Up YouTube Screens,Faster Video Texting,Simple Subtitle Adding,Fast YouTube Transcripts"
-thumbnail: https://www.lifewire.com/thmb/6djIpUJcmwG0_WK4S9ftsLptHLg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/line-app-logo-ccdacd0f7c344b3d9d4847edcb90733d.jpg
+thumbnail: https://thmb.techidaily.com/35cdbcc9d0463edeaedcfabc37b755463ffdb3615e7f86b0660ca31e9acd1987.jpg
 ---
 
 ## Adding YouTube Captions/Subtitles Made Simple and Fast

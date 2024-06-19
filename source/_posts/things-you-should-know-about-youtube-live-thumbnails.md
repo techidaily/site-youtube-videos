@@ -1,7 +1,7 @@
 ---
 title: "Things You Should Know About YouTube Live Thumbnails"
-date: 2024-05-25T16:27:02.549Z
-updated: 2024-05-26T16:27:02.549Z
+date: 2024-06-10T00:24:36.513Z
+updated: 2024-06-11T00:24:36.513Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Things You Should Know About YouTube Live Thumbnails"
 excerpt: "This Article Describes Things You Should Know About YouTube Live Thumbnails"
 keywords: "Live Thumbnail Insights,YouTube Live Image Guide,Streaming Video Images,Live Thumbnails Basics,YouTubes Image Preview,Live Broadcasts Coverage,YouTube Imagery Tips"
-thumbnail: https://www.lifewire.com/thmb/4UAL0ffhfcefNDTCBRAEWpc6KBE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/machine-learning-5aeccc03a474be003618e6d8.jpg
+thumbnail: https://thmb.techidaily.com/85e9c2e32a903b6bf60a65b77968212abbcf7690eb44299839f1e9c463cd1ddf.jpg
 ---
 
 ## Things You Should Know About YouTube Live Thumbnails

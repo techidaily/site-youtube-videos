@@ -1,7 +1,7 @@
 ---
 title: "\"Multiverse  Expanding Horizons in Social & Mobile Apps\""
-date: 2024-05-25T15:47:37.484Z
-updated: 2024-05-26T15:47:37.484Z
+date: 2024-06-10T00:24:48.662Z
+updated: 2024-06-11T00:24:48.662Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Multiverse: Expanding Horizons in Social & Mobile Apps\""
 excerpt: "\"This Article Describes Multiverse: Expanding Horizons in Social & Mobile Apps\""
 keywords: "Multiverse Apps,Social App Innovation,Mobile Universe,Space Apps,Cosmos Tech Growth,Horizon App Development,Vast App Realm"
-thumbnail: https://www.lifewire.com/thmb/Z7WR5pj7JeS2G3gY9MhbX9bStss=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/FKT0RM1QHWManholdingiPhoneincar-70a24007f8334257888bbd13c76fdcbc.jpg
+thumbnail: https://thmb.techidaily.com/6304baca930779dbe6ae3412704c6577c66eb8d788b6fe6b67667ffd209c0a5f.jpg
 ---
 
 ## Multiverse: Expanding Horizons in Social & Mobile Apps

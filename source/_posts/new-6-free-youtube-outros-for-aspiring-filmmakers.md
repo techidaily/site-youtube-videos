@@ -1,7 +1,7 @@
 ---
 title: "[New] 6 FREE YouTube Outros for Aspiring Filmmakers"
-date: 2024-05-25T15:49:28.974Z
-updated: 2024-05-26T15:49:28.974Z
+date: 2024-06-10T00:24:44.666Z
+updated: 2024-06-11T00:24:44.666Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] 6 FREE YouTube Outros for Aspiring Filmmakers"
 excerpt: "This Article Describes [New] 6 FREE YouTube Outros for Aspiring Filmmakers"
 keywords: "\"Free Film Music Outro,Budget-Friendly Movie Trailers,DIY Short Film Promos,Low-Cost Film Credits,Independent Film Ending,Aspiring Director Outros,Amateur Film Cuts Excerpt\""
-thumbnail: https://www.lifewire.com/thmb/g1D2GfOi9Fo-tsyzdt3hJvYxChQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/halloween-4416c651cc8545b3b1bbeb3f51cb9531.jpg
+thumbnail: https://thmb.techidaily.com/ad7d05b0030775951042fde08b0fbde9a0ebb4cf05f0435bf5618af5d7b42ae3.jpg
 ---
 
 ## 6 FREE YouTube Outros for Aspiring Filmmakers

@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Collabs that Attract and Retain Viewers"
-date: 2024-05-25T15:58:47.839Z
-updated: 2024-05-26T15:58:47.839Z
+date: 2024-06-10T00:24:44.546Z
+updated: 2024-06-11T00:24:44.546Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Crafting Collabs that Attract and Retain Viewers"
 excerpt: "This Article Describes [New] Crafting Collabs that Attract and Retain Viewers"
 keywords: "Collaboration Boosts,Viewer Engagement,Content Synergy,Audience Loyalty,Joint Creations,Shared Exposure,Viewership Retention"
-thumbnail: https://www.lifewire.com/thmb/l-r2SfXVi-J6FmExDLrIcApcYSk=/180x120/filters:no_upscale():max_bytes(150000):strip_icc()/Streaming_GettyImages-1317927924_grinvalds_CROPPED-71ab52546b8b477ca2c0788bc26d150f.jpg
+thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e56306af6bf8cabd1b35043cc3e.jpg
 ---
 
 ## Crafting Collabs that Attract and Retain Viewers

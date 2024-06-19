@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Guide to Banner & Art Design for Your YouTube Channel"
-date: 2024-05-25T16:25:44.875Z
-updated: 2024-05-26T16:25:44.875Z
+date: 2024-06-10T00:24:35.944Z
+updated: 2024-06-11T00:24:35.944Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes The Ultimate Guide to Banner & Art Design for Your YouTube Channel"
 excerpt: "This Article Describes The Ultimate Guide to Banner & Art Design for Your YouTube Channel"
 keywords: "YouTubE Banner Art,YouTube Design Guide,Channel Banner Tips,Video Art Creation,Digital Channel Graphics,Banner Art for YouTube,Art Design for Videos"
-thumbnail: https://www.lifewire.com/thmb/_TOeTBLKewzn0PXr1NqM0ywWD8g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/FineWoven-f7ab3a7809b240209320091845ecce28.jpeg
+thumbnail: https://thmb.techidaily.com/ce6c03f084faa6d28f397065c83acb50be7be1ae3bde8fc728fb219e33b59c83.jpeg
 ---
 
 ## The Ultimate Guide to Banner & Art Design for Your YouTube Channel

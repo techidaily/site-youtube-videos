@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Demystifying Income Flow to Creators Within the Short Video Model"
-date: 2024-05-25T16:45:58.825Z
-updated: 2024-05-26T16:45:58.825Z
+date: 2024-06-10T00:24:48.242Z
+updated: 2024-06-11T00:24:48.242Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Demystifying Income Flow to Creators Within the Short Video Model"
 excerpt: "This Article Describes [Updated] Demystifying Income Flow to Creators Within the Short Video Model"
 keywords: "\"Video Creator Revenue,Short Video Profits,Creative Earnings SVC,Streaming Video Money,Vlog Income Flow,Micro-Videography Sales,Content Monetization\""
-thumbnail: https://www.lifewire.com/thmb/8WvB3WbbZhsgOEddEK5no9WfS0E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/PMA1-497f5a8faa3c449eb1f0b7157b8e9e66.jpeg
+thumbnail: https://thmb.techidaily.com/f5b8e36c4ebd6a9ca109693d88c7c440e68928a27daf3516cb90c9a543d54e11.jpeg
 ---
 
 ## Demystifying Income Flow to Creators Within the Short Video Model

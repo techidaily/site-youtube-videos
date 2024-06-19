@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Guide to YouTube Thumbnail Sizes"
-date: 2024-05-25T16:26:11.570Z
-updated: 2024-05-26T16:26:11.570Z
+date: 2024-06-10T00:24:33.479Z
+updated: 2024-06-11T00:24:33.479Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes The Ultimate Guide to YouTube Thumbnail Sizes"
 excerpt: "This Article Describes The Ultimate Guide to YouTube Thumbnail Sizes"
 keywords: "YouTube Thumbnails Tips,Thumbnails Impact SEO,Optimal Thumbnail Sizes,Video Thumbnail Strategy,Thumbnail Best Practices,Boosting Videos Visibility,Efficient Thumbnail Design"
-thumbnail: https://www.lifewire.com/thmb/bOfNYccWsXItTg-VTVvCOXOEsec=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/copilotword01-6325e891b0804326a8b01ed1a9e02693.jpg
+thumbnail: https://thmb.techidaily.com/1ccd2dbf2e6000433c361586dbc867e80efe1088f86d15f3203e5baee21b7684.jpg
 ---
 
 ## The Ultimate Guide to YouTube Thumbnail Sizes

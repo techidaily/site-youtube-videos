@@ -1,7 +1,7 @@
 ---
 title: "\"Harnessing HDR in Post  Top 4 YouTube Guides with Complimentary Green Screen Effects\""
-date: 2024-05-25T15:18:14.421Z
-updated: 2024-05-26T15:18:14.421Z
+date: 2024-06-10T00:24:38.029Z
+updated: 2024-06-11T00:24:38.029Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Harnessing HDR in Post: Top 4 YouTube Guides with Complimentary Green Screen Effects\""
 excerpt: "\"This Article Describes Harnessing HDR in Post: Top 4 YouTube Guides with Complimentary Green Screen Effects\""
 keywords: "\"HDR Photography Guide,Green Screen Tutorial,High Dynamic Range Basics,Video Editing Techniques,Advanced Color Grading,YouTube Editing Secrets,Professional Post-Production\""
-thumbnail: https://www.lifewire.com/thmb/-vafUpSgeycKmsSh-eI5NbQWVpU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed1-e515218d114c4c8684edc781c0b8a6e9.png
+thumbnail: https://thmb.techidaily.com/f55b120c68d76e4449cb5609ead97bf0a2f306573825bcc3d502f312c1d75f0b.png
 ---
 
 ## Harnessing HDR in Post: Top 4 YouTube Guides with Complimentary Green Screen Effects

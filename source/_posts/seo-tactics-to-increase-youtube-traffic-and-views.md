@@ -1,7 +1,7 @@
 ---
 title: "SEO Tactics to Increase YouTube Traffic and Views"
-date: 2024-05-25T16:16:02.486Z
-updated: 2024-05-26T16:16:02.486Z
+date: 2024-06-10T00:24:29.097Z
+updated: 2024-06-11T00:24:29.097Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes SEO Tactics to Increase YouTube Traffic and Views"
 excerpt: "This Article Describes SEO Tactics to Increase YouTube Traffic and Views"
 keywords: "Video SEO Growth,YouTube Traffic Boost,View Increase Strategy,SEO Content Marketing,Engagement Optimization,Watch Time Enhancement,Traffic Diversification"
-thumbnail: https://www.lifewire.com/thmb/img6T68Fg1fTMamba3P66n34F08=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/theregisti-wbDsOAMynRo-unsplash-6b32cc049cda496b8cbd6150d77f5abc.jpg
+thumbnail: https://thmb.techidaily.com/7055739b2ba9c96c4320b4adbabab9131b89b7fc1348792ff9e2250cf6de872e.jpg
 ---
 
 ## SEO Tactics to Increase YouTube Traffic and Views

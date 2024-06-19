@@ -1,7 +1,7 @@
 ---
 title: "\"Speedy Resizing  Your Youtube Videos for Mac View\""
-date: 2024-05-25T16:17:42.609Z
-updated: 2024-05-26T16:17:42.609Z
+date: 2024-06-10T00:24:49.269Z
+updated: 2024-06-11T00:24:49.269Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Speedy Resizing: Your Youtube Videos for Mac View\""
 excerpt: "\"This Article Describes Speedy Resizing: Your Youtube Videos for Mac View\""
 keywords: "Quick Video Resize,Mac YT Video Adjust,Efficient Video Shrink,Optimal Mac Video Size,Fast Video Editing,Smaller Video Display,Streamlined Video Resizing"
-thumbnail: https://www.lifewire.com/thmb/ah4_0eKD-1BSjgdgHucINGUZWPA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/used-macbook-pro-1bf2b0a99ae8480ca8ab3d79384ddfb9.jpg
+thumbnail: https://thmb.techidaily.com/12e88707f59d2cf337816f66e57d39a5f3c787beb919eddcfabef3a341868406.jpg
 ---
 
 ## Speedy Resizing: Your Youtube Videos for Mac View

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Cutting the Cord of Creation  How to Setup a YouTube Channel From Phone to Platform\""
-date: 2024-05-25T17:01:56.012Z
-updated: 2024-05-26T17:01:56.012Z
+date: 2024-06-10T00:24:55.139Z
+updated: 2024-06-11T00:24:55.139Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Cutting the Cord of Creation: How to Setup a YouTube Channel From Phone to Platform\""
 excerpt: "\"This Article Describes 2024 Approved: Cutting the Cord of Creation: How to Setup a YouTube Channel From Phone to Platform\""
 keywords: "YouTube Channel Startup,Mobile Channel Creation,Transition to YouTube,Phones to Platform Channels,Set Up YouTube Quickly,Phone Channel Launch,Platform Streaming Beginnings"
-thumbnail: https://www.lifewire.com/thmb/GmtX4Dz-IqWNOXpwPIQPNtbYXbk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-174294003-57c6ee043df78cc16eeab260.jpg
+thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625c6e0b9ad212abd473aa163b.jpg
 ---
 
 ## Cutting the Cord of Creation: How to Setup a YouTube Channel From Phone to Platform

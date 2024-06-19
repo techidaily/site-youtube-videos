@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Birth of an Internet Persona – The VTuber Blueprint?"
-date: 2024-05-25T15:26:21.912Z
-updated: 2024-05-26T15:26:21.912Z
+date: 2024-06-10T00:24:55.188Z
+updated: 2024-06-11T00:24:55.188Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes In 2024, Birth of an Internet Persona – The VTuber Blueprint?"
 excerpt: "This Article Describes In 2024, Birth of an Internet Persona – The VTuber Blueprint?"
 keywords: "VTuber Birth,Internet Persona,VTuber Guide,Virtual Creator,Online Identity,New Media Star,Cyber Avatar"
-thumbnail: https://www.lifewire.com/thmb/AMgEVIin8UFIX3i5AXqs8C9WVZg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/nakul-QxPRz2oTOWo-unsplash-100a9e3871584fa5a1d9a7f445b572f5.jpg
+thumbnail: https://thmb.techidaily.com/c476c76efa4305c4184325fe1ddf82b7177bf5ea101e0b8dd34c17b0c21488b1.jpg
 ---
 
 ## Birth of an Internet Persona – The VTuber Blueprint?

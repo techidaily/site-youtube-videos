@@ -1,7 +1,7 @@
 ---
 title: "\"Behind the Scenes  The Genesis of a Mukbang Video\""
-date: 2024-05-25T14:42:02.183Z
-updated: 2024-05-26T14:42:02.183Z
+date: 2024-06-10T00:24:51.889Z
+updated: 2024-06-11T00:24:51.889Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Behind the Scenes: The Genesis of a Mukbang Video\""
 excerpt: "\"This Article Describes Behind the Scenes: The Genesis of a Mukbang Video\""
 keywords: "\"Mukbang Creation,Behind-the-Scenes Vlog,Video Binge Origins,Eating Live Streaming,Food Consumption Videos,Feast Viewing Experience,Culinary Videography\""
-thumbnail: https://www.lifewire.com/thmb/xDM-B4zVSXt5n027L2C5oNwTDN8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AIrendering_CROPPED_Guillaume_GettyImages-1418477818-d0a9c5ce09584a1099f21a5f1f690a88.jpg
+thumbnail: https://thmb.techidaily.com/5b8a360ae2beb8ae28dded746595b2ec0252b7304ad9ab12b451e3ff69d2619e.jpg
 ---
 
 ## Behind the Scenes: The Genesis of a Mukbang Video

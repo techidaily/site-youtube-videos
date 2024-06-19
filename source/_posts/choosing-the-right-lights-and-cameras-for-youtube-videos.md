@@ -1,7 +1,7 @@
 ---
 title: "Choosing the Right Lights & Cameras for YouTube Videos"
-date: 2024-05-25T14:49:40.379Z
-updated: 2024-05-26T14:49:40.379Z
+date: 2024-06-10T00:24:35.064Z
+updated: 2024-06-11T00:24:35.064Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Choosing the Right Lights & Cameras for YouTube Videos"
 excerpt: "This Article Describes Choosing the Right Lights & Cameras for YouTube Videos"
 keywords: "Video Lighting Solutions,HD Camera Equipment,Digital Camera Selection,YouTube Production Gear,Professional Video Lights,Quality Cam & Lights,Filming Tech Essentials"
-thumbnail: https://www.lifewire.com/thmb/TYlonbITONJw8xjZiugj3nr8x0k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/image5-a09202a279f54f0fb179c8cbcb2acc92.png
+thumbnail: https://thmb.techidaily.com/bd73d50e5d9ed4daeccbe66a94668b925bf784c3cbb50495af3357fea0a04a08.png
 ---
 
 ## Choosing the Right Lights & Cameras for YouTube Videos

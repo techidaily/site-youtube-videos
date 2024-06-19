@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Dissecting Your Profit Share in YouTube Short Creation\""
-date: 2024-05-25T14:27:56.681Z
-updated: 2024-05-26T14:27:56.681Z
+date: 2024-06-10T00:24:50.401Z
+updated: 2024-06-11T00:24:50.401Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Dissecting Your Profit Share in YouTube Short Creation\""
 excerpt: "\"This Article Describes 2024 Approved: Dissecting Your Profit Share in YouTube Short Creation\""
 keywords: "YT Short Revenue Breakdown,Video Creator Profit Analysis,YouTube Earnings Per View,Content Monetization Insight,Ad Revenue Distribution Guide,Shareholder ROI in Video Making,Profit Split for YT Shorts"
-thumbnail: https://www.lifewire.com/thmb/ttxD6SSIKCyVrDEeSsx3jnBjr0M=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-541365354-5c8ad42246e0fb00014a9687.jpg
+thumbnail: https://thmb.techidaily.com/024ced9c2dfad0404f5ee91e1efddba3dce2978ade3e359fc80cf8eaccdc84ab.jpg
 ---
 
 ## Dissecting Your Profit Share in YouTube Short Creation

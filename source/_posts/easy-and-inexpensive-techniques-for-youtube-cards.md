@@ -1,7 +1,7 @@
 ---
 title: "Easy and Inexpensive Techniques for YouTube Cards"
-date: 2024-05-25T15:03:06.934Z
-updated: 2024-05-26T15:03:06.934Z
+date: 2024-06-10T00:24:38.333Z
+updated: 2024-06-11T00:24:38.333Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Easy and Inexpensive Techniques for YouTube Cards"
 excerpt: "This Article Describes Easy and Inexpensive Techniques for YouTube Cards"
 keywords: "\"YouTube Card Boosting,Low-Cost SEO for Videos,Simple Video Marketing,Affordable Content Strategy,Easy On-Page SEO Tactics,Cost-Effective Promotion,Simplified Video SEO\""
-thumbnail: https://www.lifewire.com/thmb/IX3aINoOmR5VNVYyRo1nRxzDyXs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/businessman-working-at-computer-in-office-620926129-574488533df78c6bb041d5e9.jpg
+thumbnail: https://thmb.techidaily.com/197c2ed369e4a9919f13d946f77f5157856e3dbfa0838cef669c3e3be16ac8df.jpg
 ---
 
 ## Easy and Inexpensive Techniques for YouTube Cards

@@ -1,7 +1,7 @@
 ---
 title: "\"Leading Converter  YouTube Dialogue to Text\""
-date: 2024-05-25T15:42:53.660Z
-updated: 2024-05-26T15:42:53.660Z
+date: 2024-06-10T00:24:40.811Z
+updated: 2024-06-11T00:24:40.811Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Leading Converter: YouTube Dialogue to Text\""
 excerpt: "\"This Article Describes Leading Converter: YouTube Dialogue to Text\""
 keywords: "\"Video Transcript Generator,Convert YouTube Speech To Text,Dialogue-to-Text Platform,Online Speech-to-Text Tool,YouTube Caption Extraction,Automatic Video Subtitles,Speech-to-Text Converter for YouTube\""
-thumbnail: https://www.lifewire.com/thmb/hIHuLANY2uss1gdB6366Yx2lI1U=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-494832445-7880b4d106654e1297f2f47e9ff4bd90.jpg
+thumbnail: https://thmb.techidaily.com/05409c86ab861958a6ea56c42e05a9e6a04b032d3986e176fe5f645b88c2b1e9.jpg
 ---
 
 ## Leading Converter: YouTube Dialogue to Text

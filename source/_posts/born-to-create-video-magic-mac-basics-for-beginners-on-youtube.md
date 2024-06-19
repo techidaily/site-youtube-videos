@@ -1,7 +1,7 @@
 ---
 title: "\"Born to Create Video Magic  Mac Basics for Beginners on YouTube\""
-date: 2024-05-25T14:45:02.892Z
-updated: 2024-05-26T14:45:02.892Z
+date: 2024-06-10T00:24:30.315Z
+updated: 2024-06-11T00:24:30.315Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Born to Create Video Magic: Mac Basics for Beginners on YouTube\""
 excerpt: "\"This Article Describes Born to Create Video Magic: Mac Basics for Beginners on YouTube\""
 keywords: "Video Magician Skills,Mac Video Basics Guide,Basic Mac Video Creation,Newbie Mac Vid Tech,Learn Video Magic Mac,Mac for Beginner Videos,YouTube Mac Video Tips"
-thumbnail: https://www.lifewire.com/thmb/UCCJI6MO1FwbR0mTqx5aB-FS3_0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-add-tiktok-filters-and-effects-f3c195b2fe1449cb8b2906eea3305b22.jpg
+thumbnail: https://thmb.techidaily.com/b35a9a46671dd373ee6fb76f2e7c8c289a52fdab2f2b7f6dd74a2f0921700773.jpg
 ---
 
 ## Born to Create Video Magic: Mac Basics for Beginners on YouTube

@@ -1,7 +1,7 @@
 ---
 title: "How to Prevent Thumbnail Absence in Shorts Uploads"
-date: 2024-05-25T15:20:06.561Z
-updated: 2024-05-26T15:20:06.561Z
+date: 2024-06-10T00:24:48.721Z
+updated: 2024-06-11T00:24:48.721Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes How to Prevent Thumbnail Absence in Shorts Uploads"
 excerpt: "This Article Describes How to Prevent Thumbnail Absence in Shorts Uploads"
 keywords: "Avoid Thumbnail Missing,Shorts Thumbnail Tips,No Thumbnails in Shorts,Thumbnail Prevention Strategies,Ensure Shorts Image Display,Stop Thumbnails From Vanishing,Optimal Shorts Thumbnails"
-thumbnail: https://www.lifewire.com/thmb/6m8UXpSP-Dw-lWv_rdb9vJxR0PE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/BlackGraduationCap-6c33194ee639420b8c0db580ea381db7.jpg
+thumbnail: https://thmb.techidaily.com/c8ce7d91fb957aab4992042fdfbf5a4bd1a84b3cbd4ae7f99a3317b1ad8120c6.jpg
 ---
 
 ## How to Prevent Thumbnail Absence in Shorts Uploads

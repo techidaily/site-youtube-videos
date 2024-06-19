@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Audio Visual Transcript Maker"
-date: 2024-05-25T16:37:23.289Z
-updated: 2024-05-26T16:37:23.289Z
+date: 2024-06-10T00:24:32.923Z
+updated: 2024-06-11T00:24:32.923Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Audio Visual Transcript Maker"
 excerpt: "This Article Describes [Updated] Audio Visual Transcript Maker"
 keywords: "\"Audiovisual Converter,AV Transcript Generator,Audio to Text Tool,Video Captioning Software,Speech-to-Text Program,Visual Script Maker,Sound to Script App\""
-thumbnail: https://www.lifewire.com/thmb/koSaGJ5iVSnQrrvXh53lyy1rSZM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/podcasts-safeforkids-5b2f3dd4eb97de0036d9f87b.jpg
+thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae043dca04e140a16eeec969f.jpg
 ---
 
 ## Audio Visual Transcript Maker

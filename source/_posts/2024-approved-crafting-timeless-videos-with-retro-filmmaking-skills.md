@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Crafting Timeless Videos with Retro Filmmaking Skills\""
-date: 2024-05-25T14:24:52.444Z
-updated: 2024-05-26T14:24:52.444Z
+date: 2024-06-10T00:24:32.287Z
+updated: 2024-06-11T00:24:32.287Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Crafting Timeless Videos with Retro Filmmaking Skills\""
 excerpt: "\"This Article Describes 2024 Approved: Crafting Timeless Videos with Retro Filmmaking Skills\""
 keywords: "Timeless Video Craft,Retro Film Techniques,Cinematic Videography,Classic Video Making,Vintage Filmmaking Tips,Nostalgic Video Art,Elegant Retro Videos"
-thumbnail: https://www.lifewire.com/thmb/XtJUQ5ofU6mxMwiIBLJLEkGTnpE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/thought-catalog-UK78i6vK3sc-unsplash-8b7b0b500739470dad06540d1bdb19d3.jpg
+thumbnail: https://thmb.techidaily.com/3d668bfb6eaaff582ac6a3ef0ec269ab4610d6df4de409efc683d784a7434cf5.jpg
 ---
 
 ## Crafting Timeless Videos with Retro Filmmaking Skills

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Conquering Camera Angst  The Ultimate List of Video Blogging Phobias\""
-date: 2024-05-25T16:42:55.759Z
-updated: 2024-05-26T16:42:55.759Z
+date: 2024-06-10T00:24:44.863Z
+updated: 2024-06-11T00:24:44.863Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [Updated] Conquering Camera Angst: The Ultimate List of Video Blogging Phobias\""
 excerpt: "\"This Article Describes [Updated] Conquering Camera Angst: The Ultimate List of Video Blogging Phobias\""
 keywords: "Vlogging Anxiety,Filming Fears,Cam Angle Woes,Video Blogging Panic,Shoot Stress,Angst in Filming,Phobia of Cameras"
-thumbnail: https://www.lifewire.com/thmb/yfR53qUtMPAfXllTGyN38y8gqpM=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/keyboard-message-green-earth-183257413-58dbd3023df78c5162129409.jpg
+thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5a8f2d8fdc6330db34850673.jpg
 ---
 
 ## Conquering Camera Angst: The Ultimate List of Video Blogging Phobias

@@ -1,7 +1,7 @@
 ---
 title: "Top Insights Into 2018 FIFA Football Videos On YouTube [Infographic]"
-date: 2024-05-25T16:28:36.865Z
-updated: 2024-05-26T16:28:36.865Z
+date: 2024-06-10T00:24:30.665Z
+updated: 2024-06-11T00:24:30.665Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Top Insights Into 2018 FIFA Football Videos On YouTube [Infographic]"
 excerpt: "This Article Describes Top Insights Into 2018 FIFA Football Videos On YouTube [Infographic]"
 keywords: "FIFA Video Infographics,2018 Soccer Visuals,YouTube Sports Playlists,Premier League Videos,Football World Cup Content,International Soccer Highlights,Elite Soccer Broadcasts"
-thumbnail: https://www.lifewire.com/thmb/emyPhVf3B4VLTCj8T835W3AqyOU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-93420821-0ce0b19097fb47d78dec8dbc039c1260.jpg
+thumbnail: https://thmb.techidaily.com/1e0694b6112d675bbb8f0d747ab36517f01502f4062f523abbe17fcfc5ae5fc7.jpg
 ---
 
 ## Top Insights Into 2018 FIFA Football Videos On YouTube [Infographic]

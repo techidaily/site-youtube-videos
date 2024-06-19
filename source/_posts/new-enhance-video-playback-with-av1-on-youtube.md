@@ -1,7 +1,7 @@
 ---
 title: "[New] Enhance Video Playback with AV1 on YouTube"
-date: 2024-05-25T16:07:00.292Z
-updated: 2024-05-26T16:07:00.292Z
+date: 2024-06-10T00:24:28.148Z
+updated: 2024-06-11T00:24:28.148Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Enhance Video Playback with AV1 on YouTube"
 excerpt: "This Article Describes [New] Enhance Video Playback with AV1 on YouTube"
 keywords: "AV1 YouTube Enhancement,AV1 Video Quality Upgrade,AV1 YouTube Streaming,Improve AV1 Video Playback,High Fidelity AV1 on YouTube,Optimize AV1 for YouTube,Better AV1 Video Experience"
-thumbnail: https://www.lifewire.com/thmb/xk4sG4I9EUDVvTCEXSRMmg2yPjw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/superbowl_dmytroAksonov_Getty-5a775189119fa8003752b313.jpg
+thumbnail: https://thmb.techidaily.com/6d060e78cf4821c16957dc0af5764350800050d4c706e3284222e7ce2389a41f.jpg
 ---
 
 ## Enhance Video Playback with AV1 on YouTube

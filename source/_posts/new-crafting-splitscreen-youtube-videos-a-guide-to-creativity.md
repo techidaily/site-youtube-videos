@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting Splitscreen YouTube Videos  A Guide to Creativity\""
-date: 2024-05-25T15:59:04.307Z
-updated: 2024-05-26T15:59:04.307Z
+date: 2024-06-10T00:24:33.280Z
+updated: 2024-06-11T00:24:33.280Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Crafting Splitscreen YouTube Videos: A Guide to Creativity\""
 excerpt: "\"This Article Describes [New] Crafting Splitscreen YouTube Videos: A Guide to Creativity\""
 keywords: "\"Splitscreen Video Tutorials,Crafting Split-Screen Content,Creative Split Screen Techniques,YouTube Multi-Scene Production,Divide Screen Creation Guide,Multitasking in Videos,Interactive Duo Video Making\""
-thumbnail: https://www.lifewire.com/thmb/jJkMZHBw1UWMNPiFSMrpeNwRPjY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ArtificalIntelligenceChatbotConcept-c0e491e36fae46ef84b670334af5095f.jpg
+thumbnail: https://thmb.techidaily.com/b7ac3fecaf39cbf4ad53ade68b5607328fb5fc5fabf85fb01691cb6e94c786a0.jpg
 ---
 
 ## Crafting Splitscreen YouTube Videos: A Guide to Creativity

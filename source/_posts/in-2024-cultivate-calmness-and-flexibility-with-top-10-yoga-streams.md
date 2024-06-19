@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Cultivate Calmness & Flexibility with Top 10 Yoga Streams"
-date: 2024-05-25T15:31:58.563Z
-updated: 2024-05-26T15:31:58.563Z
+date: 2024-06-10T00:24:29.038Z
+updated: 2024-06-11T00:24:29.038Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes In 2024, Cultivate Calmness & Flexibility with Top 10 Yoga Streams"
 excerpt: "This Article Describes In 2024, Cultivate Calmness & Flexibility with Top 10 Yoga Streams"
 keywords: "\"Yoga Calmness,Flexible Yoga,Yoga Practice,Stress-Relief Yoga,Mindful Yoga,Yoga Streaming,Online Yoga Classes\""
-thumbnail: https://www.lifewire.com/thmb/MDGL2kMJllFexcxpsA_p345aX0g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/The-Conjuring-3-3d34f5a-scaled-96b4939261ee4274a8be036e7e6aa405.jpeg
+thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg
 ---
 
 ## Cultivate Calmness & Flexibility with Top 10 Yoga Streams

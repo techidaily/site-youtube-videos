@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Movie Maker  A Beginner-Friendly Video Editing Companion\""
-date: 2024-05-25T16:56:33.323Z
-updated: 2024-05-26T16:56:33.323Z
+date: 2024-06-10T00:24:42.129Z
+updated: 2024-06-11T00:24:42.129Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes YouTube Movie Maker: A Beginner-Friendly Video Editing Companion\""
 excerpt: "\"This Article Describes YouTube Movie Maker: A Beginner-Friendly Video Editing Companion\""
 keywords: "\"Easy YouTube Edits,Basic Movie Creation,Simple Video Editor,Video Editing Starter,No-Frills Movie Maker,Beginner Video Tool,Guided Film Crafting\""
-thumbnail: https://www.lifewire.com/thmb/jknfkOqLk-t9Nzaqjc3jTDyI23Y=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/man-with-tablet-and-headphones-on-train-629639549-59c3f06422fa3a00118b0616.jpg
+thumbnail: https://thmb.techidaily.com/53c515418786e92ebed3c6206ea33f7c074dbdb116bb5f52f889c6937a269f05.jpg
 ---
 
 ## YouTube Movie Maker: A Beginner-Friendly Video Editing Companion

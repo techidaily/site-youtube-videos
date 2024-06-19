@@ -1,7 +1,7 @@
 ---
 title: "A Compreenas Guide to Choosing Ideal Lenses for Filmmaking"
-date: 2024-05-25T14:35:27.148Z
-updated: 2024-05-26T14:35:27.148Z
+date: 2024-06-10T00:24:47.632Z
+updated: 2024-06-11T00:24:47.632Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes A Compreenas Guide to Choosing Ideal Lenses for Filmmaking"
 excerpt: "This Article Describes A Compreenas Guide to Choosing Ideal Lenses for Filmmaking"
 keywords: "\"Filmmaking Lens Guide,Lens Selection Advice,Best Filmmaking Lenses,Cinematography Optics,Prime Lenses Film Use,Zoom Lens for Cinema,Ultra Wide-Angle Camera Lens\""
-thumbnail: https://www.lifewire.com/thmb/hPIEPKv0WCrjrnqnmBCEGl_9xL0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-753288297-5aefb99104d1cf0037f39fe9.jpg
+thumbnail: https://thmb.techidaily.com/fed92e9eb9a0a5e6e21c5bc280db28f15e68b19782ea8ac6138fc17b8fe856f7.jpg
 ---
 
 ## A Compreenas Guide to Choosing Ideal Lenses for Filmmaking

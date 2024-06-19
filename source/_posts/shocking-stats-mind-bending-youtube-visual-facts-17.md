@@ -1,7 +1,7 @@
 ---
 title: "\"Shocking Stats  Mind-Bending Youtube Visual Facts ('17)\""
-date: 2024-05-25T16:16:12.053Z
-updated: 2024-05-26T16:16:12.053Z
+date: 2024-06-10T00:24:28.262Z
+updated: 2024-06-11T00:24:28.262Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Shocking Stats: Mind-Bending Youtube Visual Facts ('17)\""
 excerpt: "\"This Article Describes Shocking Stats: Mind-Bending Youtube Visual Facts ('17)\""
 keywords: "\"Youtube Trends '17,Fact Visual YouTube,Shocking Data Chart,Video Fact Illustration,Mind-Blowing Infographics,Statistical YouTube Insights,Viral Video Truths\""
-thumbnail: https://www.lifewire.com/thmb/B6TMOs0i_-X-EYQF4RJARJpos4s=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/iOS-wwdc-7d655ca37a3b43b99fd9dac09bec13c4.jpg
+thumbnail: https://thmb.techidaily.com/d9567f73a6de787d2d45f5ed6e24adff2914444a4a5e563757f01047c1bbc480.jpg
 ---
 
 ## Shocking Stats: Mind-Bending Youtube Visual Facts ('17)

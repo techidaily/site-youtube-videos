@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Dynamic Duo Display  YouTube’s Way of Creative Splitting\""
-date: 2024-05-25T16:48:08.526Z
-updated: 2024-05-26T16:48:08.526Z
+date: 2024-06-10T00:24:28.754Z
+updated: 2024-06-11T00:24:28.754Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [Updated] Dynamic Duo Display: YouTube’s Way of Creative Splitting\""
 excerpt: "\"This Article Describes [Updated] Dynamic Duo Display: YouTube’s Way of Creative Splitting\""
 keywords: "Dynamic Duos Split,Creative Content Splitting,YouTube Creativity Technique,Video Production Partnership,Collaborative Video Ideas,Media Creation Division,Shared Screening Methods"
-thumbnail: https://www.lifewire.com/thmb/mrs_tyqJrG57jESVJh-QT1xP6pE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/portraitadjustments-f184f630426541748eac71f1297c1536.jpeg
+thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc4713be9d07ea00e7f8a9937936.jpeg
 ---
 
 ## Dynamic Duo Display: YouTube’s Way of Creative Splitting

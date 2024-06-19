@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Inspirational Recruiter Playlist"
-date: 2024-05-25T16:26:16.647Z
-updated: 2024-05-26T16:26:16.647Z
+date: 2024-06-10T00:24:28.814Z
+updated: 2024-06-11T00:24:28.814Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes The Ultimate Inspirational Recruiter Playlist"
 excerpt: "This Article Describes The Ultimate Inspirational Recruiter Playlist"
 keywords: "Inspiring Hires,Motivation in Recruiting,Top Talent Playlists,Recruitment Beats,Engaging Job Listings,Talent Acquisition Tunes,Interview Music Selection"
-thumbnail: https://www.lifewire.com/thmb/cgUXvRRGmHncjkXVnnc2mDDxd-k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AnneParkShedloskytvOS-2d4178dd6b7d46a08c34ab8b750fe23e.jpg
+thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f6a739d5a50d45eaa5fd443d.jpg
 ---
 
 ## The Ultimate Inspirational Recruiter Playlist

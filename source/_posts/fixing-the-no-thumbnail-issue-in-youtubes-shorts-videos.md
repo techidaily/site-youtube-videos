@@ -1,7 +1,7 @@
 ---
 title: "\"Fixing the No-Thumbnail Issue in YouTubes Shorts Videos\""
-date: 2024-05-25T15:14:43.522Z
-updated: 2024-05-26T15:14:43.522Z
+date: 2024-06-10T00:24:51.824Z
+updated: 2024-06-11T00:24:51.824Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Fixing the No-Thumbnail Issue in YouTubes Shorts Videos\""
 excerpt: "\"This Article Describes Fixing the No-Thumbnail Issue in YouTubes Shorts Videos\""
 keywords: "YouTube Shorts Thumbnails Fix,Shorts Video No Thumbnail,Resolve No Thumbnail Error,YouTube Shorts Thumb Missing,Shortcuts Video Image Problem,Correcting Thumbnail Issue,Addressing YouTubes Thumbnail Gap"
-thumbnail: https://www.lifewire.com/thmb/tG-F-sQp21lJs8o0YCxJ5BuJA24=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001_authenticator-add-account-8634672-ffc510271be046f4af6138462ae02a44.jpg
+thumbnail: https://thmb.techidaily.com/2b5408cdd9aa5a17f9e7b91e863fefaf73cf6e1aca47c82b58449d867a0d4a44.jpg
 ---
 
 ## Fixing the No-Thumbnail Issue in YouTubes Shorts Videos

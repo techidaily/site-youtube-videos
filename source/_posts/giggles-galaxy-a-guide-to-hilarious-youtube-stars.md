@@ -1,7 +1,7 @@
 ---
 title: "\"Giggles Galaxy  A Guide to Hilarious YouTube Stars\""
-date: 2024-05-25T15:17:26.836Z
-updated: 2024-05-26T15:17:26.836Z
+date: 2024-06-10T00:24:36.783Z
+updated: 2024-06-11T00:24:36.783Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Giggles Galaxy: A Guide to Hilarious YouTube Stars\""
 excerpt: "\"This Article Describes Giggles Galaxy: A Guide to Hilarious YouTube Stars\""
 keywords: "\"Hilarity in YT Stars,Comedy YouTubers Guide,Laughter-Driven YouTube Content,Funny Vid Creators,Hilarious Online Personalities,Chuckle-Inducing Internet Stars,Giggles in Digital Space\""
-thumbnail: https://www.lifewire.com/thmb/ZCgP3QXrLGyFAmX3vrOATSSTEYA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/pool-movie-night-party--487371742-3586073c6a1c41cda022274ec13f8133.jpg
+thumbnail: https://thmb.techidaily.com/d72c9b0ad235ae2e33438a2833486adc17771826c6a96da1aa4105529dabc652.jpg
 ---
 
 ## Giggles Galaxy: A Guide to Hilarious YouTube Stars

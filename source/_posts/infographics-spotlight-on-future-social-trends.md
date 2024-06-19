@@ -1,7 +1,7 @@
 ---
 title: "Infographics Spotlight on Future Social Trends"
-date: 2024-05-25T15:40:50.954Z
-updated: 2024-05-26T15:40:50.954Z
+date: 2024-06-10T00:24:32.763Z
+updated: 2024-06-11T00:24:32.763Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Infographics Spotlight on Future Social Trends"
 excerpt: "This Article Describes Infographics Spotlight on Future Social Trends"
 keywords: "\"Future Trends Infographic,Social Trends Graphic,Insightful Trend Art,Social Patterns Visual,Tomorrow's Insights,Trendy Infographics,Forward-Looking Graphics\""
-thumbnail: https://www.lifewire.com/thmb/0zAfKCPSLtJGJZ4s7ICQ5FGmSzY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Verified-badge-on-phone-658ecad4f9104dae97a969bfa2f74eb3.jpg
+thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc8ca952932303c5e2c53ba39.jpg
 ---
 
 ## Infographics Spotlight on Future Social Trends

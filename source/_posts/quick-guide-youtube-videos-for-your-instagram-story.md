@@ -1,7 +1,7 @@
 ---
 title: "\"Quick Guide  YouTube Videos for Your Instagram Story\""
-date: 2024-05-25T16:13:17.870Z
-updated: 2024-05-26T16:13:17.870Z
+date: 2024-06-10T00:24:42.028Z
+updated: 2024-06-11T00:24:42.028Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Quick Guide: YouTube Videos for Your Instagram Story\""
 excerpt: "\"This Article Describes Quick Guide: YouTube Videos for Your Instagram Story\""
 keywords: "\"Insta Video Guide,YouTube Story Tips,Quick Instagram Feed,Short-Form Video Guide,Instagram Stories Easy,YouTube for IG Screens,Instagram Video Guide\""
-thumbnail: https://www.lifewire.com/thmb/3zX1wSLUgOOUtfE8_n3UOx3eeL8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Amazon-Fire-Tablet-vs-iPad-c7412c25c83b4ac5b393596789f0e716.jpg
+thumbnail: https://thmb.techidaily.com/2cb259c465a86a9d87c2ab8ed232a243225880491ec4b7484688140a5b3e77f5.jpg
 ---
 
 ## Quick Guide: YouTube Videos for Your Instagram Story

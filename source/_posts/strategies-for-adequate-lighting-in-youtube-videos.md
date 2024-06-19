@@ -1,7 +1,7 @@
 ---
 title: "Strategies for Adequate Lighting in YouTube Videos"
-date: 2024-05-25T16:19:17.347Z
-updated: 2024-05-26T16:19:17.347Z
+date: 2024-06-10T00:24:49.851Z
+updated: 2024-06-11T00:24:49.851Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Strategies for Adequate Lighting in YouTube Videos"
 excerpt: "This Article Describes Strategies for Adequate Lighting in YouTube Videos"
 keywords: "Video Lighting Tips,YouTube Brightness Guide,Enhancing Screen Visibility,Optimal Video Illumination,Key Lights in Filming,LED Lighting for Videos,Ambient Video Light"
-thumbnail: https://www.lifewire.com/thmb/bBjL4RQrpU3Is7hygFsLYpWveBE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-d43fab70fbba4bc39949f9a4c84a80d0.png
+thumbnail: https://thmb.techidaily.com/07f3d5f057a0a1f3c1d2492add732e27fc47138ba4a1808a078297c558520a47.png
 ---
 
 ## Strategies for Adequate Lighting in YouTube Videos

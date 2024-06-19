@@ -1,7 +1,7 @@
 ---
 title: "\"Youtubed Out  Today's Most Fondly Watched Tracks\""
-date: 2024-05-25T16:57:14.038Z
-updated: 2024-05-26T16:57:14.038Z
+date: 2024-06-10T00:24:31.838Z
+updated: 2024-06-11T00:24:31.838Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Youtubed Out: Today's Most Fondly Watched Tracks\""
 excerpt: "\"This Article Describes Youtubed Out: Today's Most Fondly Watched Tracks\""
 keywords: "Trending YouTube Songs,Popular Music Videos,Viral YouTube Tracks,Top Listened Melodies,Hit YouTube Tunes,Favorite Streamed Hits,Crowded Screen Beats"
-thumbnail: https://www.lifewire.com/thmb/-NWk-W_H5F1ro-0ZncgiiCFpIqo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/mahdis-mousavi-hJ5uMIRNg5k-unsplashcopy-dba942f7103a4791bd746ba0ff5334c0.jpg
+thumbnail: https://thmb.techidaily.com/84bcfb215924d4b6e2371f604fa3d4a445ea39a93ddb7e4b8427aaf47d96a723.jpg
 ---
 
 ## Youtubed Out: Today's Most Fondly Watched Tracks

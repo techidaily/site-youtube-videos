@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Achieving 1K Subs in a Weekend  A Plan of Action\""
-date: 2024-05-25T16:36:12.792Z
-updated: 2024-05-26T16:36:12.792Z
+date: 2024-06-10T00:24:40.375Z
+updated: 2024-06-11T00:24:40.375Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [Updated] Achieving 1K Subs in a Weekend: A Plan of Action\""
 excerpt: "\"This Article Describes [Updated] Achieving 1K Subs in a Weekend: A Plan of Action\""
 keywords: "Subbing Strategies,Quick Sub Growth,Achieve 1K Subs,Weekend Sub Plan,Action for Subs,Rapid Subbing Guide,Subbing Goals"
-thumbnail: https://www.lifewire.com/thmb/EfCQ28OGHf4dR3Od1N0-6XNoXfQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/iPad-Pro-2024-Normal-04a9c15834e44801b665c308088cdf91.jpg
+thumbnail: https://thmb.techidaily.com/c5b0ebae4367079e280b487ce588fc466a9ede57f33408103ebb2dc34b6570fb.jpg
 ---
 
 ## Achieving 1K Subs in a Weekend: A Plan of Action

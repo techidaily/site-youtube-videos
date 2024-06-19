@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Enhancing Visual Impact  A Guide to Jump Cut Techniques\""
-date: 2024-05-25T16:07:29.440Z
-updated: 2024-05-26T16:07:29.440Z
+date: 2024-06-10T00:24:30.605Z
+updated: 2024-06-11T00:24:30.605Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Enhancing Visual Impact: A Guide to Jump Cut Techniques\""
 excerpt: "\"This Article Describes [New] Enhancing Visual Impact: A Guide to Jump Cut Techniques\""
 keywords: "Visual Impact Enhancement,Jump Cut Guide,Filmmaking Technique,Editing Skills,Quick Transition Methods,Video Editing Tips,Creative Cuts Strategies"
-thumbnail: https://www.lifewire.com/thmb/AfexZ2-k2mQOT3K5CpxU6ZDxBBU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/outlook-email-laptop-54a6bbf773ea4d67b3714ccbab66d8ed.jpg
+thumbnail: https://thmb.techidaily.com/443fa3d21137649dff0319f1c3c3070702e32a7b2f673e094959a8fdb4cdbd5b.jpg
 ---
 
 ## Enhancing Visual Impact: A Guide to Jump Cut Techniques
