@@ -1,7 +1,7 @@
 ---
 title: "\"Scoping Out the 12 Most Popular Flip-Screen Video Cameras\""
-date: 2024-05-25T16:15:04.974Z
-updated: 2024-05-26T16:15:04.974Z
+date: 2024-06-18T20:20:50.569Z
+updated: 2024-06-19T20:20:50.569Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Scoping Out the 12 Most Popular Flip-Screen Video Cameras\""
 excerpt: "\"This Article Describes Scoping Out the 12 Most Popular Flip-Screen Video Cameras\""
 keywords: "\"Flip-Screen Cameras,HD Video Cameras,Portable Screen Cams,Compact Flip Viders,Popular Camera Screens,Video Flip Display,Screened Video Cameras\""
-thumbnail: https://www.lifewire.com/thmb/GQnN1xDTyf1WCew2KMfYUeUpvK8=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/WeiliDai-acfe647b60c149869466ebd6d3bd574a.jpg
+thumbnail: https://thmb.techidaily.com/815fea7976911214190dec2e4ce8ef31c5b56fc35aca9555d7d0112a6571e067.jpg
 ---
 
 ## Scoping Out the 12 Most Popular Flip-Screen Video Cameras

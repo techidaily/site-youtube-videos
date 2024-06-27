@@ -1,7 +1,7 @@
 ---
 title: "\"The 10 Most Popular YouTube Channels for Real-Time News\""
-date: 2024-05-25T16:21:51.522Z
-updated: 2024-05-26T16:21:51.522Z
+date: 2024-06-18T20:20:46.502Z
+updated: 2024-06-19T20:20:46.502Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes The 10 Most Popular YouTube Channels for Real-Time News\""
 excerpt: "\"This Article Describes The 10 Most Popular YouTube Channels for Real-Time News\""
 keywords: "\"Live News YT Channels,Top News YouTube Clips,Trending News Video Chats,Premier News YouTube Sites,Real-Time News Online,Popular News Youtubers,Freshest News YouTube Hubs\""
-thumbnail: https://www.lifewire.com/thmb/tP3PGqv5XalObxjPn5UrSpbUwa0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/preaknessstakes-5c804f1b46e0fb00019b8ee0.jpg
+thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be090a3ce22bfc91cc23bb5f7.jpg
 ---
 
 ## The 10 Most Popular YouTube Channels for Real-Time News

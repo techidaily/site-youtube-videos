@@ -1,7 +1,7 @@
 ---
 title: "\"Chorus of Creators  Guidelines for Sharing Sounds Online\""
-date: 2024-05-25T14:49:42.917Z
-updated: 2024-05-26T14:49:42.917Z
+date: 2024-06-18T20:20:21.675Z
+updated: 2024-06-19T20:20:21.675Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Chorus of Creators: Guidelines for Sharing Sounds Online\""
 excerpt: "\"This Article Describes Chorus of Creators: Guidelines for Sharing Sounds Online\""
 keywords: "Sound Sharing Guide,Audio Copyrights,Creative Commons Music,Online Sound Ethics,Open Licensed Tunes,Digital Music Rights,Creative Commons Usage"
-thumbnail: https://www.lifewire.com/thmb/aLu0em22yoHgKW-hxWh3nvXUZcc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Bluetoothspeaker-ca607b5d62c24178babf3eb5b9b876c3.jpg
+thumbnail: https://thmb.techidaily.com/05031c348e3a8b265ca81d9de600b6d3876929f7748d63bf7bb6a077bd78b2a6.jpg
 ---
 
 ## Chorus of Creators: Guidelines for Sharing Sounds Online

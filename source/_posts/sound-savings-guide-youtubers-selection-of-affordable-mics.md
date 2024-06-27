@@ -1,7 +1,7 @@
 ---
 title: "\"Sound Savings Guide  Youtuber's Selection of Affordable Mics\""
-date: 2024-05-25T16:17:27.479Z
-updated: 2024-05-26T16:17:27.479Z
+date: 2024-06-18T20:20:51.379Z
+updated: 2024-06-19T20:20:51.379Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Sound Savings Guide: Youtuber's Selection of Affordable Mics\""
 excerpt: "\"This Article Describes Sound Savings Guide: Youtuber's Selection of Affordable Mics\""
 keywords: "\"Mic Savings Tips,Budget Microphones,Cheap Audio Equipment,DIY Recording Gear,Affordable Mics Guide,Sound Investments,Low-Cost Studio Setup\""
-thumbnail: https://www.lifewire.com/thmb/orCGFYNFlEan1uKR5h12Vm8mASA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/kids-ipad-580f65635f9b58564cc0fc91-5c5cbb6ac9e77c0001d92aa4.jpg
+thumbnail: https://thmb.techidaily.com/baabb0210a0e9d1dfef8f1a18fa201bad1a8f950b33fad191c1a3f8c1897f172.jpg
 ---
 
 ## Sound Savings Guide: Youtuber's Selection of Affordable Mics

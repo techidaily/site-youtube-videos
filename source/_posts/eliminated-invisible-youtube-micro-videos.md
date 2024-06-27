@@ -1,7 +1,7 @@
 ---
 title: "\"Eliminated  Invisible YouTube Micro Videos\""
-date: 2024-05-25T15:07:42.671Z
-updated: 2024-05-26T15:07:42.671Z
+date: 2024-06-18T20:20:39.293Z
+updated: 2024-06-19T20:20:39.293Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Eliminated: Invisible YouTube Micro Videos\""
 excerpt: "\"This Article Describes Eliminated: Invisible YouTube Micro Videos\""
 keywords: "\"YouTube Shorts Trend,Micro Video Decline,Invisible Content Fall,Streaming Shrinkage,Minisubtitles Phase-Out,Hidden Vids Reduction,MiniVid Disappearance\""
-thumbnail: https://www.lifewire.com/thmb/HkONQq5zPXfHst-EQTzodPIPJRI=/180x120/filters:no_upscale():max_bytes(150000):strip_icc()/AI_Choreograph_GettyImagesPlus-1473211827_CROPPED-137fc9eef04a43a79554344a6f11d1b7.jpg
+thumbnail: https://thmb.techidaily.com/e7a938c8213dc5d370405bab4afa736e010a188d2f4d2dd7c34adab834ad1c13.jpg
 ---
 
 ## Eliminated: Invisible YouTube Micro Videos

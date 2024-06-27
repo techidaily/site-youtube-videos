@@ -1,7 +1,7 @@
 ---
 title: "\"YT Highlights  Year-End Spotlight on Top Music Reactions\""
-date: 2024-05-25T16:57:45.677Z
-updated: 2024-05-26T16:57:45.677Z
+date: 2024-06-18T20:20:42.909Z
+updated: 2024-06-19T20:20:42.909Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes YT Highlights: Year-End Spotlight on Top Music Reactions\""
 excerpt: "\"This Article Describes YT Highlights: Year-End Spotlight on Top Music Reactions\""
 keywords: "\"Music YT Highlights,Year-End Video,Music Reactions Spotlight,Top Music Videos,Annual Music Summary,Popular Music Trends,Hit Song Highlights\""
-thumbnail: https://www.lifewire.com/thmb/jVj3zTPzlSk-TEYtLIyBRT63fA4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-535970955-5b0ef2cca474be003791023e.jpg
+thumbnail: https://thmb.techidaily.com/a6017269d4c04c5e1e1b5dd34c08e1f92a0a41c1ec409bdbe7a0807e99cdc6f4.jpg
 ---
 
 ## YT Highlights: Year-End Spotlight on Top Music Reactions

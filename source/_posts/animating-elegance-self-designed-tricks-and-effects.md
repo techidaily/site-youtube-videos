@@ -1,7 +1,7 @@
 ---
 title: "\"Animating Elegance  Self-Designed Tricks & Effects\""
-date: 2024-05-25T14:39:23.096Z
-updated: 2024-05-26T14:39:23.096Z
+date: 2024-06-18T20:20:40.505Z
+updated: 2024-06-19T20:20:40.505Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Animating Elegance: Self-Designed Tricks & Effects\""
 excerpt: "\"This Article Describes Animating Elegance: Self-Designed Tricks & Effects\""
 keywords: "\"Animate Elegance,Design Trick Tech,Creative Animatic,Visual Effect Arts,Self-Animated Style,Artistic Trick Animation,Elegant Design Effects,Creative Animation Art,Style Design Animations,Visual Design Techniques\""
-thumbnail: https://www.lifewire.com/thmb/2Nx-EdeC7xRrRbSsAaq7lIuWtrw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/What-Is-Internet-Trolling-3485891-788ddb5e8e244259a8619c7cc2ebd600.png
+thumbnail: https://thmb.techidaily.com/a6232b975632e43de71e5ab6217eebf552fc531569d56d79c1b10e2acedb4321.png
 ---
 
 ## Animating Elegance: Self-Designed Tricks & Effects
@@ -46,21 +46,21 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
-## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
+## ** Mt. Mograph
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
-## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
+## ** Richard Harrington on Lynda
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-## **[Bloop Animation](https://www.bloopanimation.com/)**
+## ** Bloop Animation
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
-## **[Video Copilot](http://www.videocopilot.net/)**
+## ** Video Copilot
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
@@ -98,21 +98,21 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
-## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
+## ** Mt. Mograph
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
-## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
+## ** Richard Harrington on Lynda
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-## **[Bloop Animation](https://www.bloopanimation.com/)**
+## ** Bloop Animation
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
-## **[Video Copilot](http://www.videocopilot.net/)**
+## ** Video Copilot
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
@@ -150,21 +150,21 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
-## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
+## ** Mt. Mograph
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
-## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
+## ** Richard Harrington on Lynda
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-## **[Bloop Animation](https://www.bloopanimation.com/)**
+## ** Bloop Animation
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
-## **[Video Copilot](http://www.videocopilot.net/)**
+## ** Video Copilot
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
@@ -202,21 +202,21 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
-## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
+## ** Mt. Mograph
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
-## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
+## ** Richard Harrington on Lynda
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-## **[Bloop Animation](https://www.bloopanimation.com/)**
+## ** Bloop Animation
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
-## **[Video Copilot](http://www.videocopilot.net/)**
+## ** Video Copilot
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
@@ -288,7 +288,7 @@ In this post, we will go through the best practices of sharing and engaging with
 4. [Reddit](#Reddit)
 5. [Snapchat](#Snapchat)
 
-![ YouTube Social Media Marketing Strategy](https://images.wondershare.com/filmora/article-images/social-media-marketing-tips-for-youtuber.jpg)
+![YouTube Social Media Marketing Strategy](https://images.wondershare.com/filmora/article-images/social-media-marketing-tips-for-youtuber.jpg)
 
 ## Part 1: Instagram for YouTube Channel Marketing
 
@@ -655,7 +655,7 @@ In this post, we will go through the best practices of sharing and engaging with
 4. [Reddit](#Reddit)
 5. [Snapchat](#Snapchat)
 
-![ YouTube Social Media Marketing Strategy](https://images.wondershare.com/filmora/article-images/social-media-marketing-tips-for-youtuber.jpg)
+![YouTube Social Media Marketing Strategy](https://images.wondershare.com/filmora/article-images/social-media-marketing-tips-for-youtuber.jpg)
 
 ## Part 1: Instagram for YouTube Channel Marketing
 
@@ -1022,7 +1022,7 @@ In this post, we will go through the best practices of sharing and engaging with
 4. [Reddit](#Reddit)
 5. [Snapchat](#Snapchat)
 
-![ YouTube Social Media Marketing Strategy](https://images.wondershare.com/filmora/article-images/social-media-marketing-tips-for-youtuber.jpg)
+![YouTube Social Media Marketing Strategy](https://images.wondershare.com/filmora/article-images/social-media-marketing-tips-for-youtuber.jpg)
 
 ## Part 1: Instagram for YouTube Channel Marketing
 
@@ -1389,7 +1389,7 @@ In this post, we will go through the best practices of sharing and engaging with
 4. [Reddit](#Reddit)
 5. [Snapchat](#Snapchat)
 
-![ YouTube Social Media Marketing Strategy](https://images.wondershare.com/filmora/article-images/social-media-marketing-tips-for-youtuber.jpg)
+![YouTube Social Media Marketing Strategy](https://images.wondershare.com/filmora/article-images/social-media-marketing-tips-for-youtuber.jpg)
 
 ## Part 1: Instagram for YouTube Channel Marketing
 

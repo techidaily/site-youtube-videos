@@ -1,7 +1,7 @@
 ---
 title: "A Beginner's Roadmap to Professional Sports Edits for 2024"
-date: 2024-05-25T14:35:14.431Z
-updated: 2024-05-26T14:35:14.431Z
+date: 2024-06-18T20:20:40.291Z
+updated: 2024-06-19T20:20:40.291Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes A Beginner's Roadmap to Professional Sports Edits for 2024"
 excerpt: "This Article Describes A Beginner's Roadmap to Professional Sports Edits for 2024"
 keywords: "\"Sport Edits Basics,Editing Pro Sports,Sports Editing Guide,Entry-Level Sports Edits,Professionals in Sports Editing,Learn Sports Video Editing,Starting in Sports Media\""
-thumbnail: https://www.lifewire.com/thmb/4yyTl7MKn_iYQkYcgHkPBGkXxu4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/kilian-seiler-PZLgTUAhxMM-unsplash-b385dd48498742aea28827a455b88525.jpg
+thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d93382b937c3fa171ed251d1.jpg
 ---
 
 ## A Beginner's Roadmap to Professional Sports Edits

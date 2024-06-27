@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Building Brand Voice via Micro-Business Videos\""
-date: 2024-05-25T15:27:53.615Z
-updated: 2024-05-26T15:27:53.615Z
+date: 2024-06-18T20:20:49.412Z
+updated: 2024-06-19T20:20:49.412Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes In 2024, Building Brand Voice via Micro-Business Videos\""
 excerpt: "\"This Article Describes In 2024, Building Brand Voice via Micro-Business Videos\""
 keywords: "\"Brand Voice Video,Micro-Biz Videography,Business Video Marketing,Brand Messaging Videos,Small Business Video SEO,Personalized B2C Content,Micro-Entrepreneurship Media\""
-thumbnail: https://www.lifewire.com/thmb/b330Mnk6vZGwaEimuQ0G_x3mqEU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Elix1-638163802c12449092ca16520ba4ed38.jpeg
+thumbnail: https://thmb.techidaily.com/ce2b50426ded5a960fb87586d9bc144c1e1a55defefae42789a30b646b9173fc.jpeg
 ---
 
 ## Building Brand Voice via Micro-Business Videos

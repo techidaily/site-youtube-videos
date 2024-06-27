@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Easy Ways to Make a Great Educational Video for YouTube"
-date: 2024-05-25T16:48:40.315Z
-updated: 2024-05-26T16:48:40.315Z
+date: 2024-06-18T20:20:28.038Z
+updated: 2024-06-19T20:20:28.038Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Easy Ways to Make a Great Educational Video for YouTube"
 excerpt: "This Article Describes [Updated] Easy Ways to Make a Great Educational Video for YouTube"
 keywords: "\"EdU-Video Tips,YouTube Education Guide,Making Learn Videos,Edu-Content Creation,DIY Educational Video,Video Learning Techniques,Engaging Classroom Media\""
-thumbnail: https://www.lifewire.com/thmb/NBwiI6AH5El53IKCtSsUfefLky8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-see-who-saved-your-instagram-posts-featured-d055adfad63f4a169f319a1206b85990.jpg
+thumbnail: https://thmb.techidaily.com/f8d47de4a877c211227285c8800b3d072256df0cc496e2d703aa2d22ca712f5b.jpg
 ---
 
 ## The Ultimate Playbook to Create Compelling YouTube Educational Videos

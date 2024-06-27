@@ -1,7 +1,7 @@
 ---
 title: "Crafting Powerful Thumbnails with Top 20 Font Options"
-date: 2024-05-25T14:53:41.629Z
-updated: 2024-05-26T14:53:41.629Z
+date: 2024-06-18T20:20:49.370Z
+updated: 2024-06-19T20:20:49.370Z
 tags:
   - ai video
   - ai youtube
@@ -659,13 +659,13 @@ You can use a plugin called [VidIQ](https://vidiq.com/)to see the keyword score 
 
 If you’re playing Fortnite, and your keyword is simply “Fortnite” you’re using a highly searched term, but the competition is very high as well. The odds of your ranking is incredibly tough as the overall keyword score is 61/100.
 
-![ Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-1.jpg)
+![Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-1.jpg)
 
 However, if you focus on a more specific aspect of the game to make a video around, such as a character, you can heighten your chance at being discovered.
 
 Take the example below, where I added the keyword “Striker” to the search. Its overall keyword score is 87/100, that’s 26 points better in the keyword score, compared to just “Fortnite.”
 
-![ Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-2.jpg)
+![Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-2.jpg)
 
 This will help you identify the content you should be making and then use that keyword knowledge to write a good title and a list of 5-15 tags.
 
@@ -1001,13 +1001,13 @@ You can use a plugin called [VidIQ](https://vidiq.com/)to see the keyword score 
 
 If you’re playing Fortnite, and your keyword is simply “Fortnite” you’re using a highly searched term, but the competition is very high as well. The odds of your ranking is incredibly tough as the overall keyword score is 61/100.
 
-![ Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-1.jpg)
+![Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-1.jpg)
 
 However, if you focus on a more specific aspect of the game to make a video around, such as a character, you can heighten your chance at being discovered.
 
 Take the example below, where I added the keyword “Striker” to the search. Its overall keyword score is 87/100, that’s 26 points better in the keyword score, compared to just “Fortnite.”
 
-![ Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-2.jpg)
+![Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-2.jpg)
 
 This will help you identify the content you should be making and then use that keyword knowledge to write a good title and a list of 5-15 tags.
 
@@ -1343,13 +1343,13 @@ You can use a plugin called [VidIQ](https://vidiq.com/)to see the keyword score 
 
 If you’re playing Fortnite, and your keyword is simply “Fortnite” you’re using a highly searched term, but the competition is very high as well. The odds of your ranking is incredibly tough as the overall keyword score is 61/100.
 
-![ Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-1.jpg)
+![Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-1.jpg)
 
 However, if you focus on a more specific aspect of the game to make a video around, such as a character, you can heighten your chance at being discovered.
 
 Take the example below, where I added the keyword “Striker” to the search. Its overall keyword score is 87/100, that’s 26 points better in the keyword score, compared to just “Fortnite.”
 
-![ Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-2.jpg)
+![Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-2.jpg)
 
 This will help you identify the content you should be making and then use that keyword knowledge to write a good title and a list of 5-15 tags.
 
@@ -1685,13 +1685,13 @@ You can use a plugin called [VidIQ](https://vidiq.com/)to see the keyword score 
 
 If you’re playing Fortnite, and your keyword is simply “Fortnite” you’re using a highly searched term, but the competition is very high as well. The odds of your ranking is incredibly tough as the overall keyword score is 61/100.
 
-![ Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-1.jpg)
+![Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-1.jpg)
 
 However, if you focus on a more specific aspect of the game to make a video around, such as a character, you can heighten your chance at being discovered.
 
 Take the example below, where I added the keyword “Striker” to the search. Its overall keyword score is 87/100, that’s 26 points better in the keyword score, compared to just “Fortnite.”
 
-![ Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-2.jpg)
+![Optimize Gaming Channel with VidIQ](https://images.wondershare.com/filmora/article-images/optimize-youtube-gaming-seo-with-vidiq-2.jpg)
 
 This will help you identify the content you should be making and then use that keyword knowledge to write a good title and a list of 5-15 tags.
 

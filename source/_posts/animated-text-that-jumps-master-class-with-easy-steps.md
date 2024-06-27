@@ -1,7 +1,7 @@
 ---
 title: "\"Animated Text That Jumps  Master Class with Easy Steps\""
-date: 2024-05-25T14:39:22.459Z
-updated: 2024-05-26T14:39:22.459Z
+date: 2024-06-18T20:20:33.964Z
+updated: 2024-06-19T20:20:33.964Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Animated Text That Jumps: Master Class with Easy Steps\""
 excerpt: "\"This Article Describes Animated Text That Jumps: Master Class with Easy Steps\""
 keywords: "Animation Tutorial,Animated Text Guide,Text Motion Lessons,Dynamic Text Design,Interactive Typography,Jumping Text Technique,Easy Animated Text"
-thumbnail: https://www.lifewire.com/thmb/pTaAXs0PqfKWBZavrIqqgPFC5FI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001_how-to-cancel-paramount-plus-908b2e919d7a49d180fe50992382749a.jpg
+thumbnail: https://thmb.techidaily.com/5ab9533fc8b349be19f63e7cbad029dfd19e210f57907497c693bf48b201e0ff.jpg
 ---
 
 ## Animated Text That Jumps: Master Class with Easy Steps

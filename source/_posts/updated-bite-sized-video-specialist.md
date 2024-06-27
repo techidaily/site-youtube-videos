@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Bite-Sized Video Specialist\""
-date: 2024-05-25T16:39:00.573Z
-updated: 2024-05-26T16:39:00.573Z
+date: 2024-06-18T20:20:41.607Z
+updated: 2024-06-19T20:20:41.607Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [Updated] Bite-Sized Video Specialist\""
 excerpt: "\"This Article Describes [Updated] Bite-Sized Video Specialist\""
 keywords: "\"Bite Size Videos,Video Tutorials,Quick Learn Videos,Learning Vids,Mini Lessons Online,Short Video Skills,Easy-to-Consume Content\""
-thumbnail: https://www.lifewire.com/thmb/4MzQVD7hvg3LqrJguvtCUGY_xnA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-990620130-ec2a7076e3f043bfa4f540b72d2034c6.jpg
+thumbnail: https://thmb.techidaily.com/122b9bb2737079496d6a2d69ef766a3b3b8a091bd4f5906c27990e96a64caabf.jpg
 ---
 
 ## Bite-Sized Video Specialist

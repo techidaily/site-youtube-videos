@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Effective YouTube Thumbnails & Banners"
-date: 2024-05-25T16:43:49.825Z
-updated: 2024-05-26T16:43:49.825Z
+date: 2024-06-18T20:20:28.134Z
+updated: 2024-06-19T20:20:28.134Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Crafting Effective YouTube Thumbnails & Banners"
 excerpt: "This Article Describes [Updated] Crafting Effective YouTube Thumbnails & Banners"
 keywords: "YouTubThumbnailDesign,EngagingBannerCreation,VideoTitleOptimization,VisualContentImpact,ThumbnailVisualsEffect,BannerImageCrafting,VideoGraphicsEnhancement"
-thumbnail: https://www.lifewire.com/thmb/CJ67ETb2O4uuEo78S2gUHwX4efQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TheWolfAmongUsBigby-793544cded2749488ae1d20113d8d73a.jpg
+thumbnail: https://thmb.techidaily.com/b50fe0cbd9cbb19ed8809a46e26fef3c1e35eecf8f5029c9276b28fff4f6f7be.jpg
 ---
 
 ## Crafting Effective YouTube Thumbnails & Banners

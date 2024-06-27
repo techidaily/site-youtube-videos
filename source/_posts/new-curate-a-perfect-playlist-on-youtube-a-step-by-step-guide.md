@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Curate a Perfect Playlist on YouTube  A Step-by-Step Guide\""
-date: 2024-06-10T00:24:48.887Z
-updated: 2024-06-11T00:24:48.887Z
+date: 2024-06-18T20:20:37.102Z
+updated: 2024-06-19T20:20:37.102Z
 tags:
   - ai video
   - ai youtube
@@ -62,7 +62,7 @@ Step2 Now, hit the **"Ctrl + Shift + J"** keys on Windows or the **"Command + Op
 
 Step3 Copy and paste the following lines of the script at the end of the line under the Console tab where the cursor is blinking.
 
-setInterval(function () { document.querySelector('#primary button\[aria-label="Action menu"\]').click(); var things = document.evaluate( '//span\[contains(text(),"Remove from")\]', document, null, XPathResult.ORDERED\_NODE\_SNAPSHOT\_TYPE, null ); for (var i = 0; i < things.snapshotLength; i++) { things.snapshotItem(i).click(); } }, 1000);
+setInterval(function () { document.querySelector('#primary button\[aria-label="Action menu"\]').click(); var things = document.evaluate('//span\[contains(text(),"Remove from")\]', document, null, XPathResult.ORDERED\_NODE\_SNAPSHOT\_TYPE, null ); for (var i = 0; i < things.snapshotLength; i++) { things.snapshotItem(i).click(); } }, 1000);
 
 Step4 In the last step, hit the **"Enter"** key to clear the Watch Later Playlist on YouTube. However, the process may take some time, depending on the number of videos in your playlist.
 
@@ -177,7 +177,7 @@ It is important to have the right intro maker to create impressive video intros.
 * **[Part 1: An Easier Way to Make YouTube Video Intro with iMovie Alternative](#part1)**
 * **[Part 2: How to Make YouTube Video Intro in iMovie (step-by-step)](#part2)**
 
-## Part 1: How to Make a Video Intro Using an iMovie Alternative - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+## Part 1: How to Make a Video Intro Using an iMovie Alternative - Wondershare Filmora
 
 While iMovie is a dynamic tool to make a high-impact intro, you can actually find it a little complicated to follow through with all the options and buttons on the interface to complete the process.
 
@@ -198,7 +198,7 @@ If the tutorial above is not enough for you, you can refer to the steps (for Mac
 
 **Step 1.** Simply drag and drop your intro clip to the media library.
 
-![filmora9 mac import ](https://images.wondershare.com/filmora/article-images/filmora9-mac-import.png)
+![filmora9 mac import](https://images.wondershare.com/filmora/article-images/filmora9-mac-import.png)
 
 **Step 2.** Add your video to the timeline and go to the **Effects** tab to apply a great effect (such as the Filter 007 series) to your intro clip.
 
@@ -267,7 +267,7 @@ It is important to have the right intro maker to create impressive video intros.
 * **[Part 1: An Easier Way to Make YouTube Video Intro with iMovie Alternative](#part1)**
 * **[Part 2: How to Make YouTube Video Intro in iMovie (step-by-step)](#part2)**
 
-## Part 1: How to Make a Video Intro Using an iMovie Alternative - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+## Part 1: How to Make a Video Intro Using an iMovie Alternative - Wondershare Filmora
 
 While iMovie is a dynamic tool to make a high-impact intro, you can actually find it a little complicated to follow through with all the options and buttons on the interface to complete the process.
 
@@ -288,7 +288,7 @@ If the tutorial above is not enough for you, you can refer to the steps (for Mac
 
 **Step 1.** Simply drag and drop your intro clip to the media library.
 
-![filmora9 mac import ](https://images.wondershare.com/filmora/article-images/filmora9-mac-import.png)
+![filmora9 mac import](https://images.wondershare.com/filmora/article-images/filmora9-mac-import.png)
 
 **Step 2.** Add your video to the timeline and go to the **Effects** tab to apply a great effect (such as the Filter 007 series) to your intro clip.
 
@@ -357,7 +357,7 @@ It is important to have the right intro maker to create impressive video intros.
 * **[Part 1: An Easier Way to Make YouTube Video Intro with iMovie Alternative](#part1)**
 * **[Part 2: How to Make YouTube Video Intro in iMovie (step-by-step)](#part2)**
 
-## Part 1: How to Make a Video Intro Using an iMovie Alternative - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+## Part 1: How to Make a Video Intro Using an iMovie Alternative - Wondershare Filmora
 
 While iMovie is a dynamic tool to make a high-impact intro, you can actually find it a little complicated to follow through with all the options and buttons on the interface to complete the process.
 
@@ -378,7 +378,7 @@ If the tutorial above is not enough for you, you can refer to the steps (for Mac
 
 **Step 1.** Simply drag and drop your intro clip to the media library.
 
-![filmora9 mac import ](https://images.wondershare.com/filmora/article-images/filmora9-mac-import.png)
+![filmora9 mac import](https://images.wondershare.com/filmora/article-images/filmora9-mac-import.png)
 
 **Step 2.** Add your video to the timeline and go to the **Effects** tab to apply a great effect (such as the Filter 007 series) to your intro clip.
 
@@ -447,7 +447,7 @@ It is important to have the right intro maker to create impressive video intros.
 * **[Part 1: An Easier Way to Make YouTube Video Intro with iMovie Alternative](#part1)**
 * **[Part 2: How to Make YouTube Video Intro in iMovie (step-by-step)](#part2)**
 
-## Part 1: How to Make a Video Intro Using an iMovie Alternative - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+## Part 1: How to Make a Video Intro Using an iMovie Alternative - Wondershare Filmora
 
 While iMovie is a dynamic tool to make a high-impact intro, you can actually find it a little complicated to follow through with all the options and buttons on the interface to complete the process.
 
@@ -468,7 +468,7 @@ If the tutorial above is not enough for you, you can refer to the steps (for Mac
 
 **Step 1.** Simply drag and drop your intro clip to the media library.
 
-![filmora9 mac import ](https://images.wondershare.com/filmora/article-images/filmora9-mac-import.png)
+![filmora9 mac import](https://images.wondershare.com/filmora/article-images/filmora9-mac-import.png)
 
 **Step 2.** Add your video to the timeline and go to the **Effects** tab to apply a great effect (such as the Filter 007 series) to your intro clip.
 

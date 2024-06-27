@@ -1,7 +1,7 @@
 ---
 title: "Understanding the Core of ASMR Media"
-date: 2024-05-25T16:30:55.435Z
-updated: 2024-05-26T16:30:55.435Z
+date: 2024-06-18T20:20:50.751Z
+updated: 2024-06-19T20:20:50.751Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Understanding the Core of ASMR Media"
 excerpt: "This Article Describes Understanding the Core of ASMR Media"
 keywords: "ASMR Fundamentals,Core ASMR Concepts,ASMR Essence,Basic ASMR Knowledge,ASMR Principles,ASMR At Its Root,ASMR Basics Explored"
-thumbnail: https://www.lifewire.com/thmb/dUT4PgROTFbL62vW7fTE8PtcF7k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-fix-it-when-theres-no-sound-on-fire-stick-f248a020eb424349acc82c507c4e958e.jpg
+thumbnail: https://thmb.techidaily.com/c67c5cabd77bd497290dc569fa7f62d814f0daa9ae95d19e4c91539b2a1b2dd0.jpg
 ---
 
 ## Understanding the Core of ASMR Media

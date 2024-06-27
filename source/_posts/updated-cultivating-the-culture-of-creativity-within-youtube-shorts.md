@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Cultivating the Culture of Creativity Within YouTube Shorts"
-date: 2024-05-25T16:44:40.682Z
-updated: 2024-05-26T16:44:40.682Z
+date: 2024-06-18T20:20:48.127Z
+updated: 2024-06-19T20:20:48.127Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Cultivating the Culture of Creativity Within YouTube Shorts"
 excerpt: "This Article Describes [Updated] Cultivating the Culture of Creativity Within YouTube Shorts"
 keywords: "YouTuber Creativity Tips,Creative Video Making,Innovation in Vid Shorts,Idea Generation YT,Short Form Video Crafting,Vids and Originality Boost,Cultivating Content Spark"
-thumbnail: https://www.lifewire.com/thmb/AvFsoKTttswUkdcOQKuJ7hslpaQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/phoneinairplanemode-4cf424c7f7cf4366853c8100d57275cc.jpeg
+thumbnail: https://thmb.techidaily.com/df2009c639407c10216adf3ab20aeaa652a10152c64c0456c40360dd20bfbffb.jpeg
 ---
 
 ## Cultivating the Culture of Creativity Within YouTube Shorts

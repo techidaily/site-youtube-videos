@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Breaking Down the Elements of a YouTube Shorts Template\""
-date: 2024-05-25T17:00:16.400Z
-updated: 2024-05-26T17:00:16.400Z
+date: 2024-06-18T20:20:37.826Z
+updated: 2024-06-19T20:20:37.826Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Breaking Down the Elements of a YouTube Shorts Template\""
 excerpt: "\"This Article Describes 2024 Approved: Breaking Down the Elements of a YouTube Shorts Template\""
 keywords: "YouTuber Shorts Template Basics,Creating Video Snippets,Shortform Content Tips,Engaging Youtube Shorts,Crafting Video Outlines,YouTube Short Format Guide,Ideas for Short Videos"
-thumbnail: https://www.lifewire.com/thmb/nG8znENmZlPqp3nXQ3OVGHtAuTY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ResetBluetoothSpeakers-8674445ab04249b38247295f5176707c.jpeg
+thumbnail: https://thmb.techidaily.com/4bb09ddf21259f8aa35372dd3bddaab5a52e4c2f70a7e62b027db40747b04fa4.jpeg
 ---
 
 ## Breaking Down the Elements of a YouTube Shorts Template

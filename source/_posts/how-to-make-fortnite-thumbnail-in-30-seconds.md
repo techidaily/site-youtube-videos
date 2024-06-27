@@ -1,7 +1,7 @@
 ---
 title: "How to Make Fortnite Thumbnail in 30 Seconds"
-date: 2024-05-25T15:19:56.481Z
-updated: 2024-05-26T15:19:56.481Z
+date: 2024-06-18T20:20:25.992Z
+updated: 2024-06-19T20:20:25.992Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes How to Make Fortnite Thumbnail in 30 Seconds"
 excerpt: "This Article Describes How to Make Fortnite Thumbnail in 30 Seconds"
 keywords: "Fortnite Tiled Art,Quick Fortnite Thumbnails,Fortnight Icon Creation,Fast Thumbnail Design,Thumbnail Making Guide,Efficient Fortnite Image,Speedy Game Snapshot"
-thumbnail: https://www.lifewire.com/thmb/UCCJI6MO1FwbR0mTqx5aB-FS3_0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-add-tiktok-filters-and-effects-f3c195b2fe1449cb8b2906eea3305b22.jpg
+thumbnail: https://thmb.techidaily.com/b35a9a46671dd373ee6fb76f2e7c8c289a52fdab2f2b7f6dd74a2f0921700773.jpg
 ---
 
 ## How to Make Fortnite Thumbnail in 30 Seconds

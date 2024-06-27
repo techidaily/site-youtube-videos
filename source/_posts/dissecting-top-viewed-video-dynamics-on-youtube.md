@@ -1,7 +1,7 @@
 ---
 title: "\"Dissecting Top-Viewed Video Dynamics on YouTube\""
-date: 2024-05-25T15:00:38.412Z
-updated: 2024-05-26T15:00:38.412Z
+date: 2024-06-18T20:20:24.885Z
+updated: 2024-06-19T20:20:24.885Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Dissecting Top-Viewed Video Dynamics on YouTube\""
 excerpt: "\"This Article Describes Dissecting Top-Viewed Video Dynamics on YouTube\""
 keywords: "Top Viewed YouTube Trends,YouTube Popular Videos,Viral Video Analysis,YouTube Insights Breakdown,Peak Content YouTube Study,Engaging YouTube Clips,High Traffic YouTube Charts"
-thumbnail: https://www.lifewire.com/thmb/ouXJb0p8iu69MptAZaPa-CTAUMg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/relaxing-while-getting-his-studies-done-495857099-5a1ed8c5ec2f640037e369f4.jpg
+thumbnail: https://thmb.techidaily.com/8f59b16f9ed7024a23cc6f18f766904b6f418e4c5b8df6a84d93cf668a943550.jpg
 ---
 
 ## Dissecting Top-Viewed Video Dynamics on YouTube

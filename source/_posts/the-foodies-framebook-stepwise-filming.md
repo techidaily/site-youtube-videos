@@ -1,7 +1,7 @@
 ---
 title: "\"The Foodie's Framebook  Stepwise Filming\""
-date: 2024-05-25T16:23:44.439Z
-updated: 2024-05-26T16:23:44.439Z
+date: 2024-06-18T20:20:19.611Z
+updated: 2024-06-19T20:20:19.611Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes The Foodie's Framebook: Stepwise Filming\""
 excerpt: "\"This Article Describes The Foodie's Framebook: Stepwise Filming\""
 keywords: "Foodie Secrets,Film Culinary Guide,Recipe Shooting Steps,Gourmet Photography Tips,Eating Art Frames,Chef Filming Methods,Edible Shots Techniques"
-thumbnail: https://www.lifewire.com/thmb/Gkr3gE8eLg0SUe5WeaWd97Kesj8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/BlondyBaruti-050621-024RTMini-c837c508205440e7926b69bad55754c0.jpg
+thumbnail: https://thmb.techidaily.com/d0e21788f29958fdaba0fdac4398d13da9177082545009c2bddd22992fae44fc.jpg
 ---
 
 ## The Foodie's Framebook: Stepwise Filming
