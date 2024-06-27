@@ -1,7 +1,7 @@
 ---
 title: "Essential Thumbnail Strategies for Amplifying Viewership on YouTube for 2024"
-date: 2024-05-25T15:11:59.698Z
-updated: 2024-05-26T15:11:59.698Z
+date: 2024-06-26T14:17:02.128Z
+updated: 2024-06-27T14:17:02.128Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "This Article Describes Essential Thumbnail Strategies for Amplifying Viewership on YouTube for 2024"
 excerpt: "This Article Describes Essential Thumbnail Strategies for Amplifying Viewership on YouTube for 2024"
 keywords: "YouTube Thumbnails,Thumbnail Impact,Viewer Engagement,Video Attractors,Image Optimization,Content Preview,Viewership Growth"
-thumbnail: https://www.lifewire.com/thmb/4tUkHI9DMwB9qvnmAkwvCvX7ps8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GIF-Gallery-Instagram-iPhone-8635408-3bc01cb02a56401883d0b483d91a57f0.jpg
+thumbnail: https://thmb.techidaily.com/3b273f3dcd58de6bdeec53afcf9be971cffb1887a1cf9aa58c2806ddb93b59d9.jpg
 ---
 
 ## Essential Thumbnail Strategies for Amplifying Viewership on YouTube
 
-# How to Make Video Thumbnails for YouTube
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Make Video Thumbnails for YouTube ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -298,9 +296,7 @@ Follow @Richard Bennett
 
 ## How to Create Animated Bouncing Text
 
-# How to Create Animated Bouncing Text
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Create Animated Bouncing Text ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Efficient Mac Video Resizing to Fixed Ratio"
-date: 2024-05-25T16:04:29.966Z
-updated: 2024-05-26T16:04:29.966Z
+date: 2024-06-26T14:16:37.816Z
+updated: 2024-06-27T14:16:37.816Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "This Article Describes [New] Efficient Mac Video Resizing to Fixed Ratio"
 excerpt: "This Article Describes [New] Efficient Mac Video Resizing to Fixed Ratio"
 keywords: "Mac Video Scaling,Fix Resolution,Image Ratios,Aspect Ratio Adjust,HD Conversion,Dimension Optimize,File Size Reduce"
-thumbnail: https://www.lifewire.com/thmb/sVGkEbiFDip9BtkN-YUciN9QN0Y=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Internet-Explorer-56a6c3ec3df78cf7728fee70.png
+thumbnail: https://thmb.techidaily.com/a7b063e2c5f1e938dc6e32e2ce85c52239dfc8e7739a5c0ead2c07ab91e735b6.png
 ---
 
 ## Efficient Mac Video Resizing to Fixed Ratio
 
-# Quick Resize YouTube Videos to Right Aspect Ratio on Mac
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# Quick Resize YouTube Videos to Right Aspect Ratio on Mac ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

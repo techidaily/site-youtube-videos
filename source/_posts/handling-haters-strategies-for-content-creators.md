@@ -1,7 +1,7 @@
 ---
 title: "\"Handling Haters  Strategies for Content Creators\""
-date: 2024-05-25T15:18:00.493Z
-updated: 2024-05-26T15:18:00.493Z
+date: 2024-06-26T14:16:52.146Z
+updated: 2024-06-27T14:16:52.146Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes Handling Haters: Strategies for Content Creators\""
 excerpt: "\"This Article Describes Handling Haters: Strategies for Content Creators\""
 keywords: "Handling Critics,Tact Against Haters,Overcoming Negativity,Countering Disapproval,Defeating Detractors,Resilience to Criticism,Content Success Against Haters"
-thumbnail: https://www.lifewire.com/thmb/yHkyJCv7NzcrTvyeTs0p9AD-mYQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/BigBlue_SolarCharges_28WSolarCharger_HeroSquare-9219cf80ed144cd98846e86006478f65.jpg
+thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea34aa4ab5faa41249fabd55a.jpg
 ---
 
 ## Handling Haters: Strategies for Content Creators
 
-# How To Deal with YouTube Trolls and Negative Comments
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Deal with YouTube Trolls and Negative Comments ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -194,9 +192,7 @@ Follow @Richard Bennett
 
 ## Shocking Stats: Mind-Bending Youtube Visual Facts ('17)
 
-# Infographic - Mind Numbing YouTube Facts,Figures and Statistics
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Infographic - Mind Numbing YouTube Facts,Figures and Statistics ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

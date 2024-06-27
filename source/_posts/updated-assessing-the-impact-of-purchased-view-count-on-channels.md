@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Assessing the Impact of Purchased View Count on Channels"
-date: 2024-05-25T16:37:12.492Z
-updated: 2024-05-26T16:37:12.492Z
+date: 2024-06-26T14:16:59.392Z
+updated: 2024-06-27T14:16:59.392Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Assessing the Impact of Purchased View Count on Channels"
 excerpt: "This Article Describes [Updated] Assessing the Impact of Purchased View Count on Channels"
 keywords: "Viewer Influence Analysis,View Count Value Assessment,Channel Impact Evaluation,View Metrics Relevance,Purchased Views Effect,Advertising View Tracking,Audience Engagement Gauge"
-thumbnail: https://www.lifewire.com/thmb/crqf7aw9F6RC6VSVWVhQdSAcGQg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/duet-c82ee94b39e24788bcfd51d1eea24288.jpg
+thumbnail: https://thmb.techidaily.com/cc4de72d7f182f924611ffcdd9be6d67698446b35913acbf3e4fc8c5af445646.jpg
 ---
 
 ## Assessing the Impact of Purchased View Count on Channels
@@ -562,9 +562,7 @@ No. After a service provider has sent out the likes, they don't have a way to ta
 
 ## Secrets to Standout Final Scenes on YT Platforms
 
-# How to Add YouTube End Screen and Cards Effectively
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Add YouTube End Screen and Cards Effectively ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

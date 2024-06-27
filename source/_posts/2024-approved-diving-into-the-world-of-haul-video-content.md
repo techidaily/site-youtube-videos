@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Diving Into the World of Haul Video Content\""
-date: 2024-05-25T14:28:13.329Z
-updated: 2024-05-26T14:28:13.329Z
+date: 2024-06-26T14:16:52.746Z
+updated: 2024-06-27T14:16:52.746Z
 tags:
   - ai video
   - ai youtube
@@ -66,33 +66,23 @@ And since we're very much intrigued by the glorifying fast fashion, excessive ma
 
 Admit it; we gather most of our fashion inspiration from celebrities or YouTubers who know what’s cooking in the fashion scenes. They've become trendsetters, and thus we follow in their footsteps as all of us want to look great, which is why we've culled up a shortlist of YouTubers who you can follow for your seasonal or daily fashion or beauty inspiration! So, read on and put your glam on!
 
-### 1. [Tanya Burr](https://www.youtube.com/channel/UCrIIH7yHQugaUuoTZDoEUuQ)
-
-![tanya burr try on haul](https://images.wondershare.com/filmora/article-images/2021/tanya-burr-try-on-haul.jpg)
+### 1. Tanya Burr ![tanya burr try on haul](https://images.wondershare.com/filmora/article-images/2021/tanya-burr-try-on-haul.jpg)
 
 Tanya is a UK-based influencer who continuously posts all you need to know about fashion and makeup. Her sense of style, comfy outfits, and easy-going personality will surely attract you and give you a good idea of some unique international brands as well.
 
-### 2. [Heli Ved](https://www.youtube.com/channel/UCUBIoaYtssJMnp5WiN9WF-g)
-
-![heli ved haul videos](https://images.wondershare.com/filmora/article-images/2021/heli-ved-haul-videos.jpg)
+### 2. Heli Ved ![heli ved haul videos](https://images.wondershare.com/filmora/article-images/2021/heli-ved-haul-videos.jpg)
 
 With her tons of try-on-haul videos and vlogs, she will entertain you like no other. A lively diva who preaches fashion, style, shopping, and much more.
 
-### 3. [Debasree Banerjee](https://www.youtube.com/user/apmir12)
-
-![debasree banerjee haul videos](https://images.wondershare.com/filmora/article-images/2021/debasree-banerjee-haul-videos.jpg)
+### 3. Debasree Banerjee ![debasree banerjee haul videos](https://images.wondershare.com/filmora/article-images/2021/debasree-banerjee-haul-videos.jpg)
 
 This YouTuber can be your long-distance shopping and makeup partner by showing you a diverse range of products that’ll suit you best, from high-end styles to skincare basics.
 
-### 4. [Kathleen Lights](https://www.youtube.com/watch?v=P%5Fac3y4BSxU)
-
-![Kathleen lights haul videos](https://images.wondershare.com/filmora/article-images/2021/kathleen-lights-haul-videos.jpg)
+### 4. Kathleen Lights ![Kathleen lights haul videos](https://images.wondershare.com/filmora/article-images/2021/kathleen-lights-haul-videos.jpg)
 
 Kathleen is a 22-year-old beauty Youtuber who discusses everything from comparisons to product reviews to collection videos and entire product hauls.
 
-### 5. [Alexandra Garza](https://www.youtube.com/channel/UCXPOAAerLDAqb5pbuVbTbsA)
-
-![alexandra garza haul](https://images.wondershare.com/filmora/article-images/2021/alexandra-garza-haul.jpg)
+### 5. Alexandra Garza ![alexandra garza haul](https://images.wondershare.com/filmora/article-images/2021/alexandra-garza-haul.jpg)
 
 Alex Garza is a licensed cosmetologist, and she also works as a makeup artist for Benefit Cosmetics. Her channel features a cornucopia of reviews, haul videos, tutorials, and even wedding advice.
 
@@ -132,11 +122,9 @@ Within the new era of Filmora! Wondershare Filmora X is here with features like 
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 ### 6. Share among social network
 
@@ -188,33 +176,23 @@ And since we're very much intrigued by the glorifying fast fashion, excessive ma
 
 Admit it; we gather most of our fashion inspiration from celebrities or YouTubers who know what’s cooking in the fashion scenes. They've become trendsetters, and thus we follow in their footsteps as all of us want to look great, which is why we've culled up a shortlist of YouTubers who you can follow for your seasonal or daily fashion or beauty inspiration! So, read on and put your glam on!
 
-### 1. [Tanya Burr](https://www.youtube.com/channel/UCrIIH7yHQugaUuoTZDoEUuQ)
-
-![tanya burr try on haul](https://images.wondershare.com/filmora/article-images/2021/tanya-burr-try-on-haul.jpg)
+### 1. Tanya Burr ![tanya burr try on haul](https://images.wondershare.com/filmora/article-images/2021/tanya-burr-try-on-haul.jpg)
 
 Tanya is a UK-based influencer who continuously posts all you need to know about fashion and makeup. Her sense of style, comfy outfits, and easy-going personality will surely attract you and give you a good idea of some unique international brands as well.
 
-### 2. [Heli Ved](https://www.youtube.com/channel/UCUBIoaYtssJMnp5WiN9WF-g)
-
-![heli ved haul videos](https://images.wondershare.com/filmora/article-images/2021/heli-ved-haul-videos.jpg)
+### 2. Heli Ved ![heli ved haul videos](https://images.wondershare.com/filmora/article-images/2021/heli-ved-haul-videos.jpg)
 
 With her tons of try-on-haul videos and vlogs, she will entertain you like no other. A lively diva who preaches fashion, style, shopping, and much more.
 
-### 3. [Debasree Banerjee](https://www.youtube.com/user/apmir12)
-
-![debasree banerjee haul videos](https://images.wondershare.com/filmora/article-images/2021/debasree-banerjee-haul-videos.jpg)
+### 3. Debasree Banerjee ![debasree banerjee haul videos](https://images.wondershare.com/filmora/article-images/2021/debasree-banerjee-haul-videos.jpg)
 
 This YouTuber can be your long-distance shopping and makeup partner by showing you a diverse range of products that’ll suit you best, from high-end styles to skincare basics.
 
-### 4. [Kathleen Lights](https://www.youtube.com/watch?v=P%5Fac3y4BSxU)
-
-![Kathleen lights haul videos](https://images.wondershare.com/filmora/article-images/2021/kathleen-lights-haul-videos.jpg)
+### 4. Kathleen Lights ![Kathleen lights haul videos](https://images.wondershare.com/filmora/article-images/2021/kathleen-lights-haul-videos.jpg)
 
 Kathleen is a 22-year-old beauty Youtuber who discusses everything from comparisons to product reviews to collection videos and entire product hauls.
 
-### 5. [Alexandra Garza](https://www.youtube.com/channel/UCXPOAAerLDAqb5pbuVbTbsA)
-
-![alexandra garza haul](https://images.wondershare.com/filmora/article-images/2021/alexandra-garza-haul.jpg)
+### 5. Alexandra Garza ![alexandra garza haul](https://images.wondershare.com/filmora/article-images/2021/alexandra-garza-haul.jpg)
 
 Alex Garza is a licensed cosmetologist, and she also works as a makeup artist for Benefit Cosmetics. Her channel features a cornucopia of reviews, haul videos, tutorials, and even wedding advice.
 
@@ -254,11 +232,9 @@ Within the new era of Filmora! Wondershare Filmora X is here with features like 
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 ### 6. Share among social network
 
@@ -310,33 +286,23 @@ And since we're very much intrigued by the glorifying fast fashion, excessive ma
 
 Admit it; we gather most of our fashion inspiration from celebrities or YouTubers who know what’s cooking in the fashion scenes. They've become trendsetters, and thus we follow in their footsteps as all of us want to look great, which is why we've culled up a shortlist of YouTubers who you can follow for your seasonal or daily fashion or beauty inspiration! So, read on and put your glam on!
 
-### 1. [Tanya Burr](https://www.youtube.com/channel/UCrIIH7yHQugaUuoTZDoEUuQ)
-
-![tanya burr try on haul](https://images.wondershare.com/filmora/article-images/2021/tanya-burr-try-on-haul.jpg)
+### 1. Tanya Burr ![tanya burr try on haul](https://images.wondershare.com/filmora/article-images/2021/tanya-burr-try-on-haul.jpg)
 
 Tanya is a UK-based influencer who continuously posts all you need to know about fashion and makeup. Her sense of style, comfy outfits, and easy-going personality will surely attract you and give you a good idea of some unique international brands as well.
 
-### 2. [Heli Ved](https://www.youtube.com/channel/UCUBIoaYtssJMnp5WiN9WF-g)
-
-![heli ved haul videos](https://images.wondershare.com/filmora/article-images/2021/heli-ved-haul-videos.jpg)
+### 2. Heli Ved ![heli ved haul videos](https://images.wondershare.com/filmora/article-images/2021/heli-ved-haul-videos.jpg)
 
 With her tons of try-on-haul videos and vlogs, she will entertain you like no other. A lively diva who preaches fashion, style, shopping, and much more.
 
-### 3. [Debasree Banerjee](https://www.youtube.com/user/apmir12)
-
-![debasree banerjee haul videos](https://images.wondershare.com/filmora/article-images/2021/debasree-banerjee-haul-videos.jpg)
+### 3. Debasree Banerjee ![debasree banerjee haul videos](https://images.wondershare.com/filmora/article-images/2021/debasree-banerjee-haul-videos.jpg)
 
 This YouTuber can be your long-distance shopping and makeup partner by showing you a diverse range of products that’ll suit you best, from high-end styles to skincare basics.
 
-### 4. [Kathleen Lights](https://www.youtube.com/watch?v=P%5Fac3y4BSxU)
-
-![Kathleen lights haul videos](https://images.wondershare.com/filmora/article-images/2021/kathleen-lights-haul-videos.jpg)
+### 4. Kathleen Lights ![Kathleen lights haul videos](https://images.wondershare.com/filmora/article-images/2021/kathleen-lights-haul-videos.jpg)
 
 Kathleen is a 22-year-old beauty Youtuber who discusses everything from comparisons to product reviews to collection videos and entire product hauls.
 
-### 5. [Alexandra Garza](https://www.youtube.com/channel/UCXPOAAerLDAqb5pbuVbTbsA)
-
-![alexandra garza haul](https://images.wondershare.com/filmora/article-images/2021/alexandra-garza-haul.jpg)
+### 5. Alexandra Garza ![alexandra garza haul](https://images.wondershare.com/filmora/article-images/2021/alexandra-garza-haul.jpg)
 
 Alex Garza is a licensed cosmetologist, and she also works as a makeup artist for Benefit Cosmetics. Her channel features a cornucopia of reviews, haul videos, tutorials, and even wedding advice.
 
@@ -376,11 +342,9 @@ Within the new era of Filmora! Wondershare Filmora X is here with features like 
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 ### 6. Share among social network
 
@@ -432,33 +396,23 @@ And since we're very much intrigued by the glorifying fast fashion, excessive ma
 
 Admit it; we gather most of our fashion inspiration from celebrities or YouTubers who know what’s cooking in the fashion scenes. They've become trendsetters, and thus we follow in their footsteps as all of us want to look great, which is why we've culled up a shortlist of YouTubers who you can follow for your seasonal or daily fashion or beauty inspiration! So, read on and put your glam on!
 
-### 1. [Tanya Burr](https://www.youtube.com/channel/UCrIIH7yHQugaUuoTZDoEUuQ)
-
-![tanya burr try on haul](https://images.wondershare.com/filmora/article-images/2021/tanya-burr-try-on-haul.jpg)
+### 1. Tanya Burr ![tanya burr try on haul](https://images.wondershare.com/filmora/article-images/2021/tanya-burr-try-on-haul.jpg)
 
 Tanya is a UK-based influencer who continuously posts all you need to know about fashion and makeup. Her sense of style, comfy outfits, and easy-going personality will surely attract you and give you a good idea of some unique international brands as well.
 
-### 2. [Heli Ved](https://www.youtube.com/channel/UCUBIoaYtssJMnp5WiN9WF-g)
-
-![heli ved haul videos](https://images.wondershare.com/filmora/article-images/2021/heli-ved-haul-videos.jpg)
+### 2. Heli Ved ![heli ved haul videos](https://images.wondershare.com/filmora/article-images/2021/heli-ved-haul-videos.jpg)
 
 With her tons of try-on-haul videos and vlogs, she will entertain you like no other. A lively diva who preaches fashion, style, shopping, and much more.
 
-### 3. [Debasree Banerjee](https://www.youtube.com/user/apmir12)
-
-![debasree banerjee haul videos](https://images.wondershare.com/filmora/article-images/2021/debasree-banerjee-haul-videos.jpg)
+### 3. Debasree Banerjee ![debasree banerjee haul videos](https://images.wondershare.com/filmora/article-images/2021/debasree-banerjee-haul-videos.jpg)
 
 This YouTuber can be your long-distance shopping and makeup partner by showing you a diverse range of products that’ll suit you best, from high-end styles to skincare basics.
 
-### 4. [Kathleen Lights](https://www.youtube.com/watch?v=P%5Fac3y4BSxU)
-
-![Kathleen lights haul videos](https://images.wondershare.com/filmora/article-images/2021/kathleen-lights-haul-videos.jpg)
+### 4. Kathleen Lights ![Kathleen lights haul videos](https://images.wondershare.com/filmora/article-images/2021/kathleen-lights-haul-videos.jpg)
 
 Kathleen is a 22-year-old beauty Youtuber who discusses everything from comparisons to product reviews to collection videos and entire product hauls.
 
-### 5. [Alexandra Garza](https://www.youtube.com/channel/UCXPOAAerLDAqb5pbuVbTbsA)
-
-![alexandra garza haul](https://images.wondershare.com/filmora/article-images/2021/alexandra-garza-haul.jpg)
+### 5. Alexandra Garza ![alexandra garza haul](https://images.wondershare.com/filmora/article-images/2021/alexandra-garza-haul.jpg)
 
 Alex Garza is a licensed cosmetologist, and she also works as a makeup artist for Benefit Cosmetics. Her channel features a cornucopia of reviews, haul videos, tutorials, and even wedding advice.
 
@@ -498,11 +452,9 @@ Within the new era of Filmora! Wondershare Filmora X is here with features like 
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 ### 6. Share among social network
 
@@ -526,9 +478,7 @@ Our final verdict is that haul videos are just entertaining to make and fun to w
 
 ## Softening Edges: Strategic Lighting for Content Creators
 
-# Lighting Tips for Vlogging: How to Light
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Lighting Tips for Vlogging: How to Light ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -538,9 +488,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -608,9 +556,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -678,9 +624,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -748,9 +692,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 

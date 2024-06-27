@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Engage, Entertain, Enlighten  Crafting Compelling Live Thumbnails\""
-date: 2024-05-25T14:31:50.605Z
-updated: 2024-05-26T14:31:50.605Z
+date: 2024-06-26T14:16:49.202Z
+updated: 2024-06-27T14:16:49.202Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Engage, Entertain, Enlighten: Crafting Compelling Live Thumbnails\""
 excerpt: "\"This Article Describes 2024 Approved: Engage, Entertain, Enlighten: Crafting Compelling Live Thumbnails\""
 keywords: "Live Thumbnail Crafting,Engaging Live Video,Entertaining Video Teasers,Enlightening Content Preview,Compelling Video Snippets,Thumbnails Attract Viewers,Video Engagement Tips"
-thumbnail: https://www.lifewire.com/thmb/p0ylhoIohfzUUD_zptkk_cS1LaE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zenbook-17-fold-oled-72de5601b7334834a2962b7a8c7b4e9b-16fb2ba97f414911a71ffd37c82c541e.png
+thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32ba37267dd79e6e802f121e2.png
 ---
 
 ## Engage, Entertain, Enlighten: Crafting Compelling Live Thumbnails
@@ -132,9 +132,7 @@ So you now know how to change the live stream thumbnail. There's one more thing 
 
 There are many great YouTube thumbnail makers on the market. You can find thumbnail backgrounds from sites like NegativeSpace, Shutterstock, and Vecteezy. Then, edit them to your liking using photo editing apps. Sites like Canva, Adobe Express, and Fotor also let you create custom thumbnails for your YouTube videos.
 
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is also a great thumbnail maker. You'd like it since it is also a powerful video editor. It is double-purpose! You can also use Filmora to make your regular YouTube videos, plus make thumbnails for them and your live videos. Talk about convenience!
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is also a great thumbnail maker. You'd like it since it is also a powerful video editor. It is double-purpose! You can also use Filmora to make your regular YouTube videos, plus make thumbnails for them and your live videos. Talk about convenience ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
@@ -223,9 +221,7 @@ Add simple text with clear, buld, easy-to-read font.
 
 Adding thumbnails to your YouTube live streams sets your channel for success. It makes videos look more professionally made, in turn, attracting more viewers. So, we recommend always adding thumbnails to your YouTube Live.
 
-For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video editor with touls that can help you make attention-grabbing YouTube thumbnails. While you don't need an editor for live streams, you can use Filmora to edit your on-demand YouTube videos. It's hitting two birds with one stone!
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video editor with touls that can help you make attention-grabbing YouTube thumbnails. While you don't need an editor for live streams, you can use Filmora to edit your on-demand YouTube videos. It's hitting two birds with one stone ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 ### Steps to Make an Amazing YouTube Livestream Thumbnail
 
@@ -362,17 +358,13 @@ Because search engine bots can't watch YouTube videos, they depend on accompanyi
 
 Want to drive more traffic and increase your video views? Here are eleven YouTube SEO tips that will help you to boost your video ranking.
 
-#### 1\. Conduct Keyword Research First
-
-![youtube seo tips - conduct keywords reseaerch first](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-1.png)
+#### 1\. Conduct Keyword Research First ![youtube seo tips - conduct keywords reseaerch first](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-1.png)
 
 When it comes to YouTube SEO, keywords are crucial. YouTube uses these keywords to determine the subject of your video, index the content, and then associate it with what users are searching for. As such, you must add them to certain fields, including description, tags, and title, when you are uploading the video file. YouTube will then get this information and use it to rank your video.
 
 For this reason, you have to know the keywords that best identify your videos and have the potential to attract viewers to your channel.
 
-#### 2\. Use a Good Video Title
-
-![youtube seo tips - video title](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-2.png)
+#### 2\. Use a Good Video Title ![youtube seo tips - video title](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-2.png)
 
 The title of your video is the first thing other people see, and it's what decides whether or not they watch it. Given how important it is, you'll want to make sure that your title accurately reflects the content of your video and includes all relevant keywords.
 
@@ -380,35 +372,25 @@ The title of your video is the first thing other people see, and it's what decid
 
 Each time you publish a new video, make sure you embed it on your website or blog. Not only will this encourage viewers to stay on your website instead of leaving immediately, but it will also make it easier for search engines crawlers to index your website.
 
-#### 4\. Add Tags To The Video Description
-
-![youtube seo tips - add tags to video](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-3.png)
+#### 4\. Add Tags To The Video Description ![youtube seo tips - add tags to video](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-3.png)
 
 When you upload your video, remember to add tags to the "About" section of the page. You can do this by adding some relevant keywords with each tag like you would with blog posts.
 
 When planning your strategy for YouTube keywords, you need to find 10-20 single keyword tags you want to rank for; keep in mind that this platform limits the number of tags users can include in a video. So you should first add the most relevant keyword phrases then include specific multi-word tags that will easily rank on top of search results.
 
-#### 5\. Edit The Filename
-
-![youtube seo tips - edit the file name](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-4.png)
+#### 5\. Edit The Filename ![youtube seo tips - edit the file name](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-4.png)
 
 The filename of your video, or the "video URL," can also affect its rankings. Including keywords in this section will help the crawlers index your video faster, which will increase its chances of ranking higher.
 
-#### 6\. Add Subtitles and Closed Captions
-
-![youtube seo tips - add subtitles and closed captions](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-5.png)
+#### 6\. Add Subtitles and Closed Captions ![youtube seo tips - add subtitles and closed captions](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-5.png)
 
 Adding subtitles and closed captions to your videos is also a good idea, especially if you want the video's ranking and viewership to improve. Subtitles make it easier for new viewers to understand your videos, especially if your audience comes from different linguistic backgrounds.
 
-#### 7\. Select Video Category
-
-![youtube seo tips - select video category](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-6.png)
+#### 7\. Select Video Category ![youtube seo tips - select video category](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-6.png)
 
 When uploading a video, be sure to select the most appropriate category for it. Essentially, this helps with SEO optimization because choosing the right category means that YouTube's algorithm will place your video in the proper search results. In turn, viewers will easily find your video and watch it.
 
-#### 8\. Use a Compelling Thumbnail
-
-![youtube seo tips - use compelling thumbnail](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-7.png)
+#### 8\. Use a Compelling Thumbnail ![youtube seo tips - use compelling thumbnail](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-7.png)
 
 Make sure you use [the right YouTube video thumbnail image](https://tools.techidaily.com/wondershare/filmora/download/), as this makes a big difference in the click-through rate. You might want to use high-quality, high-contrast images with a 16:9 aspect ratio. YouTube will choose which frame it will display as the video thumbnail. The platform will present three screenshots that you can choose from; however, you can upload your image or select a shot of another moment in the video.
 
@@ -440,17 +422,13 @@ Encourage your audience to like, comment, and share your videos. You should also
 
 Google cares about how people respond to your content because this is what keeps people on their platform.
 
-#### 11\. Add End Screens and YouTube Cards
-
-![youtube seo tips - add end screens and youtube cards](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-8.png)
+#### 11\. Add End Screens and YouTube Cards ![youtube seo tips - add end screens and youtube cards](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-8.png)
 
 YouTube cards encourage viewers to take action during your video. The cards show up in the top right corner of your videos; users can click on and explore more. Using YouTube cards is an excellent way to boost your ranking. YouTube allows you to add a maximum of five cards to each video.
 
 ## Conclusion
 
-Using these YouTube SEO tips will ensure that your videos rank on top search results. That means more people will watch your videos and subscribe to your channel. Let's start editing now!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+Using these YouTube SEO tips will ensure that your videos rank on top search results. That means more people will watch your videos and subscribe to your channel. Let's start editing now ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 More than 85% of businesses use YouTube videos as a marketing tool. YouTube is the second most visited website on the internet, with users uploading over 500 hours of video content every minute. Because video SEO is constantly evolving, you need to stay current on optimization best practices to rank higher on search results.
 
@@ -476,17 +454,13 @@ Because search engine bots can't watch YouTube videos, they depend on accompanyi
 
 Want to drive more traffic and increase your video views? Here are eleven YouTube SEO tips that will help you to boost your video ranking.
 
-#### 1\. Conduct Keyword Research First
-
-![youtube seo tips - conduct keywords reseaerch first](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-1.png)
+#### 1\. Conduct Keyword Research First ![youtube seo tips - conduct keywords reseaerch first](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-1.png)
 
 When it comes to YouTube SEO, keywords are crucial. YouTube uses these keywords to determine the subject of your video, index the content, and then associate it with what users are searching for. As such, you must add them to certain fields, including description, tags, and title, when you are uploading the video file. YouTube will then get this information and use it to rank your video.
 
 For this reason, you have to know the keywords that best identify your videos and have the potential to attract viewers to your channel.
 
-#### 2\. Use a Good Video Title
-
-![youtube seo tips - video title](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-2.png)
+#### 2\. Use a Good Video Title ![youtube seo tips - video title](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-2.png)
 
 The title of your video is the first thing other people see, and it's what decides whether or not they watch it. Given how important it is, you'll want to make sure that your title accurately reflects the content of your video and includes all relevant keywords.
 
@@ -494,35 +468,25 @@ The title of your video is the first thing other people see, and it's what decid
 
 Each time you publish a new video, make sure you embed it on your website or blog. Not only will this encourage viewers to stay on your website instead of leaving immediately, but it will also make it easier for search engines crawlers to index your website.
 
-#### 4\. Add Tags To The Video Description
-
-![youtube seo tips - add tags to video](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-3.png)
+#### 4\. Add Tags To The Video Description ![youtube seo tips - add tags to video](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-3.png)
 
 When you upload your video, remember to add tags to the "About" section of the page. You can do this by adding some relevant keywords with each tag like you would with blog posts.
 
 When planning your strategy for YouTube keywords, you need to find 10-20 single keyword tags you want to rank for; keep in mind that this platform limits the number of tags users can include in a video. So you should first add the most relevant keyword phrases then include specific multi-word tags that will easily rank on top of search results.
 
-#### 5\. Edit The Filename
-
-![youtube seo tips - edit the file name](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-4.png)
+#### 5\. Edit The Filename ![youtube seo tips - edit the file name](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-4.png)
 
 The filename of your video, or the "video URL," can also affect its rankings. Including keywords in this section will help the crawlers index your video faster, which will increase its chances of ranking higher.
 
-#### 6\. Add Subtitles and Closed Captions
-
-![youtube seo tips - add subtitles and closed captions](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-5.png)
+#### 6\. Add Subtitles and Closed Captions ![youtube seo tips - add subtitles and closed captions](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-5.png)
 
 Adding subtitles and closed captions to your videos is also a good idea, especially if you want the video's ranking and viewership to improve. Subtitles make it easier for new viewers to understand your videos, especially if your audience comes from different linguistic backgrounds.
 
-#### 7\. Select Video Category
-
-![youtube seo tips - select video category](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-6.png)
+#### 7\. Select Video Category ![youtube seo tips - select video category](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-6.png)
 
 When uploading a video, be sure to select the most appropriate category for it. Essentially, this helps with SEO optimization because choosing the right category means that YouTube's algorithm will place your video in the proper search results. In turn, viewers will easily find your video and watch it.
 
-#### 8\. Use a Compelling Thumbnail
-
-![youtube seo tips - use compelling thumbnail](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-7.png)
+#### 8\. Use a Compelling Thumbnail ![youtube seo tips - use compelling thumbnail](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-7.png)
 
 Make sure you use [the right YouTube video thumbnail image](https://tools.techidaily.com/wondershare/filmora/download/), as this makes a big difference in the click-through rate. You might want to use high-quality, high-contrast images with a 16:9 aspect ratio. YouTube will choose which frame it will display as the video thumbnail. The platform will present three screenshots that you can choose from; however, you can upload your image or select a shot of another moment in the video.
 
@@ -554,17 +518,13 @@ Encourage your audience to like, comment, and share your videos. You should also
 
 Google cares about how people respond to your content because this is what keeps people on their platform.
 
-#### 11\. Add End Screens and YouTube Cards
-
-![youtube seo tips - add end screens and youtube cards](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-8.png)
+#### 11\. Add End Screens and YouTube Cards ![youtube seo tips - add end screens and youtube cards](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-8.png)
 
 YouTube cards encourage viewers to take action during your video. The cards show up in the top right corner of your videos; users can click on and explore more. Using YouTube cards is an excellent way to boost your ranking. YouTube allows you to add a maximum of five cards to each video.
 
 ## Conclusion
 
-Using these YouTube SEO tips will ensure that your videos rank on top search results. That means more people will watch your videos and subscribe to your channel. Let's start editing now!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+Using these YouTube SEO tips will ensure that your videos rank on top search results. That means more people will watch your videos and subscribe to your channel. Let's start editing now ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 More than 85% of businesses use YouTube videos as a marketing tool. YouTube is the second most visited website on the internet, with users uploading over 500 hours of video content every minute. Because video SEO is constantly evolving, you need to stay current on optimization best practices to rank higher on search results.
 
@@ -590,17 +550,13 @@ Because search engine bots can't watch YouTube videos, they depend on accompanyi
 
 Want to drive more traffic and increase your video views? Here are eleven YouTube SEO tips that will help you to boost your video ranking.
 
-#### 1\. Conduct Keyword Research First
-
-![youtube seo tips - conduct keywords reseaerch first](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-1.png)
+#### 1\. Conduct Keyword Research First ![youtube seo tips - conduct keywords reseaerch first](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-1.png)
 
 When it comes to YouTube SEO, keywords are crucial. YouTube uses these keywords to determine the subject of your video, index the content, and then associate it with what users are searching for. As such, you must add them to certain fields, including description, tags, and title, when you are uploading the video file. YouTube will then get this information and use it to rank your video.
 
 For this reason, you have to know the keywords that best identify your videos and have the potential to attract viewers to your channel.
 
-#### 2\. Use a Good Video Title
-
-![youtube seo tips - video title](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-2.png)
+#### 2\. Use a Good Video Title ![youtube seo tips - video title](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-2.png)
 
 The title of your video is the first thing other people see, and it's what decides whether or not they watch it. Given how important it is, you'll want to make sure that your title accurately reflects the content of your video and includes all relevant keywords.
 
@@ -608,35 +564,25 @@ The title of your video is the first thing other people see, and it's what decid
 
 Each time you publish a new video, make sure you embed it on your website or blog. Not only will this encourage viewers to stay on your website instead of leaving immediately, but it will also make it easier for search engines crawlers to index your website.
 
-#### 4\. Add Tags To The Video Description
-
-![youtube seo tips - add tags to video](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-3.png)
+#### 4\. Add Tags To The Video Description ![youtube seo tips - add tags to video](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-3.png)
 
 When you upload your video, remember to add tags to the "About" section of the page. You can do this by adding some relevant keywords with each tag like you would with blog posts.
 
 When planning your strategy for YouTube keywords, you need to find 10-20 single keyword tags you want to rank for; keep in mind that this platform limits the number of tags users can include in a video. So you should first add the most relevant keyword phrases then include specific multi-word tags that will easily rank on top of search results.
 
-#### 5\. Edit The Filename
-
-![youtube seo tips - edit the file name](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-4.png)
+#### 5\. Edit The Filename ![youtube seo tips - edit the file name](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-4.png)
 
 The filename of your video, or the "video URL," can also affect its rankings. Including keywords in this section will help the crawlers index your video faster, which will increase its chances of ranking higher.
 
-#### 6\. Add Subtitles and Closed Captions
-
-![youtube seo tips - add subtitles and closed captions](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-5.png)
+#### 6\. Add Subtitles and Closed Captions ![youtube seo tips - add subtitles and closed captions](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-5.png)
 
 Adding subtitles and closed captions to your videos is also a good idea, especially if you want the video's ranking and viewership to improve. Subtitles make it easier for new viewers to understand your videos, especially if your audience comes from different linguistic backgrounds.
 
-#### 7\. Select Video Category
-
-![youtube seo tips - select video category](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-6.png)
+#### 7\. Select Video Category ![youtube seo tips - select video category](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-6.png)
 
 When uploading a video, be sure to select the most appropriate category for it. Essentially, this helps with SEO optimization because choosing the right category means that YouTube's algorithm will place your video in the proper search results. In turn, viewers will easily find your video and watch it.
 
-#### 8\. Use a Compelling Thumbnail
-
-![youtube seo tips - use compelling thumbnail](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-7.png)
+#### 8\. Use a Compelling Thumbnail ![youtube seo tips - use compelling thumbnail](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-7.png)
 
 Make sure you use [the right YouTube video thumbnail image](https://tools.techidaily.com/wondershare/filmora/download/), as this makes a big difference in the click-through rate. You might want to use high-quality, high-contrast images with a 16:9 aspect ratio. YouTube will choose which frame it will display as the video thumbnail. The platform will present three screenshots that you can choose from; however, you can upload your image or select a shot of another moment in the video.
 
@@ -668,17 +614,13 @@ Encourage your audience to like, comment, and share your videos. You should also
 
 Google cares about how people respond to your content because this is what keeps people on their platform.
 
-#### 11\. Add End Screens and YouTube Cards
-
-![youtube seo tips - add end screens and youtube cards](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-8.png)
+#### 11\. Add End Screens and YouTube Cards ![youtube seo tips - add end screens and youtube cards](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-8.png)
 
 YouTube cards encourage viewers to take action during your video. The cards show up in the top right corner of your videos; users can click on and explore more. Using YouTube cards is an excellent way to boost your ranking. YouTube allows you to add a maximum of five cards to each video.
 
 ## Conclusion
 
-Using these YouTube SEO tips will ensure that your videos rank on top search results. That means more people will watch your videos and subscribe to your channel. Let's start editing now!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+Using these YouTube SEO tips will ensure that your videos rank on top search results. That means more people will watch your videos and subscribe to your channel. Let's start editing now ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 More than 85% of businesses use YouTube videos as a marketing tool. YouTube is the second most visited website on the internet, with users uploading over 500 hours of video content every minute. Because video SEO is constantly evolving, you need to stay current on optimization best practices to rank higher on search results.
 
@@ -704,17 +646,13 @@ Because search engine bots can't watch YouTube videos, they depend on accompanyi
 
 Want to drive more traffic and increase your video views? Here are eleven YouTube SEO tips that will help you to boost your video ranking.
 
-#### 1\. Conduct Keyword Research First
-
-![youtube seo tips - conduct keywords reseaerch first](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-1.png)
+#### 1\. Conduct Keyword Research First ![youtube seo tips - conduct keywords reseaerch first](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-1.png)
 
 When it comes to YouTube SEO, keywords are crucial. YouTube uses these keywords to determine the subject of your video, index the content, and then associate it with what users are searching for. As such, you must add them to certain fields, including description, tags, and title, when you are uploading the video file. YouTube will then get this information and use it to rank your video.
 
 For this reason, you have to know the keywords that best identify your videos and have the potential to attract viewers to your channel.
 
-#### 2\. Use a Good Video Title
-
-![youtube seo tips - video title](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-2.png)
+#### 2\. Use a Good Video Title ![youtube seo tips - video title](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-2.png)
 
 The title of your video is the first thing other people see, and it's what decides whether or not they watch it. Given how important it is, you'll want to make sure that your title accurately reflects the content of your video and includes all relevant keywords.
 
@@ -722,35 +660,25 @@ The title of your video is the first thing other people see, and it's what decid
 
 Each time you publish a new video, make sure you embed it on your website or blog. Not only will this encourage viewers to stay on your website instead of leaving immediately, but it will also make it easier for search engines crawlers to index your website.
 
-#### 4\. Add Tags To The Video Description
-
-![youtube seo tips - add tags to video](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-3.png)
+#### 4\. Add Tags To The Video Description ![youtube seo tips - add tags to video](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-3.png)
 
 When you upload your video, remember to add tags to the "About" section of the page. You can do this by adding some relevant keywords with each tag like you would with blog posts.
 
 When planning your strategy for YouTube keywords, you need to find 10-20 single keyword tags you want to rank for; keep in mind that this platform limits the number of tags users can include in a video. So you should first add the most relevant keyword phrases then include specific multi-word tags that will easily rank on top of search results.
 
-#### 5\. Edit The Filename
-
-![youtube seo tips - edit the file name](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-4.png)
+#### 5\. Edit The Filename ![youtube seo tips - edit the file name](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-4.png)
 
 The filename of your video, or the "video URL," can also affect its rankings. Including keywords in this section will help the crawlers index your video faster, which will increase its chances of ranking higher.
 
-#### 6\. Add Subtitles and Closed Captions
-
-![youtube seo tips - add subtitles and closed captions](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-5.png)
+#### 6\. Add Subtitles and Closed Captions ![youtube seo tips - add subtitles and closed captions](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-5.png)
 
 Adding subtitles and closed captions to your videos is also a good idea, especially if you want the video's ranking and viewership to improve. Subtitles make it easier for new viewers to understand your videos, especially if your audience comes from different linguistic backgrounds.
 
-#### 7\. Select Video Category
-
-![youtube seo tips - select video category](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-6.png)
+#### 7\. Select Video Category ![youtube seo tips - select video category](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-6.png)
 
 When uploading a video, be sure to select the most appropriate category for it. Essentially, this helps with SEO optimization because choosing the right category means that YouTube's algorithm will place your video in the proper search results. In turn, viewers will easily find your video and watch it.
 
-#### 8\. Use a Compelling Thumbnail
-
-![youtube seo tips - use compelling thumbnail](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-7.png)
+#### 8\. Use a Compelling Thumbnail ![youtube seo tips - use compelling thumbnail](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-7.png)
 
 Make sure you use [the right YouTube video thumbnail image](https://tools.techidaily.com/wondershare/filmora/download/), as this makes a big difference in the click-through rate. You might want to use high-quality, high-contrast images with a 16:9 aspect ratio. YouTube will choose which frame it will display as the video thumbnail. The platform will present three screenshots that you can choose from; however, you can upload your image or select a shot of another moment in the video.
 
@@ -782,9 +710,7 @@ Encourage your audience to like, comment, and share your videos. You should also
 
 Google cares about how people respond to your content because this is what keeps people on their platform.
 
-#### 11\. Add End Screens and YouTube Cards
-
-![youtube seo tips - add end screens and youtube cards](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-8.png)
+#### 11\. Add End Screens and YouTube Cards ![youtube seo tips - add end screens and youtube cards](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tips-8.png)
 
 YouTube cards encourage viewers to take action during your video. The cards show up in the top right corner of your videos; users can click on and explore more. Using YouTube cards is an excellent way to boost your ranking. YouTube allows you to add a maximum of five cards to each video.
 

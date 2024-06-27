@@ -1,7 +1,7 @@
 ---
 title: "Best YouTube Banner Size and Channel Art Dimension (The Ultimate Guide) for 2024"
-date: 2024-05-25T14:43:09.372Z
-updated: 2024-05-26T14:43:09.372Z
+date: 2024-06-26T14:17:02.180Z
+updated: 2024-06-27T14:17:02.180Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Best YouTube Banner Size and Channel Art Dimension (The Ultimate Guide) for 2024"
 excerpt: "This Article Describes Best YouTube Banner Size and Channel Art Dimension (The Ultimate Guide) for 2024"
 keywords: "YouTube Banner Guide,Banner Size for Channels,Channel Art Placement,Ultimate Banner Guide,Dimension Tips YouTube,Optimal Banner Size,Channel Art Standards"
-thumbnail: https://www.lifewire.com/thmb/qDgmIGv-MKnWSKLikR57Fui58lY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-693170166-5a99f020c67335003717a070.jpg
+thumbnail: https://thmb.techidaily.com/e24c6a589d856da0a108fb73ed8aea987528294a85122e6caa68a425ef40bc26.jpg
 ---
 
 ## Channel Design Mastery: Selecting the Right YT Banner & Art Sizes
@@ -49,21 +49,15 @@ For the best results on all devices, your YouTube banner size should be:
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
 
- 2560 x 1440 px
+ 2560 x 1440 px ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+YouTube will display your entire channel art on TVs ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
 
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+ 1546 x 423 px ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
@@ -73,9 +67,7 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
 
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+1855 x 423 px ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
@@ -85,9 +77,7 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
 
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+ 2560 x 423 px ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
@@ -163,21 +153,15 @@ For the best results on all devices, your YouTube banner size should be:
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
 
- 2560 x 1440 px
+ 2560 x 1440 px ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+YouTube will display your entire channel art on TVs ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
 
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+ 1546 x 423 px ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
@@ -187,9 +171,7 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
 
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+1855 x 423 px ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
@@ -199,9 +181,7 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
 
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+ 2560 x 423 px ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
@@ -277,21 +257,15 @@ For the best results on all devices, your YouTube banner size should be:
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
 
- 2560 x 1440 px
+ 2560 x 1440 px ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+YouTube will display your entire channel art on TVs ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
 
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+ 1546 x 423 px ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
@@ -301,9 +275,7 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
 
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+1855 x 423 px ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
@@ -313,9 +285,7 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
 
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+ 2560 x 423 px ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
@@ -391,21 +361,15 @@ For the best results on all devices, your YouTube banner size should be:
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
 
- 2560 x 1440 px
+ 2560 x 1440 px ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+YouTube will display your entire channel art on TVs ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
 
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+ 1546 x 423 px ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
@@ -415,9 +379,7 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
 
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+1855 x 423 px ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
@@ -427,9 +389,7 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
 
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+ 2560 x 423 px ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
@@ -657,7 +617,7 @@ Hopefully, you've found this article helpful and can now locate your YouTube Mus
 <li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-oppo-k11x-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Oppo K11x to Enjoy More Fun | Dr.fone</u></a></li>
 <li><a href="https://review-topics.techidaily.com/how-to-unlock-oppo-k11-5g-by-drfone-android-unlock-android-unlock/"><u>How to unlock Oppo K11 5G</u></a></li>
 <li><a href="https://tiktok-videos.techidaily.com/updated-mastering-the-stitch-for-immersive-tiktok-experienines-for-2024/"><u>[Updated] Mastering the Stitch for Immersive TikTok Experienines for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-all-you-need-to-know-about-bandicam-updated/"><u>[Updated] In 2024, All You Need to Know About Bandicam (Updated )</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-all-you-need-to-know-about-bandicam-updated/"><u>[Updated] In 2024, All You Need to Know About Bandicam (Updated)</u></a></li>
 <li><a href="https://audio-editing.techidaily.com/new-cutting-edge-mp3-editing-solutions-for-mac-a-comprehensive-review-of-leading-cutter-tools/"><u>New Cutting-Edge MP3 Editing Solutions for Mac A Comprehensive Review of Leading Cutter Tools</u></a></li>
 <li><a href="https://facebook-video-recording.techidaily.com/revolutionize-your-social-media-strategy-use-free-video-creation-kit-for-2024/"><u>Revolutionize Your Social Media Strategy – Use Free Video Creation Kit for 2024</u></a></li>
 <li><a href="https://video-content-creator.techidaily.com/new-top-10-free-online-subtitle-generators-for-2024/"><u>New Top 10 Free Online Subtitle Generators for 2024</u></a></li>

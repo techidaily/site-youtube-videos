@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Flair  Free Download Templates\""
-date: 2024-05-25T15:56:11.495Z
-updated: 2024-05-26T15:56:11.495Z
+date: 2024-06-26T14:17:00.467Z
+updated: 2024-06-27T14:17:00.467Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes [New] Channel Flair: Free Download Templates\""
 excerpt: "\"This Article Describes [New] Channel Flair: Free Download Templates\""
 keywords: "\"Free Templates,Flair Downloads,Downloadable Formats,Customizable Templates,No-Cost Designs,Template Resources,Free Design Tools\""
-thumbnail: https://www.lifewire.com/thmb/S8g_8m47syFNd8aLJAfNHuOztvM=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/ScreenShot2022-01-27at1.42.29PM-7dae4db8dee940fe81736da420d9bc0f.png
+thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba75d849bd9c5cf60929a80d0.png
 ---
 
 ## Channel Flair: Free Download Templates
 
-# YouTube Profile Picture Templates – Free Downloads
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Profile Picture Templates – Free Downloads ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
