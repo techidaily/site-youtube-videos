@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Breaking Into Livestrances  A Gamers' Guide to YouTube Success\""
-date: 2024-05-25T15:54:52.780Z
-updated: 2024-05-26T15:54:52.780Z
+date: 2024-07-05T23:28:05.963Z
+updated: 2024-07-06T23:28:05.963Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Breaking Into Livestrances: A Gamers' Guide to YouTube Success\""
 excerpt: "\"This Article Describes [New] Breaking Into Livestrances: A Gamers' Guide to YouTube Success\""
 keywords: "YouTube Gaming Tips,Video Marketing Strategies,Livestream Engagement Guides,Streaming on YouTube Basics,Gamers' Success Guide,Achieving Viewership Goals,Effective Livestream Techniques"
-thumbnail: https://www.lifewire.com/thmb/hwNUAC-KV8jRlSejc33AXMG4v3Q=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/TechLeaders_GettyImages-1145150936_CROPPED2-ee3a30f68b494acf8196f46f29680b70.jpg
+thumbnail: https://thmb.techidaily.com/4cbebb13391bd3ac3f3b9ef43b45b771ba69f0146a8bbd42e4f0e8dd5abd0510.jpg
 ---
 
 ## Breaking Into Livestrances: A Gamers' Guide to YouTube Success
@@ -32,31 +32,31 @@ thumbnail: https://www.lifewire.com/thmb/hwNUAC-KV8jRlSejc33AXMG4v3Q=/2000x0/fil
 
 **Step 2:**Once entered inside your account then you need to visit the Go live streaming options and then from drop down menu simply choose Stream Now option.
 
-![live-on-youtube-gaming-with-obs-1 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-1.jpg)
+![live-on-youtube-gaming-with-obs-1](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-1.jpg)
 
 **Step 3:**It is time to fill the details on screen; put impressive words for your live stream description so that it can grab attention of more viewers. Then select category as ‘Gaming’.
 
-![live-on-youtube-gaming-with-obs-2 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-2.jpg)
+![live-on-youtube-gaming-with-obs-2](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-2.jpg)
 
 **Step 4:**Now you need to copy the stream key.
 
-![live-on-youtube-gaming-with-obs-3 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-3.jpg)
+![live-on-youtube-gaming-with-obs-3](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-3.jpg)
 
 **Step 5:**Now open your OBS tool and then select YouTube as your active game streaming service. Users here need to paste that copied streaming key of Step 5 into the space provided on OBS settings page.
 
-![live-on-youtube-gaming-with-obs-4 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-4.jpg)
+![live-on-youtube-gaming-with-obs-4](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-4.jpg)
 
 **Step 6:**It is time to make your desktop a video source.
 
-![live-on-youtube-gaming-with-obs-5 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-5.jpg)
+![live-on-youtube-gaming-with-obs-5](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-5.jpg)
 
 **Step 7:**Once all these settings are completed then you need to hit the start streaming option.
 
-![live-on-youtube-gaming-with-obs-6 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-6.jpg)
+![live-on-youtube-gaming-with-obs-6](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-6.jpg)
 
 **Step 8:**The service may take few seconds to bring your live on YouTube and after this small duration you will be connected to your channel with your streamed content. Then change your url from youtube.com to gaming.youtube.com
 
-![live-on-youtube-gaming-with-obs-7 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-7.jpg)
+![live-on-youtube-gaming-with-obs-7](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-7.jpg)
 
 **Step 9:**You are all set to be live on your YouTube gaming profile.
 
@@ -70,27 +70,27 @@ thumbnail: https://www.lifewire.com/thmb/hwNUAC-KV8jRlSejc33AXMG4v3Q=/2000x0/fil
 
 **Step 2:**Once installation process is complete then launch your software.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-1 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-1.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-1](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-1.jpg)
 
 **Step 3:**Now you need to hit the add button on screen and select YouTube from drop down menu.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-2 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-2.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-2](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-2.jpg)
 
 **Step 4:** It is time to sign in with your Google Account.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-3 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-3.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-3](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-3.jpg)
 
 **Step 5:**After sign up process, allow the Elgato Game Capture tool to make connection with your YouTube account.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-4 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-4.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-4](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-4.jpg)
 
 **Step 6:**Soon you will be able to access you account from Elgato platform.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-5 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-5.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-5](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-5.jpg)
 
 **Step 7:**It is time to make adjustments for streaming settings.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-6 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-6.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-6](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-6.jpg)
 
 ### B: Test your Bandwidth and make adjustments for Stream settings
 
@@ -98,23 +98,23 @@ thumbnail: https://www.lifewire.com/thmb/hwNUAC-KV8jRlSejc33AXMG4v3Q=/2000x0/fil
 
 **Step 1:**Open your browser and then visit the speedtest.net platform. You can also use other similar kind of websites to ensure the speed of your internet. Note that you will find a Bit Rate dial in the live streaming section, here you can make adjustments for bit rates to bring it to desired level.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-7 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-7.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-7](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-7.jpg)
 
 **Step 2:**It is also possible to make customized settings for frame rate and resolution as per need of your stream content.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-8 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-8.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-8](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-8.jpg)
 
 **Step 3:**One can also prefer to archive his streaming.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-9 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-9.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-9](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-9.jpg)
 
 **Step 4:**As soon as you have completed all above settings then you need to hit the stream button on screen.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-10 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-10.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-10](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-10.jpg)
 
 **Step 5:**Soon your software will ask you to select the event that you want to stream, choose your desired event and then press Ok. Soon you will be live on YouTube.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-11 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-11.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-11](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-11.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -136,31 +136,31 @@ Follow @Richard Bennett
 
 **Step 2:**Once entered inside your account then you need to visit the Go live streaming options and then from drop down menu simply choose Stream Now option.
 
-![live-on-youtube-gaming-with-obs-1 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-1.jpg)
+![live-on-youtube-gaming-with-obs-1](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-1.jpg)
 
 **Step 3:**It is time to fill the details on screen; put impressive words for your live stream description so that it can grab attention of more viewers. Then select category as ‘Gaming’.
 
-![live-on-youtube-gaming-with-obs-2 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-2.jpg)
+![live-on-youtube-gaming-with-obs-2](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-2.jpg)
 
 **Step 4:**Now you need to copy the stream key.
 
-![live-on-youtube-gaming-with-obs-3 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-3.jpg)
+![live-on-youtube-gaming-with-obs-3](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-3.jpg)
 
 **Step 5:**Now open your OBS tool and then select YouTube as your active game streaming service. Users here need to paste that copied streaming key of Step 5 into the space provided on OBS settings page.
 
-![live-on-youtube-gaming-with-obs-4 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-4.jpg)
+![live-on-youtube-gaming-with-obs-4](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-4.jpg)
 
 **Step 6:**It is time to make your desktop a video source.
 
-![live-on-youtube-gaming-with-obs-5 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-5.jpg)
+![live-on-youtube-gaming-with-obs-5](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-5.jpg)
 
 **Step 7:**Once all these settings are completed then you need to hit the start streaming option.
 
-![live-on-youtube-gaming-with-obs-6 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-6.jpg)
+![live-on-youtube-gaming-with-obs-6](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-6.jpg)
 
 **Step 8:**The service may take few seconds to bring your live on YouTube and after this small duration you will be connected to your channel with your streamed content. Then change your url from youtube.com to gaming.youtube.com
 
-![live-on-youtube-gaming-with-obs-7 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-7.jpg)
+![live-on-youtube-gaming-with-obs-7](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-7.jpg)
 
 **Step 9:**You are all set to be live on your YouTube gaming profile.
 
@@ -174,27 +174,27 @@ Follow @Richard Bennett
 
 **Step 2:**Once installation process is complete then launch your software.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-1 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-1.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-1](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-1.jpg)
 
 **Step 3:**Now you need to hit the add button on screen and select YouTube from drop down menu.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-2 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-2.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-2](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-2.jpg)
 
 **Step 4:** It is time to sign in with your Google Account.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-3 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-3.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-3](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-3.jpg)
 
 **Step 5:**After sign up process, allow the Elgato Game Capture tool to make connection with your YouTube account.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-4 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-4.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-4](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-4.jpg)
 
 **Step 6:**Soon you will be able to access you account from Elgato platform.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-5 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-5.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-5](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-5.jpg)
 
 **Step 7:**It is time to make adjustments for streaming settings.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-6 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-6.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-6](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-6.jpg)
 
 ### B: Test your Bandwidth and make adjustments for Stream settings
 
@@ -202,23 +202,23 @@ Follow @Richard Bennett
 
 **Step 1:**Open your browser and then visit the speedtest.net platform. You can also use other similar kind of websites to ensure the speed of your internet. Note that you will find a Bit Rate dial in the live streaming section, here you can make adjustments for bit rates to bring it to desired level.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-7 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-7.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-7](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-7.jpg)
 
 **Step 2:**It is also possible to make customized settings for frame rate and resolution as per need of your stream content.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-8 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-8.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-8](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-8.jpg)
 
 **Step 3:**One can also prefer to archive his streaming.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-9 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-9.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-9](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-9.jpg)
 
 **Step 4:**As soon as you have completed all above settings then you need to hit the stream button on screen.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-10 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-10.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-10](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-10.jpg)
 
 **Step 5:**Soon your software will ask you to select the event that you want to stream, choose your desired event and then press Ok. Soon you will be live on YouTube.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-11 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-11.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-11](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-11.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -240,31 +240,31 @@ Follow @Richard Bennett
 
 **Step 2:**Once entered inside your account then you need to visit the Go live streaming options and then from drop down menu simply choose Stream Now option.
 
-![live-on-youtube-gaming-with-obs-1 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-1.jpg)
+![live-on-youtube-gaming-with-obs-1](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-1.jpg)
 
 **Step 3:**It is time to fill the details on screen; put impressive words for your live stream description so that it can grab attention of more viewers. Then select category as ‘Gaming’.
 
-![live-on-youtube-gaming-with-obs-2 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-2.jpg)
+![live-on-youtube-gaming-with-obs-2](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-2.jpg)
 
 **Step 4:**Now you need to copy the stream key.
 
-![live-on-youtube-gaming-with-obs-3 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-3.jpg)
+![live-on-youtube-gaming-with-obs-3](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-3.jpg)
 
 **Step 5:**Now open your OBS tool and then select YouTube as your active game streaming service. Users here need to paste that copied streaming key of Step 5 into the space provided on OBS settings page.
 
-![live-on-youtube-gaming-with-obs-4 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-4.jpg)
+![live-on-youtube-gaming-with-obs-4](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-4.jpg)
 
 **Step 6:**It is time to make your desktop a video source.
 
-![live-on-youtube-gaming-with-obs-5 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-5.jpg)
+![live-on-youtube-gaming-with-obs-5](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-5.jpg)
 
 **Step 7:**Once all these settings are completed then you need to hit the start streaming option.
 
-![live-on-youtube-gaming-with-obs-6 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-6.jpg)
+![live-on-youtube-gaming-with-obs-6](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-6.jpg)
 
 **Step 8:**The service may take few seconds to bring your live on YouTube and after this small duration you will be connected to your channel with your streamed content. Then change your url from youtube.com to gaming.youtube.com
 
-![live-on-youtube-gaming-with-obs-7 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-7.jpg)
+![live-on-youtube-gaming-with-obs-7](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-7.jpg)
 
 **Step 9:**You are all set to be live on your YouTube gaming profile.
 
@@ -278,27 +278,27 @@ Follow @Richard Bennett
 
 **Step 2:**Once installation process is complete then launch your software.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-1 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-1.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-1](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-1.jpg)
 
 **Step 3:**Now you need to hit the add button on screen and select YouTube from drop down menu.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-2 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-2.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-2](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-2.jpg)
 
 **Step 4:** It is time to sign in with your Google Account.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-3 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-3.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-3](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-3.jpg)
 
 **Step 5:**After sign up process, allow the Elgato Game Capture tool to make connection with your YouTube account.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-4 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-4.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-4](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-4.jpg)
 
 **Step 6:**Soon you will be able to access you account from Elgato platform.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-5 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-5.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-5](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-5.jpg)
 
 **Step 7:**It is time to make adjustments for streaming settings.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-6 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-6.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-6](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-6.jpg)
 
 ### B: Test your Bandwidth and make adjustments for Stream settings
 
@@ -306,23 +306,23 @@ Follow @Richard Bennett
 
 **Step 1:**Open your browser and then visit the speedtest.net platform. You can also use other similar kind of websites to ensure the speed of your internet. Note that you will find a Bit Rate dial in the live streaming section, here you can make adjustments for bit rates to bring it to desired level.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-7 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-7.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-7](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-7.jpg)
 
 **Step 2:**It is also possible to make customized settings for frame rate and resolution as per need of your stream content.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-8 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-8.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-8](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-8.jpg)
 
 **Step 3:**One can also prefer to archive his streaming.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-9 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-9.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-9](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-9.jpg)
 
 **Step 4:**As soon as you have completed all above settings then you need to hit the stream button on screen.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-10 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-10.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-10](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-10.jpg)
 
 **Step 5:**Soon your software will ask you to select the event that you want to stream, choose your desired event and then press Ok. Soon you will be live on YouTube.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-11 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-11.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-11](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-11.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -344,31 +344,31 @@ Follow @Richard Bennett
 
 **Step 2:**Once entered inside your account then you need to visit the Go live streaming options and then from drop down menu simply choose Stream Now option.
 
-![live-on-youtube-gaming-with-obs-1 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-1.jpg)
+![live-on-youtube-gaming-with-obs-1](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-1.jpg)
 
 **Step 3:**It is time to fill the details on screen; put impressive words for your live stream description so that it can grab attention of more viewers. Then select category as ‘Gaming’.
 
-![live-on-youtube-gaming-with-obs-2 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-2.jpg)
+![live-on-youtube-gaming-with-obs-2](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-2.jpg)
 
 **Step 4:**Now you need to copy the stream key.
 
-![live-on-youtube-gaming-with-obs-3 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-3.jpg)
+![live-on-youtube-gaming-with-obs-3](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-3.jpg)
 
 **Step 5:**Now open your OBS tool and then select YouTube as your active game streaming service. Users here need to paste that copied streaming key of Step 5 into the space provided on OBS settings page.
 
-![live-on-youtube-gaming-with-obs-4 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-4.jpg)
+![live-on-youtube-gaming-with-obs-4](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-4.jpg)
 
 **Step 6:**It is time to make your desktop a video source.
 
-![live-on-youtube-gaming-with-obs-5 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-5.jpg)
+![live-on-youtube-gaming-with-obs-5](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-5.jpg)
 
 **Step 7:**Once all these settings are completed then you need to hit the start streaming option.
 
-![live-on-youtube-gaming-with-obs-6 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-6.jpg)
+![live-on-youtube-gaming-with-obs-6](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-6.jpg)
 
 **Step 8:**The service may take few seconds to bring your live on YouTube and after this small duration you will be connected to your channel with your streamed content. Then change your url from youtube.com to gaming.youtube.com
 
-![live-on-youtube-gaming-with-obs-7 ](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-7.jpg)
+![live-on-youtube-gaming-with-obs-7](https://images.wondershare.com/filmora/article-images/live-on-youtube-gaming-with-obs-7.jpg)
 
 **Step 9:**You are all set to be live on your YouTube gaming profile.
 
@@ -382,27 +382,27 @@ Follow @Richard Bennett
 
 **Step 2:**Once installation process is complete then launch your software.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-1 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-1.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-1](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-1.jpg)
 
 **Step 3:**Now you need to hit the add button on screen and select YouTube from drop down menu.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-2 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-2.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-2](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-2.jpg)
 
 **Step 4:** It is time to sign in with your Google Account.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-3 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-3.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-3](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-3.jpg)
 
 **Step 5:**After sign up process, allow the Elgato Game Capture tool to make connection with your YouTube account.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-4 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-4.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-4](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-4.jpg)
 
 **Step 6:**Soon you will be able to access you account from Elgato platform.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-5 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-5.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-5](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-5.jpg)
 
 **Step 7:**It is time to make adjustments for streaming settings.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-6 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-6.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-6](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-6.jpg)
 
 ### B: Test your Bandwidth and make adjustments for Stream settings
 
@@ -410,23 +410,23 @@ Follow @Richard Bennett
 
 **Step 1:**Open your browser and then visit the speedtest.net platform. You can also use other similar kind of websites to ensure the speed of your internet. Note that you will find a Bit Rate dial in the live streaming section, here you can make adjustments for bit rates to bring it to desired level.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-7 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-7.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-7](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-7.jpg)
 
 **Step 2:**It is also possible to make customized settings for frame rate and resolution as per need of your stream content.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-8 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-8.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-8](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-8.jpg)
 
 **Step 3:**One can also prefer to archive his streaming.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-9 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-9.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-9](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-9.jpg)
 
 **Step 4:**As soon as you have completed all above settings then you need to hit the stream button on screen.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-10 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-10.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-10](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-10.jpg)
 
 **Step 5:**Soon your software will ask you to select the event that you want to stream, choose your desired event and then press Ok. Soon you will be live on YouTube.
 
-![live-stream-on-youtube-with-elgato-game-capture-hd-11 ](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-11.jpg)
+![live-stream-on-youtube-with-elgato-game-capture-hd-11](https://images.wondershare.com/filmora/article-images/live-stream-on-youtube-with-elgato-game-capture-hd-11.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -474,7 +474,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -497,9 +497,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -535,7 +535,7 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -544,15 +544,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
-![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -588,7 +588,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -611,9 +611,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -649,7 +649,7 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -658,15 +658,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
-![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -702,7 +702,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -725,9 +725,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -763,7 +763,7 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -772,15 +772,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
-![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -816,7 +816,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -839,9 +839,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -877,7 +877,7 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -886,15 +886,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
-![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 

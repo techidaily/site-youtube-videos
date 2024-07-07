@@ -1,7 +1,7 @@
 ---
 title: "MCB Video Graphics Pack for YouTube Channels"
-date: 2024-05-25T15:46:41.392Z
-updated: 2024-05-26T15:46:41.392Z
+date: 2024-07-05T23:28:06.776Z
+updated: 2024-07-06T23:28:06.776Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes MCB Video Graphics Pack for YouTube Channels"
 excerpt: "This Article Describes MCB Video Graphics Pack for YouTube Channels"
 keywords: "\"MCB Graphic Pkg,YouTube MCB Video,MCB Video Package,MCB Channel Graphics,High-Res MCB Videos,YouTube MCB Upload,Enhanced MCB Channels\""
-thumbnail: https://www.lifewire.com/thmb/vyzcJX9d4xPRDFBKmvNTGXpael0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-944229620-9cff560054804b72a431e9492c7445b4.jpg
+thumbnail: https://thmb.techidaily.com/e271cbb6eb6a65ff2648f6dddd1fc0c078a843660eba98a715724fa951b431ee.jpg
 ---
 
 ## MCB Video Graphics Pack for YouTube Channels

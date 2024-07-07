@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Assessing Mr. Beast’s Monetary Trajectory\""
-date: 2024-05-25T14:18:03.404Z
-updated: 2024-05-26T14:18:03.404Z
+date: 2024-07-05T23:28:08.476Z
+updated: 2024-07-06T23:28:08.476Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Assessing Mr. Beast’s Monetary Trajectory\""
 excerpt: "\"This Article Describes 2024 Approved: Assessing Mr. Beast’s Monetary Trajectory\""
 keywords: "MrBeastTrailMoney,BeastFinancialPath,MegaChallengerWealth,RichMrBeastGrowth,WealthyBeastMonetary,MonetaryBeastAssessment,FinanceMrBeastJourney"
-thumbnail: https://www.lifewire.com/thmb/oj9f0wuX7XGgnL3sQwetCIX5y6c=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-fix-it-when-pngs-wont-open-in-windows-11-41107f6a55db4318b6c2b64437de5b75.jpg
+thumbnail: https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1cb979a99a698fecfb5d28b74.jpg
 ---
 
 ## Assessing Mr. Beast’s Monetary Trajectory

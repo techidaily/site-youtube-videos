@@ -1,7 +1,7 @@
 ---
 title: "\"Chuckle Chronicles  Top 10 Humoristic YouTube Video Plans for 2024\""
-date: 2024-05-25T14:49:44.180Z
-updated: 2024-05-26T14:49:44.180Z
+date: 2024-07-05T23:28:04.384Z
+updated: 2024-07-06T23:28:04.384Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Chuckle Chronicles: Top 10 Humoristic YouTube Video Plans for 2024\""
 excerpt: "\"This Article Describes Chuckle Chronicles: Top 10 Humoristic YouTube Video Plans for 2024\""
 keywords: "Chuckle Chronicles,Humoristic Videos,YouTuber Tips,Hilarious Content Plan,Laughter Strategies,Comedy Video Guide,Funny YouTube Plans"
-thumbnail: https://www.lifewire.com/thmb/sG54Bv1qiSAYEfTgb-qRImj7dlo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-524282176-5bf20266c9e77c0051af5697.jpg
+thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1fac24bb52cc0d4742cbe1750.jpg
 ---
 
 ## Chuckle Chronicles: Top 10 Humoristic YouTube Video Plans

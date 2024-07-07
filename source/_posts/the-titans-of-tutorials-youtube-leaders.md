@@ -1,7 +1,7 @@
 ---
 title: "\"The Titans of Tutorials  YouTube Leaders\""
-date: 2024-05-25T16:25:20.855Z
-updated: 2024-05-26T16:25:20.855Z
+date: 2024-07-05T23:28:01.804Z
+updated: 2024-07-06T23:28:01.804Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes The Titans of Tutorials: YouTube Leaders\""
 excerpt: "\"This Article Describes The Titans of Tutorials: YouTube Leaders\""
 keywords: "YT Tutorial Masters,YouTube Educators,Teaching Giants,Content Creators,Learning Experts,Video Education Leaders,Skill Sharementors"
-thumbnail: https://www.lifewire.com/thmb/wVsgx5kElFVQLxvubcRH6YuU0gk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/copilotpp03-763a146c397e4255b6dcb549c1073474.jpg
+thumbnail: https://thmb.techidaily.com/e3e9d05b136f2784c34797b823ce0a57360ca7d16ac3c7f53dfd0d99ef2e7a1b.jpg
 ---
 
 ## The Titans of Tutorials: YouTube Leaders

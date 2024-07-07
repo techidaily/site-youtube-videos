@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Essential Steps for Crafting Video-Based GIFs on Mobile/Desktop\""
-date: 2024-05-25T14:33:42.042Z
-updated: 2024-05-26T14:33:42.042Z
+date: 2024-07-05T23:28:10.255Z
+updated: 2024-07-06T23:28:10.255Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Essential Steps for Crafting Video-Based GIFs on Mobile/Desktop\""
 excerpt: "\"This Article Describes 2024 Approved: Essential Steps for Crafting Video-Based GIFs on Mobile/Desktop\""
 keywords: "\"Mobile GIF Making,Desktop GIF Creation,Video to GIF Tutorial,GIF Crafting Guide,Simple GIF Design,Multi-Device GIFs,Easy Mobile GIFs\""
-thumbnail: https://www.lifewire.com/thmb/lmvkxaKrozRYqGTx380BkpJfGAc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-504331578-cheering-football-on-tv-5a231ffdaad52b00372ae2a6.jpg
+thumbnail: https://thmb.techidaily.com/7b4e6458caaa3e9950165c60cd6d036d2d81733c195f98fbf5326f59e3a1eeef.jpg
 ---
 
 ## Essential Steps for Crafting Video-Based GIFs on Mobile/Desktop
