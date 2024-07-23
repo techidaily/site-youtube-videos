@@ -1,7 +1,7 @@
 ---
 title: "\"A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications\""
-date: 2024-07-05T23:28:33.822Z
-updated: 2024-07-06T23:28:33.822Z
+date: 2024-07-22T17:55:05.266Z
+updated: 2024-07-23T17:55:05.266Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 
 # How to Add YouTube Annotations and Cards?
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -63,10 +66,16 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -75,11 +84,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
@@ -118,6 +133,9 @@ The best outros also include a subscribe button, which can be created using anno
 
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -134,3 +152,38 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-high-quality-video-transfer-from-fb-to-mp4-no-cost-online-method/"><u>[New] 2024 Approved  High-Quality Video Transfer From FB to MP4 – No Cost Online Method</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-your-course-from-creator-to-major-label/"><u>[New] Charting Your Course  From Creator to Major Label</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-your-course-in-youtubing-dodge-these-top-8-common-missteps/"><u>[New] Charting Your Course in YouTubing  Dodge These Top 8 Common Missteps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-your-path-to-higher-youtube-spotlight/"><u>[New] Charting Your Path to Higher YouTube Spotlight</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-youtubes-course-for-video-short-growth-with-funding/"><u>[New] Charting YouTube's Course for Video Short Growth with Funding</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-youtubes-untapped-markets-niche-strategies/"><u>[New] Charting Youtube's Untapped Markets  Niche Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-chasing-likes-and-loads-jake-pauls-youtube-ambition/"><u>[New] Chasing Likes and Loads  Jake Paul's YouTube Ambition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-cheap-yet-good-quality-cameras-reviewed-here/"><u>[New] Cheap Yet Good Quality Cameras Reviewed Here</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-chilly-ambiance-ideal-winter-bgs-for-videos/"><u>[New] Chilly Ambiance  Ideal Winter BGs for Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-choosing-streaming-giants-vimeo-youtube-or-dailymotion/"><u>[New] Choosing Streaming Giants  Vimeo, YouTube, or DailyMotion?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-choosing-superior-tools-for-vocal-change-in-content-making/"><u>[New] Choosing Superior Tools for Vocal Change in Content Making</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-choosing-the-best-camera-for-filming-mirrorless-or-dslr/"><u>[New] Choosing the Best Camera for Filming  Mirrorless or DSLR</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-choosing-the-right-tool-for-your-youtube-to-avi-desire/"><u>[New] Choosing the Right Tool for Your YouTube-to-AVI Desire</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-choosing-the-right-video-sharing-platform-tiktok-vs-youtubes-shorts/"><u>[New] Choosing the Right Video Sharing Platform  TikTok vs YouTubes' Shorts?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-choosing-the-right-youtube-tv-package-for-you/"><u>[New] Choosing the Right YouTube TV Package for You</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-choreographing-narrative-news-wrappers/"><u>[New] Choreographing Narrative News Wrappers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-chortle-chamber-ideas-for-7-amusing-online-sessions/"><u>[New] Chortle Chamber  Ideas for 7 Amusing Online Sessions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-chortle-chronicles-recording-7-amusing-video-adventures/"><u>[New] Chortle Chronicles  Recording 7 Amusing Video Adventures</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-chrome-to-iphone-a-guide-to-stripping-youtube-ads/"><u>[New] Chrome to iPhone  A Guide to Stripping YouTube Ads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-chronicles-of-youtube-the-ultimate-viral-list/"><u>[New] Chronicles of YouTube  The Ultimate Viral List</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-effortless-video-streaming-on-your-facebook-page/"><u>[Updated] 2024 Approved  Effortless Video Streaming on Your Facebook Page</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-decoding-how-to-effectively-swap-photo-genders-online-a-comprehensive-approach-for-2024/"><u>[Updated] Decoding How to Effectively Swap Photo Genders Online  A Comprehensive Approach for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-discover-the-leading-youtube-to-webm-converter-tools/"><u>[Updated] Discover the Leading YouTube-to-WebM Converter Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-virality-vortex-mastering-content-circulation-on-social-media/"><u>[Updated] In 2024, The Virality Vortex  Mastering Content Circulation on Social Media</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-step-by-step-utilization-of-polarr-for-professional-results/"><u>2024 Approved  Step-By-Step Utilization of Polarr for Professional Results</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-gionee-by-drfone-android/"><u>How to Bypass FRP from Gionee?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-master-class-on-managing-desktopmobile-screens-in-meet/"><u>In 2024, Master Class on Managing Desktop/Mobile Screens in Meet</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-uncluttered-images-using-photopea-for-flawless-edits/"><u>In 2024, Uncluttered Images  Using Photopea for Flawless Edits</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/revolutionizing-reality-expertly-reviewed-peripherals-for-2024/"><u>Revolutionizing Reality  Expertly Reviewed Peripherals for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ontent-kings-chronicle-mastering-youtube-monetization-no-ads-involved/"><u>The Content King's Chronicle  Mastering YouTube Monetization, No Ads Involved</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-complementing-your-visual-storytelling-with-cost-free-melodies-techniques-for-pcmobile-devices/"><u>Updated Complementing Your Visual Storytelling with Cost-Free Melodies Techniques for PC/Mobile Devices</u></a></li>
+</ul></div>

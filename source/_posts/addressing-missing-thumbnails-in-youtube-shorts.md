@@ -1,7 +1,7 @@
 ---
 title: "Addressing Missing Thumbnails in YouTube Shorts"
-date: 2024-05-25T14:38:02.068Z
-updated: 2024-05-26T14:38:02.068Z
+date: 2024-07-22T16:05:20.235Z
+updated: 2024-07-23T16:05:20.235Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Addressing Missing Thumbnails in YouTube Shorts"
 excerpt: "This Article Describes Addressing Missing Thumbnails in YouTube Shorts"
 keywords: "Thumbnail Issues in Shorts,Fixing Video Thumbnails,Shorts Thumbnail Gap,YouTub's Image Missing,Restore YouTube Thumbnails,Enhance Shorts Images,Addressing Empty Shorts"
-thumbnail: https://www.lifewire.com/thmb/h1uQ70G3WrivjMChLK0le7avCS0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ImagefromiOS5-ca6e3fd0fecb4cf8b7022b98e9e1ffaf.jpg
+thumbnail: https://thmb.techidaily.com/e874e7774ed1bae47e14908261fcbf31de304eed1c8fec16cc5f931b201e9fca.jpg
 ---
 
 ## Addressing Missing Thumbnails in YouTube Shorts
@@ -22,6 +22,9 @@ That said, it is a problem you want to solve. Here are 7 FAQs about YouTube Shor
 
 ![youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/youtube-shorts-thumbnail-not-showing.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## Q1\. Can I Customize YouTube Shorts Thumbnails?
 
 Yes, you can. YouTube did allow short-form video creators to upload custom thumbnails for their Shorts. However, they aren't that optimized. For instance, some people may not see them on the Shorts shelf. Also, if you share a link to the video somewhere else, the old video thumbnail may show instead of the new one.
@@ -38,11 +41,17 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 
 * On the left navigation menu, click "Content."
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ![content section on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-3.JPG)
 
 * Click the "pencil" icon next to the Shorts you just uploaded. This video should be at the top of the list.
 * Navigate to the Thumbnail section. Click "Create Thumbnail."
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![changing shorts thumbnail on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-5.JPG)
 
 ## Q2\. Why Are YouTube Shorts Thumbnails Not Showing?
@@ -55,6 +64,18 @@ _"They ALL have randomly selected different parts of each video I have uploaded 
 
 The reason behind this is the difference in the thumbnail size. Regular YouTube video thumbnails are in the ratio of 16:9\. Meanwhile, Shorts uses a ratio of 9:16\. The thing is that YouTube does not yet allow you to upload 9:16 thumbnails. Thus, the thumbnail for Shorts may show correctly on the video section but not on the Shorts shelf.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
@@ -93,14 +114,23 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### On a Desktop Computer
 
 * Open a Shorts video on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
 * Pause the video.
@@ -115,10 +145,16 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
 * Like the Shorts video.
@@ -131,12 +167,18 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Scroll down to find "Liked Videos." Click on it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -145,12 +187,18 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
 
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q6\. Do YouTube Shorts Make Money?
 
 Making money from YouTube Shorts was challenging. The platform pays content creators who are doing well through the Creator Fund. However, as Shorts grew, the payout became smaller.
@@ -159,6 +207,9 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
@@ -171,16 +222,29 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Pause the video.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
 
 * Click "Library" on the left panel.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
@@ -193,6 +257,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Tap "Library"
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
 
 * Scroll down to find "Liked Videos." Click on it.
@@ -201,6 +268,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
 ## Conclusion
@@ -253,6 +323,9 @@ Shorts and TikTok are not the same in various ways. TikTok first emerged in the 
 
 They are both for short-form videos and allow creators to add music from audio libraries. You can also earn some good bucks with these two apps. However, they differ in some aspects. As Shorts can only be 15-seconds long, TikTok can go as long as three minutes. You can also view TikTok directly from its app while for Shorts, you need a separate app, YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## YouTube Shorts & TikTok: Which one Should You Choose for Personal Usage?
 
 Let’s focus on the TikTok and Shorts video by perusing the similarities and differences deeply.
@@ -283,6 +356,9 @@ Both apps have taken consideration into privacy issues. They allow creators to s
 
 There’s much that your video can portray. In both apps, you choose what to give to your audience. Both platforms enable you edit your video before posting. You can alter the speed by increasing or decreasing it for slow motion. Also, you can set timers to help with the filming process among other functionalities.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### \- Difference
 
 ##### 1) Instant messaging app
@@ -334,6 +410,9 @@ Social media platform is a solace to many users. You get entertained and also ha
 
 Both TikTok and Shorts give both creators and viewers the chance to share short videos for entertainment and promotional purposes. However, they are different in various aspects. Both the apps have their disadvantages and advantages, depending on a user’s preference. Dive into the next section to discover whether TikTok’s impact is about to be threatened by YouTube Shorts.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![compare youtube shorts with tiktok](https://images.wondershare.com/filmora/article-images/2021/shorts-tiktok-compare.png)
 
 #### In this article
@@ -354,6 +433,9 @@ They are both for short-form videos and allow creators to add music from audio l
 
 Let’s focus on the TikTok and Shorts video by perusing the similarities and differences deeply.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### \- Similiarity
 
 Check out in which aspects TikTok and Shorts are similar to each other.
@@ -380,6 +462,9 @@ Both apps have taken consideration into privacy issues. They allow creators to s
 
 There’s much that your video can portray. In both apps, you choose what to give to your audience. Both platforms enable you edit your video before posting. You can alter the speed by increasing or decreasing it for slow motion. Also, you can set timers to help with the filming process among other functionalities.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### \- Difference
 
 ##### 1) Instant messaging app
@@ -431,6 +516,9 @@ Social media platform is a solace to many users. You get entertained and also ha
 
 Both TikTok and Shorts give both creators and viewers the chance to share short videos for entertainment and promotional purposes. However, they are different in various aspects. Both the apps have their disadvantages and advantages, depending on a user’s preference. Dive into the next section to discover whether TikTok’s impact is about to be threatened by YouTube Shorts.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![compare youtube shorts with tiktok](https://images.wondershare.com/filmora/article-images/2021/shorts-tiktok-compare.png)
 
 #### In this article
@@ -451,6 +539,9 @@ They are both for short-form videos and allow creators to add music from audio l
 
 Let’s focus on the TikTok and Shorts video by perusing the similarities and differences deeply.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### \- Similiarity
 
 Check out in which aspects TikTok and Shorts are similar to each other.
@@ -477,6 +568,9 @@ Both apps have taken consideration into privacy issues. They allow creators to s
 
 There’s much that your video can portray. In both apps, you choose what to give to your audience. Both platforms enable you edit your video before posting. You can alter the speed by increasing or decreasing it for slow motion. Also, you can set timers to help with the filming process among other functionalities.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### \- Difference
 
 ##### 1) Instant messaging app
@@ -528,6 +622,9 @@ Social media platform is a solace to many users. You get entertained and also ha
 
 Both TikTok and Shorts give both creators and viewers the chance to share short videos for entertainment and promotional purposes. However, they are different in various aspects. Both the apps have their disadvantages and advantages, depending on a user’s preference. Dive into the next section to discover whether TikTok’s impact is about to be threatened by YouTube Shorts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![compare youtube shorts with tiktok](https://images.wondershare.com/filmora/article-images/2021/shorts-tiktok-compare.png)
 
 #### In this article
@@ -548,6 +645,9 @@ They are both for short-form videos and allow creators to add music from audio l
 
 Let’s focus on the TikTok and Shorts video by perusing the similarities and differences deeply.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### \- Similiarity
 
 Check out in which aspects TikTok and Shorts are similar to each other.
@@ -574,6 +674,9 @@ Both apps have taken consideration into privacy issues. They allow creators to s
 
 There’s much that your video can portray. In both apps, you choose what to give to your audience. Both platforms enable you edit your video before posting. You can alter the speed by increasing or decreasing it for slow motion. Also, you can set timers to help with the filming process among other functionalities.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### \- Difference
 
 ##### 1) Instant messaging app
@@ -588,6 +691,9 @@ TikTok Shorts videos also differ from the concept of stand along and built-in fe
 
 With TikTok, users can add video captions from the bottom left of the screen. It also comprises a large library of editing precepts like filters, greenscreen effects, among others. YouTube Shorts, on the other hand, is rich in a library of music. Users can access popular songs and directly switch to YouTube for trending videos as well.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### \- What More Should You Consider When Choosing - Your Personal Need
 
 Settling on YouTube Shorts and TikTok largely depends on your preferences. But being that TikTok has been in the limelight for a longer time, it has mastered users’ and creators’ preferences, bringing more to the table than YouTube Shorts.
@@ -598,6 +704,9 @@ TikTok stands a chance of being chosen by many users as it is an independent pla
 
 With TikTok, users can add video captions from the bottom left of the screen. It also comprises a large library of editing precepts like filters, greenscreen effects, among others. YouTube Shorts, on the other hand, is rich in a library of music. Users can access popular songs and directly switch to YouTube for trending videos as well.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## How to make quality videos for the apps you choose?
 
 Even though **TikTok and YouTube Shorts** both let you edit your videos, you can stile up your game with other editing apps like Filmora. This app will save your time and effort while giving you compelling video outcomes. Filmora comprises advanced features such as social import to let you import video clips and photos from social media platforms. Filmora is available on both Windows and Mac, widely accessible on a vast array of devices.
@@ -615,6 +724,18 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 **Settling on Shorts or Tiktok will largely depend on your preferences and personal needs**. If you are looking for [short video promotion on YouTube Shorts and Tiktok](https://tools.techidaily.com/wondershare/filmora/download/), you may need to consider different things. Yes, Shorts has some upper hand over TikTok like the ability to edit your videos after being published, a dislike button, and a scheduling tool that lets you schedule when your video goes live. TikTok is still above the cut being that it has been here long before Shorts. More so, it offers advanced editing features for quality video output. Above all, it works independently, a feature that most users adore as compared to the encasing of Shorts within YouTube.
@@ -634,3 +755,50 @@ For macOS 10.12 or later
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-engaging-community-add-friends-on-discord/"><u>[New] 2024 Approved  Engaging Community  Add Friends on Discord</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-mastering-tweet-reactions-a-complete-guide-for-23/"><u>[New] 2024 Approved  Mastering Tweet Reactions - A Complete Guide for '23</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-frame-your-vision-leading-lines-for-dynamic-iphone-photos-for-2024/"><u>[Updated] Frame Your Vision  Leading Lines for Dynamic iPhone Photos for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-secrets-to-mastering-photosvideos-in-windows-11/"><u>[Updated] Secrets to Mastering Photos/Videos in Windows 11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-fundamentals-of-crafting-high-quality-videos-for-instagram-audiences-for-2024/"><u>[Updated] The Fundamentals of Crafting High-Quality Videos for Instagram Audiences for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-how-to-remove-sound-from-iphone-video-easy-guide/"><u>2024 Approved How to Remove Sound From iPhone Video? Easy Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expert-tips-for-effective-pip-use-on-edge-browser/"><u>Expert Tips for Effective PIP Use on Edge Browser</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-14-without-apple-id-password-by-drfone-ios/"><u>How To Erase an Apple iPhone 14 Without Apple ID Password?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-curated-online-cinema-top-youtube-essentials/"><u>In 2024, Curated Online Cinema  Top YouTube Essentials</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-curating-a-musical-portfolio-in-youtube/"><u>In 2024, Curating a Musical Portfolio in Youtube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-curating-a-must-see-list-of-youtubes-top-makeup-talent/"><u>In 2024, Curating a Must-See List of YouTube's Top Makeup Talent</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-curating-soundscapes-a-detailed-look-at-youtube-playlists/"><u>In 2024, Curating Soundscapes  A Detailed Look at YouTube Playlists</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-curb-automated-youtube-content-feeds/"><u>In 2024, Curb Automated YouTube Content Feeds</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-custom-coverage-made-simple-fast-track-your-youtube-shorts-design/"><u>In 2024, Custom Coverage Made Simple  Fast-Track Your YouTube Shorts Design</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-custom-youtube-video-speed-control-desktopmobile/"><u>In 2024, Custom YouTube Video Speed Control (Desktop/Mobile)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-customizable-mcb-visuals-for-youtube-banners/"><u>In 2024, Customizable MCB Visuals for YouTube Banners</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-customize-video-speed-to-match-your-desired-watch-time/"><u>In 2024, Customize Video Speed to Match Your Desired Watch Time</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-customize-your-youtube-experience-with-altered-pace/"><u>In 2024, Customize Your YouTube Experience with Altered Pace</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-customize-your-youtube-view-adjust-speed-settings/"><u>In 2024, Customize Your YouTube View  Adjust Speed Settings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-down-clutter-discover-these-7-ultimate-android-app-blockers/"><u>In 2024, Cut Down Clutter  Discover These 7 Ultimate Android App Blockers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-down-catch-more-the-best-url-reducers-for-youtube/"><u>In 2024, Cut Down, Catch More  The Best URL Reducers for YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-expenses-create-wow-download-high-quality-templates-for-videos/"><u>In 2024, Cut Expenses, Create Wow - Download High-Quality Templates for Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-the-boring-watch-these-15-hilarious-youtube-bites/"><u>In 2024, Cut the Boring, Watch These 15 Hilarious YouTube Bites</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-the-clutter-convert-videos-discover-the-best-alternatives-for-flv-to-yt/"><u>In 2024, Cut the Clutter, Convert Videos  Discover the Best Alternatives for Flv to YT</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-the-cost-not-your-content-quality-try-these-top-8-free-tools/"><u>In 2024, Cut The Cost, Not Your Content Quality - Try These Top 8 Free Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-through-the-noise-with-these-top-10-yt-short-standout-strategies/"><u>In 2024, Cut Through the Noise with These Top 10 YT Short Standout Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-to-impress-youtube-video-editing-made-simple/"><u>In 2024, Cut to Impress  YouTube Video Editing Made Simple</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-to-perfection-premier-android-editing-software/"><u>In 2024, Cut to Perfection  Premier Android Editing Software</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-to-perfection-top-video-editors-for-youtubers/"><u>In 2024, Cut to Perfection  Top Video Editors for YouTubers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-to-the-chase-strategies-top-20-youtube-tips-for-growth/"><u>In 2024, Cut-to-the-Chase Strategies  Top 20 YouTube Tips for Growth</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-and-compositing-for-youtube-videos-using-premiere-pro/"><u>In 2024, Cutting and Compositing for YouTube Videos Using Premiere Pro</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-costs-without-compromising-on-youtube-intros-quality/"><u>In 2024, Cutting Costs without Compromising on YouTube Intros Quality</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-excellence-top-editors-for-videos/"><u>In 2024, Cutting Edge Excellence  Top Editors for Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-8-content-creators-skyrocketing-growth/"><u>In 2024, Cutting-Edge 8 Content Creators Skyrocketing Growth</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-camera-and-recording-apps-for-smartphones-most-reliable-sources/"><u>In 2024, Cutting-Edge Camera & Recording Apps for Smartphones' Most Reliable Sources</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-content-sharing-your-guide-to-youtubeplustiktok-linkup/"><u>In 2024, Cutting-Edge Content Sharing  Your Guide to YouTube+TikTok Linkup</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-creativity-top-editors-for-online-sharing/"><u>In 2024, Cutting-Edge Creativity  Top Editors for Online Sharing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-editors-elevating-online-videos/"><u>In 2024, Cutting-Edge Editors Elevating Online Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-filmmaking-techniques-youtubes-insights-and-competitors/"><u>In 2024, Cutting-Edge Filmmaking Techniques  YouTube's Insights & Competitors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-free-audio-for-youtube-visionaries/"><u>In 2024, Cutting-Edge Free Audio for YouTube Visionaries</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/top-5-mp3-compatible-voice-capture-devices-for-effortless-audio-storage/"><u>Top 5 MP3-Compatible Voice Capture Devices for Effortless Audio Storage</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-demystifying-pixel-calculations-a-beginners-guide/"><u>Updated Demystifying Pixel Calculations A Beginners Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>updated In 2024, Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+</ul></div>

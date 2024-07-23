@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2024-05-25T16:36:36.970Z
-updated: 2024-05-26T16:36:36.970Z
+date: 2024-07-22T17:32:53.261Z
+updated: 2024-07-23T17:32:53.261Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
 excerpt: "This Article Describes [Updated] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
 keywords: "\"Low-Cost Intro Tips,Engaging Video Starts,Professional Video Ends,DIY Intros Guide,Effective End Credits,Budget Tutorial for Videos,YouTube Intro Crafting\""
-thumbnail: https://www.lifewire.com/thmb/jPrdYdSLjslalhW7IaTG5T7eeCw=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1012916614-9c7175b024cf4ef2b9f4a523914c9304.jpg
+thumbnail: https://thmb.techidaily.com/42d888d9431637ab1388aeb276d6888b24b9d1d85a816656ff3b301d8b067e97.jpg
 ---
 
 ## Affordable Tutorial on Professional Looking YouTube Intros/Ends
@@ -77,6 +77,9 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -110,6 +113,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -262,6 +268,9 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -273,6 +282,9 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -306,6 +318,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -334,6 +349,9 @@ Follow @Shanoon Cox
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -424,10 +442,16 @@ Follow @Shanoon Cox
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Creating Impressive 3D Beginnings on YouTube
 
 # Top 5 3D Intro Makers for YouTube Videos
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -436,6 +460,10 @@ Follow @Shanoon Cox
 
 First impressions matter, in real life and in the world of online content production. The attention span of an average person who watches videos online is rather limited, which means that you, as a YouTube video creator, have only a small window of opportunity to captivate their attention. A 3D intro can be just the thing you need to set the tone for an entire video, so in this article, we are going to take you through some of the best intro makers you can use on your PC or Mac computers, online or on your Smartphones.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## The 5 Best 3D Intro Makers for YouTube Videos
 
 Creating 3D animations from scratch is far from easy since you are going to need to be familiar with both the animation techniques and the animation software you’re using to create 3D intros for your YouTube videos. That’s why some of the intro makers, we included in this article, offer customizable templates that enable you to create stunning intros for your videos with ease. So, let’s get started.
@@ -502,6 +530,10 @@ Follow @Richard Bennett
 
 First impressions matter, in real life and in the world of online content production. The attention span of an average person who watches videos online is rather limited, which means that you, as a YouTube video creator, have only a small window of opportunity to captivate their attention. A 3D intro can be just the thing you need to set the tone for an entire video, so in this article, we are going to take you through some of the best intro makers you can use on your PC or Mac computers, online or on your Smartphones.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## The 5 Best 3D Intro Makers for YouTube Videos
 
 Creating 3D animations from scratch is far from easy since you are going to need to be familiar with both the animation techniques and the animation software you’re using to create 3D intros for your YouTube videos. That’s why some of the intro makers, we included in this article, offer customizable templates that enable you to create stunning intros for your videos with ease. So, let’s get started.
@@ -568,6 +600,9 @@ Follow @Richard Bennett
 
 First impressions matter, in real life and in the world of online content production. The attention span of an average person who watches videos online is rather limited, which means that you, as a YouTube video creator, have only a small window of opportunity to captivate their attention. A 3D intro can be just the thing you need to set the tone for an entire video, so in this article, we are going to take you through some of the best intro makers you can use on your PC or Mac computers, online or on your Smartphones.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## The 5 Best 3D Intro Makers for YouTube Videos
 
 Creating 3D animations from scratch is far from easy since you are going to need to be familiar with both the animation techniques and the animation software you’re using to create 3D intros for your YouTube videos. That’s why some of the intro makers, we included in this article, offer customizable templates that enable you to create stunning intros for your videos with ease. So, let’s get started.
@@ -620,6 +655,9 @@ If you choose to install the Intro Maker for YouTube app on your phone you will 
 
 Making the videos you share on your YouTube channel more dynamic and visually dynamic doesn’t have to be a process that takes hours of hard work, because you can use a template that can be quickly customized to match the visual style of your video. Which method you creating 3D YouTube intros do you like to use the most? Leave a comment below and let us know.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -686,6 +724,9 @@ If you choose to install the Intro Maker for YouTube app on your phone you will 
 
 Making the videos you share on your YouTube channel more dynamic and visually dynamic doesn’t have to be a process that takes hours of hard work, because you can use a template that can be quickly customized to match the visual style of your video. Which method you creating 3D YouTube intros do you like to use the most? Leave a comment below and let us know.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -709,3 +750,57 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ield-cash-reviewing-gadgets-apparel-and-more-on-the-web/"><u>[New] Yield Cash Reviewing Gadgets, Apparel, and More on the Web</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-premium-recording-solutions-windows-edition/"><u>[Updated] 2024 Approved  Premium Recording Solutions  Windows Edition</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-freedom-in-memories-your-instagrams-savior/"><u>[Updated] In 2024, Freedom in Memories  Your Instagram's Savior</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-join-the-monetized-majority-with-500-subscribers/"><u>[Updated] Join the Monetized Majority with 500 Subscribers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-securing-your-playtime-with-diverse-gaming-screen-capture-software/"><u>[Updated] Securing Your Playtime with Diverse Gaming Screen Capture Software</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Xiaomi 13T Pro? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/methods-for-correcting-erratic-mouse-scrolling/"><u>Methods for Correcting Erratic Mouse Scrolling</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-the-intricacies-of-kinemasters-zooming-capabilities-for-2024/"><u>Navigating the Intricacies of Kinemaster's Zooming Capabilities for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-editors-playbook-essential-strategies-for-youtube-video-crafting/"><u>The Editor's Playbook  Essential Strategies for Youtube Video Crafting</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-eminence-of-online-influence-top-10-by-subs/"><u>The Eminence of Online Influence  Top 10 by Subs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-entrepreneurs-handbook-quick-channel-creation-on-the-go-with-mobile-devices/"><u>The Entrepreneur's Handbook  Quick Channel Creation on the Go with Mobile Devices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-escape-artists-manual-to-disguised-youtube-archives/"><u>The Escape Artist's Manual to Disguised YouTube Archives</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essence-and-creation-process-of-mukbangs/"><u>The Essence and Creation Process of Mukbangs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essence-of-great-edu-videos-a-compreenasion-guide-to-youtube-excellence/"><u>The Essence of Great Edu-Videos  A Compreenasion Guide to YouTube Excellence</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-camera-toolkit-for-yt-enthusiasts/"><u>The Essential Camera Toolkit for YT Enthusiasts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-checklist-for-consistent-content-creators/"><u>The Essential Checklist for Consistent Content Creators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-checklist-for-yt-creator-mastery/"><u>The Essential Checklist for YT Creator Mastery</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-checklist-to-amplify-video-income-on-youtube/"><u>The Essential Checklist to Amplify Video Income on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-differences-between-youtube-and-dailymention/"><u>The Essential Differences Between YouTube and DailyMention</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-guide-for-game-channels-banner-integration/"><u>The Essential Guide for Game Channels Banner Integration</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-guide-to-aspect-ratios-on-youtube-platforms/"><u>The Essential Guide to ASPECT RATIOS on YOUTUBE Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-guide-to-sports-highlight-video-creation/"><u>The Essential Guide to Sports Highlight Video Creation</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-guide-to-using-finalcut-pro-in-youtube-editing/"><u>The Essential Guide to Using FinalCut Pro in YouTube Editing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-handbook-youtube-shorts-editing-and-mp4-output/"><u>The Essential Handbook  YouTube Shorts Editing and MP4 Output</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-handheld-guide-to-youtube-production/"><u>The Essential Handheld Guide to YouTube Production</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-list-free-youtube-subtitle-extractor-apps/"><u>The Essential List  Free YouTube Subtitle Extractor Apps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-manual-for-youtube-to-gif-conversion-online/"><u>The Essential Manual for YouTube-to-GIF Conversion Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-manual-to-creating-youtube-playlists/"><u>The Essential Manual to Creating YouTube Playlists</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-manual-to-earning-from-youtube-videos/"><u>The Essential Manual to Earning From YouTube Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-playbook-achieving-peak-video-editing-on-youtube-studio/"><u>The Essential Playbook  Achieving Peak Video Editing on YouTube Studio</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-playbook-youtubes-seo-keywords-guide/"><u>The Essential Playbook  YouTube's SEO Keywords Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-steps-to-joining-youtubes-2024-partnership/"><u>The Essential Steps to Joining YouTube's 2024 Partnership</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-toolkit-3d-video-entrances-ranked/"><u>The Essential Toolkit  3D Video Entrances Ranked</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-tutorial-for-youtube-studio-editor-use/"><u>The Essential Tutorial for YouTube Studio Editor Use</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essentials-everyone-needs-to-know-about-youtube-tv-services/"><u>The Essentials Everyone Needs to Know About YouTube TV Services</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essentials-of-adding-emojis-to-youtube-discussions/"><u>The Essentials of Adding Emojis to Youtube Discussions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essentials-of-crafting-youtube-videos-from-start-to-finish/"><u>The Essentials of Crafting YouTube Videos From Start to Finish</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essentials-of-making-viral-haul-videography/"><u>The Essentials of Making Viral Haul Videography</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essentials-of-making-viral-haul-videos-online/"><u>The Essentials of Making Viral Haul Videos Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essentials-of-stylistic-self-discovery-high-impact/"><u>The Essentials of Stylistic Self-Discovery [High Impact]</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essentials-of-youtube-gaming-livestreaming/"><u>The Essentials of YouTube Gaming Livestreaming</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essentials-of-youtubes-latest-payment-policy/"><u>The Essentials of YouTube's Latest Payment Policy</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essentials-to-carve-out-your-creative-space/"><u>The Essentials to Carve Out Your Creative Space</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ethical-way-to-grow-your-fan-base-effectively/"><u>The Ethical Way to Grow Your Fan Base Effectively</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-expert-market-approach-rapid-eradication-on-youtube/"><u>The Expert' Market Approach  Rapid Eradication on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-experts-approach-to-inserting-subtitlescc-on-youtube-videos/"><u>The Expert's Approach to Inserting Subtitles/CC on YouTube Videos</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-best-subtitle-edit-replacements-for-mac-users-for-2024/"><u>Updated Best Subtitle Edit Replacements for Mac Users for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/winning-film-tech-comprerantes-top-5-windows-editing-tools/"><u>Winning Film Tech  Comprerante's Top 5 Windows Editing Tools</u></a></li>
+</ul></div>

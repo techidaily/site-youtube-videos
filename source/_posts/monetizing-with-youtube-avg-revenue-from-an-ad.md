@@ -1,7 +1,7 @@
 ---
 title: "\"Monetizing with Youtube  Avg Revenue From An Ad?\""
-date: 2024-05-25T15:47:21.155Z
-updated: 2024-05-26T15:47:21.155Z
+date: 2024-07-22T16:56:42.481Z
+updated: 2024-07-23T16:56:42.481Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Monetizing with Youtube: Avg Revenue From An Ad?\""
 excerpt: "\"This Article Describes Monetizing with Youtube: Avg Revenue From An Ad?\""
 keywords: "YouTube Ad Revenue,Average Youtube Earnings,Monetizing YouTube Channels,Video Platform Income,Ad Profit on YouTubers,YouTube Ads Money,Earning From Online Videos"
-thumbnail: https://www.lifewire.com/thmb/rX4VsgpJpJWRX7spZaoO_weuJBg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/theideaofyou-1932ff92f059479da5323a854078e783.jpeg
+thumbnail: https://thmb.techidaily.com/1dd490a8bd0fd9490b2a1a7e2f3e07f4fe288167493a224a8c1401933c662484.jpeg
 ---
 
 ## Monetizing with Youtube: Avg Revenue From An Ad?
@@ -28,6 +28,9 @@ YouTube is a great way to make money online through sponsorship and selling merc
 
 Are you curious about how much YouTubers make per view? Most people are. The Influencer Marketing Hub estimates that the average YouTuber makes $0.018 per view. These rates vary from $0.10 to $0.30 per ad view depending on the type of video and location.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![factors affecting youtube cpm](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-1.JPG)
 
 The YouTube monetization rates vary significantly because of various factors:
@@ -60,6 +63,9 @@ The figures above are just estimates. YouTubers often make more or less this amo
 
 To get paid from revenues, you need to be eligible for the YouTube Partner Program (YPP). The following is the eligibility criteria.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ypp eligibility](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-3.JPG)
 
 The specific eligibility criteria include the following:
@@ -86,22 +92,34 @@ YouTube creates a clear path for the birth of a new breed of celebrities. They h
 
 ### **1\.** [**Mr. Beast (Jimmy Donaldson) - $54 Million**](https://www.youtube.com/channel/UCX6OQ3DkcsbYNE6H8uQQuVA)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![mr. beast](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-4.JPG)
 
 Ranked first among the highest-paid YouTubers, Jimmy has the most popular channel. With more than 150 million subscribers, he creates videos about challenges, pranks, and giveaways. The videos have accumulated billions of views, contributing to his estimated net worth of over $100 million. Another important source of income is the Mr. Beast Burger app and menu that lets fans order MrBeast-banded meals from over 1,600 restaurants across the country.
 
 ### 2\. [**Jake Paul - $45 million**](https://www.youtube.com/@jakepaul)
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![jake paul](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-5.JPG)
 
 Jake Paul is a renowned American professional boxer. Widely famous on social media, his YouTube is also one of the most highly ranked. He shares different kinds of videos from his boxing games. He also does pranks and reviews about different products.
 
 ### 3\. [**Markiplier - $38 Million**](https://www.youtube.com/channel/UC7%5FYxT-KID8kRbqZo7MyscQ)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![markiplier](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-6.JPG)
 
 Markiplier makes videos about playing games. The YouTube channel, which started in 2021 is renowned for moving merch. In addition to ad revenue, Markiplier records high sales of T-shirts, hoodies, and other items tied to the Unus Annus series.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### **4\.** [**Rhett and Link - $30 million**](https://www.youtube.com/channel/UCbochVIwBCzJb9I2lLGXGjQ)
 
 ![rhett and link](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-7.JPG)
@@ -114,8 +132,14 @@ This YouTube channel started as the duo hosting a nerdy daily talk show called _
 
 Unspeakable talks about Minecraft in the channel. Nathan Graham posts videos of himself playing this and other games. He also posts other kinds of entertaining content such as filling a room with live alligators. His creativity has allowed him to collaborate with brands in making different ads and promotions.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **6\.** [**Nastya - $28 million**](https://www.youtube.com/channel/UCJplp5SjeGSdVdwsfb9Q7lQ)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ![nastya](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-9.JPG)
 
 Nastya immigrated from Russia with her parents. With over 88 million subscribers on her channel, she chronicles her life in prosaic installments. In 2021, she did a Spotter deal and added other brand extensions like merchandise and NFT collection that contributed added income.
@@ -130,6 +154,9 @@ The amount of money a YouTuber earns depends on several factors. However, the am
 
 With the integration of AI, Filmora now offers a wide range of editing features that you can use to automate editing. Instantly generate images, remove image background, and now. These features help create visually appealing and engaging videos that will increase the chances of monetization on YouTube. One of the AI features that stands out is Instant Mode.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### [**Filmora Instant Mode**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The Instant Mode helps beginners design slideshow videos with minimal effort. You probably have no video editing experience or a professional content creator with no time to make more videos. With Instant Mode, you can create a video within minutes. Let’s have a look at the steps involved:
@@ -138,6 +165,9 @@ The Instant Mode helps beginners design slideshow videos with minimal effort. Yo
 
 After opening Filmora on your device, click on Instant Mode. This feature is on the left side of the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instant mode 1](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-10.JPG)
 
 #### **Step 2 – Choose a Template**
@@ -174,8 +204,14 @@ Once you are satisfied with your slideshow video, click on the Timeline button. 
 
 Click on the Play icon to preview the edited video. Then export it in MP4 format for quick upload to YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ![instant mode 7](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-16.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **Other Useful Filmora Video Editing Features**
 
 * [AI Portrait](https://tools.techidaily.com/wondershare/filmora/download/) – Remove the background of your videos with high accuracy and choose over 70 portrait and sticker effects.
@@ -192,6 +228,9 @@ Running a YouTube Channel is lucrative. Although it may take time to build a fol
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 1\. How Much Do YouTubers Make Per View?**
 
 Are you curious about how much YouTubers make per view? Most people are. The Influencer Marketing Hub estimates that the average YouTuber makes $0.018 per view. These rates vary from $0.10 to $0.30 per ad view depending on the type of video and location.
@@ -224,6 +263,18 @@ Most YouTubers report to earn around $5 to $7 from 1,000 views of their videos. 
 
 The figures above are just estimates. YouTubers often make more or less this amount.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 3\. How Many Views Do YouTubers Need to Get Paid?**
 
 To get paid from revenues, you need to be eligible for the YouTube Partner Program (YPP). The following is the eligibility criteria.
@@ -241,6 +292,9 @@ The specific eligibility criteria include the following:
 
 Once approved for the YPP, you have the potential to start earning through ads. The revenue-sharing program allows you to earn income for the ads that show on your channel. Specifically, Google will pay you 68% of the revenue from the ads displayed with AdSense. For instance, a video that generates $1,000 from AdSense revenue will pay the YouTuber $680.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 4\. The Top 6 Highest Paid YouTubers**
 
 YouTube creates a clear path for the birth of a new breed of celebrities. They have a huge following, and grow their wealth by sharing content with them. Let’s have a look at the top 6 paid YouTubers right now:
@@ -252,6 +306,9 @@ YouTube creates a clear path for the birth of a new breed of celebrities. They h
 * [Unspeakable - $28.5 million](#youtuber5)
 * [Nastya - $28 million](#youtuber6)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### **1\.** [**Mr. Beast (Jimmy Donaldson) - $54 Million**](https://www.youtube.com/channel/UCX6OQ3DkcsbYNE6H8uQQuVA)
 
 ![mr. beast](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-4.JPG)
@@ -270,24 +327,52 @@ Jake Paul is a renowned American professional boxer. Widely famous on social med
 
 Markiplier makes videos about playing games. The YouTube channel, which started in 2021 is renowned for moving merch. In addition to ad revenue, Markiplier records high sales of T-shirts, hoodies, and other items tied to the Unus Annus series.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **4\.** [**Rhett and Link - $30 million**](https://www.youtube.com/channel/UCbochVIwBCzJb9I2lLGXGjQ)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![rhett and link](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-7.JPG)
 
 This YouTube channel started as the duo hosting a nerdy daily talk show called _Good Mythical Morning_. It quickly grew into an empire with brand extensions and spinoffs that boosted its views and earnings on YouTube.
 
 ### **5\.** [**Unspeakable - $28.5 million**](https://www.youtube.com/channel/UCwIWAbIeu0xI0ReKWOcw3eg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![unspeakable](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-8.JPG)
 
 Unspeakable talks about Minecraft in the channel. Nathan Graham posts videos of himself playing this and other games. He also posts other kinds of entertaining content such as filling a room with live alligators. His creativity has allowed him to collaborate with brands in making different ads and promotions.
 
 ### **6\.** [**Nastya - $28 million**](https://www.youtube.com/channel/UCJplp5SjeGSdVdwsfb9Q7lQ)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ![nastya](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-9.JPG)
 
 Nastya immigrated from Russia with her parents. With over 88 million subscribers on her channel, she chronicles her life in prosaic installments. In 2021, she did a Spotter deal and added other brand extensions like merchandise and NFT collection that contributed added income.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## **Part 5\.** **Edit Your Videos for Monetization with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 The amount of money a YouTuber earns depends on several factors. However, the amount can be increased by uploading quality videos. YouTube will quality and engaging content attract more audience, increasing the opportunities for revenue generation. Wondershare Filmora is one such software, that allows you to tell your story in a better way.
@@ -298,6 +383,9 @@ The amount of money a YouTuber earns depends on several factors. However, the am
 
 With the integration of AI, Filmora now offers a wide range of editing features that you can use to automate editing. Instantly generate images, remove image background, and now. These features help create visually appealing and engaging videos that will increase the chances of monetization on YouTube. One of the AI features that stands out is Instant Mode.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ### [**Filmora Instant Mode**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The Instant Mode helps beginners design slideshow videos with minimal effort. You probably have no video editing experience or a professional content creator with no time to make more videos. With Instant Mode, you can create a video within minutes. Let’s have a look at the steps involved:
@@ -312,6 +400,9 @@ After opening Filmora on your device, click on Instant Mode. This feature is on 
 
 From the Instant Mode window, choose the video template you want to use. Click on it and play to preview the Video. Once satisfied, click om the Download Slideshow button to start editing your video.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instant mode 2](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-11.JPG)
 
 #### **Step 3 – Import Media Items**
@@ -324,6 +415,9 @@ Click on the Import Your Media icon, and add all the media files you want to use
 
 From the top-left corner of the screen, click the “Titles” category. Then choose from the options available for the required title template.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instant mode 4](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-13.JPG)
 
 #### **Step 5 – Replace Needed Media Items**
@@ -336,12 +430,18 @@ Review all the media items in the timeline, and replace any that you want with a
 
 Once you are satisfied with your slideshow video, click on the Timeline button. This will take you to Filmora’s editing environment where you can add effects and other elements to enhance the video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![instant mode 6](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-15.JPG)
 
 #### **Step 7 – Preview and Export Your Video**
 
 Click on the Play icon to preview the edited video. Then export it in MP4 format for quick upload to YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![instant mode 7](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-16.JPG)
 
 ### **Other Useful Filmora Video Editing Features**
@@ -388,10 +488,16 @@ Despite creating a beautiful banner on your desktop screen, it might end up dist
 * [**Part 2: The Best YouTube Banner Size on Different Devices**](#part2)
 * [**Part 3: The Best YouTube Video Maker--Wondershare Filmora**](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: The Recommended YouTube Banner Size
 
 According to YouTube's official standards, the recommended banner size is 2560×1440 pixels. However, the minimum image dimensions are 2048×1152 pixels. To ensure that your text is visible regardless of the screen size, sticking to the "safe area" of 2560×423 pixels is the best option. Why are these sizes significant? Well, it's essential to keep in mind the fact that people worldwide will be using different kinds of gadgets to access YouTube, and it is crucial to optimize your YouTube banner size for it to be ideal.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: The Best YouTube Banner Size on Different Devices
 
 For the best results on all devices, your YouTube banner size should be:
@@ -405,6 +511,9 @@ For the best results on all devices, your YouTube banner size should be:
 
  2560 x 1440 px
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
  ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
 YouTube will display your entire channel art on TVs
@@ -417,10 +526,17 @@ Here’s what our YouTube channel art example would look like on a TV.
 
  1546 x 423 px
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
  ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
  ![channel art on mobile](https://images.wondershare.com/filmora/article-images/channel-art-on-mobile4.jpg)
 
 Here’s what our YouTube channel art example would look like on a mobile phone.
@@ -433,6 +549,10 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
  ![channel art on tablet](https://images.wondershare.com/filmora/article-images/channel-art-on-tablet6.jpg)
 
 Here’s what our YouTube channel art example would look like on a tablet device.
@@ -474,6 +594,10 @@ Want to create a spectacular YouTube video with excellent graphics but lack the 
 * Processor: Intel i3 or better multicore processor, 2GHz or above.
 * RAM: 4 GB RAM (8GB required for HD and 4K videos).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## To Sum Up
 
 So, are you ready to optimize your channel by following the YouTube banner size's basic requirements? We hope you are now aware of the importance your YouTube channel art dimension has.
@@ -519,10 +643,17 @@ For the best results on all devices, your YouTube banner size should be:
 
  2560 x 1440 px
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
  ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
 YouTube will display your entire channel art on TVs
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
  ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
@@ -531,10 +662,16 @@ Here’s what our YouTube channel art example would look like on a TV.
 
  1546 x 423 px
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
  ![channel art on mobile](https://images.wondershare.com/filmora/article-images/channel-art-on-mobile4.jpg)
 
 Here’s what our YouTube channel art example would look like on a mobile phone.
@@ -555,10 +692,16 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
  2560 x 423 px
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  ![channel art on desktop max](https://images.wondershare.com/filmora/article-images/channel-art-on-desktop-max8.jpg)
 
 Here’s what our YouTube channel art example would look like on a large desktop monitor.
@@ -569,10 +712,151 @@ Have you ever had trouble with your YouTube banner size?
 
 If you'd like to make your own channel art, check out our list of [Top 9 YouTube Channel Art Makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Part 3: The Best YouTube Video Maker--Wondershare Filmora
 
 Want to create a spectacular YouTube video with excellent graphics but lack the expertise? Don't stress! Wondershare Filmora is here to save the day with its incredible video editing features. Despite the professional outcome it provides, it has been customized for easy use by the beginners.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Key Features:**
+
+* Supports GIF and 4K Resolution with advanced text editing features.
+* Directly import files from any social media platform, for example, Facebook.
+* Transform your video by layering multiple video clips and adding titles, filters, and overlays.
+* Time-lapse, noise reduction, and split-screen preset available.
+
+**Compatibility:**
+
+* Windows: Microsoft Windows 7/Windows 8/Windows 10 (64 bit OS recommended).
+* Processor: Intel i3 or better multicore processor, 2GHz or above.
+* RAM: 4 GB RAM (8GB required for HD and 4K videos).
+
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
+## To Sum Up
+
+So, are you ready to optimize your channel by following the YouTube banner size's basic requirements? We hope you are now aware of the importance your YouTube channel art dimension has.
+
+Also, for your channel to be distinctive and attractive enough, it must be edited, which is now relatively easy through video editing apps like the Wondershare Filmora. What are you waiting for? Invest in this pocket-friendly application to create stunning videos in no time and take your channel to the next level.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube is a social platform that relies on visually exciting material to attract the audience. Just like a book with an appealing cover compels a person to pick it up and read, it is significant to display and advertise your YouTube channel in a way that makes viewers click and browse through the channel.
+
+Despite creating a beautiful banner on your desktop screen, it might end up distorted on a mobile screen if the recommended sizes for all kinds of gadgets are not followed. Hence, choosing your YouTube channel art dimension is essential since it is the viewer's first impression. To commence with, you must be careful about your **YouTube banner size** and **channel art dimensions**. Are you wondering how to create the perfect banner or cover photo as we know it? Worry not as we are going to tell you the exact details to achieve an ideal YouTube banner size that fits all devices from computers to phones.
+
+* [**Part 1: The Recommended YouTube Banner Size**](#part1)
+* [**Part 2: The Best YouTube Banner Size on Different Devices**](#part2)
+* [**Part 3: The Best YouTube Video Maker--Wondershare Filmora**](#part3)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 1: The Recommended YouTube Banner Size
+
+According to YouTube's official standards, the recommended banner size is 2560×1440 pixels. However, the minimum image dimensions are 2048×1152 pixels. To ensure that your text is visible regardless of the screen size, sticking to the "safe area" of 2560×423 pixels is the best option. Why are these sizes significant? Well, it's essential to keep in mind the fact that people worldwide will be using different kinds of gadgets to access YouTube, and it is crucial to optimize your YouTube banner size for it to be ideal.
+
+## Part 2: The Best YouTube Banner Size on Different Devices
+
+For the best results on all devices, your YouTube banner size should be:
+
+1. [TV](#TV)
+2. [Desktop Minimum and Mobile](#Mobile)
+3. [Tablet](#Tablet)
+4. [Desktop Max](#DesktopMax)
+
+#### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
+
+ 2560 x 1440 px
+
+ ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
+
+YouTube will display your entire channel art on TVs
+
+ ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+
+Here’s what our YouTube channel art example would look like on a TV.
+
+#### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
+
+ 1546 x 423 px
+
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+
+On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
+
+ ![channel art on mobile](https://images.wondershare.com/filmora/article-images/channel-art-on-mobile4.jpg)
+
+Here’s what our YouTube channel art example would look like on a mobile phone.
+
+#### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
+
+1855 x 423 px
+
+![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+
+On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
+
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+ ![channel art on tablet](https://images.wondershare.com/filmora/article-images/channel-art-on-tablet6.jpg)
+
+Here’s what our YouTube channel art example would look like on a tablet device.
+
+#### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
+
+ 2560 x 423 px
+
+ ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+
+On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
+ ![channel art on desktop max](https://images.wondershare.com/filmora/article-images/channel-art-on-desktop-max8.jpg)
+
+Here’s what our YouTube channel art example would look like on a large desktop monitor.
+
+ By following these dimensions in the design of your YouTube channel art/banner, you can be sure to have a responsive image that works best across different devices.
+
+Have you ever had trouble with your YouTube banner size?
+
+If you'd like to make your own channel art, check out our list of [Top 9 YouTube Channel Art Makers](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: The Best YouTube Video Maker--Wondershare Filmora
+
+Want to create a spectacular YouTube video with excellent graphics but lack the expertise? Don't stress! Wondershare Filmora is here to save the day with its incredible video editing features. Despite the professional outcome it provides, it has been customized for easy use by the beginners.
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Key Features:**
@@ -616,6 +900,9 @@ Despite creating a beautiful banner on your desktop screen, it might end up dist
 * [**Part 2: The Best YouTube Banner Size on Different Devices**](#part2)
 * [**Part 3: The Best YouTube Video Maker--Wondershare Filmora**](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: The Recommended YouTube Banner Size
 
 According to YouTube's official standards, the recommended banner size is 2560×1440 pixels. However, the minimum image dimensions are 2048×1152 pixels. To ensure that your text is visible regardless of the screen size, sticking to the "safe area" of 2560×423 pixels is the best option. Why are these sizes significant? Well, it's essential to keep in mind the fact that people worldwide will be using different kinds of gadgets to access YouTube, and it is crucial to optimize your YouTube banner size for it to be ideal.
@@ -633,6 +920,9 @@ For the best results on all devices, your YouTube banner size should be:
 
  2560 x 1440 px
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
 YouTube will display your entire channel art on TVs
@@ -649,6 +939,18 @@ Here’s what our YouTube channel art example would look like on a TV.
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  ![channel art on mobile](https://images.wondershare.com/filmora/article-images/channel-art-on-mobile4.jpg)
 
 Here’s what our YouTube channel art example would look like on a mobile phone.
@@ -657,6 +959,9 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 1855 x 423 px
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
@@ -669,6 +974,9 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
  2560 x 423 px
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
  ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
@@ -683,6 +991,9 @@ Have you ever had trouble with your YouTube banner size?
 
 If you'd like to make your own channel art, check out our list of [Top 9 YouTube Channel Art Makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: The Best YouTube Video Maker--Wondershare Filmora
 
 Want to create a spectacular YouTube video with excellent graphics but lack the expertise? Don't stress! Wondershare Filmora is here to save the day with its incredible video editing features. Despite the professional outcome it provides, it has been customized for easy use by the beginners.
@@ -702,120 +1013,9 @@ Want to create a spectacular YouTube video with excellent graphics but lack the 
 * Processor: Intel i3 or better multicore processor, 2GHz or above.
 * RAM: 4 GB RAM (8GB required for HD and 4K videos).
 
-## To Sum Up
-
-So, are you ready to optimize your channel by following the YouTube banner size's basic requirements? We hope you are now aware of the importance your YouTube channel art dimension has.
-
-Also, for your channel to be distinctive and attractive enough, it must be edited, which is now relatively easy through video editing apps like the Wondershare Filmora. What are you waiting for? Invest in this pocket-friendly application to create stunning videos in no time and take your channel to the next level.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-YouTube is a social platform that relies on visually exciting material to attract the audience. Just like a book with an appealing cover compels a person to pick it up and read, it is significant to display and advertise your YouTube channel in a way that makes viewers click and browse through the channel.
-
-Despite creating a beautiful banner on your desktop screen, it might end up distorted on a mobile screen if the recommended sizes for all kinds of gadgets are not followed. Hence, choosing your YouTube channel art dimension is essential since it is the viewer's first impression. To commence with, you must be careful about your **YouTube banner size** and **channel art dimensions**. Are you wondering how to create the perfect banner or cover photo as we know it? Worry not as we are going to tell you the exact details to achieve an ideal YouTube banner size that fits all devices from computers to phones.
-
-* [**Part 1: The Recommended YouTube Banner Size**](#part1)
-* [**Part 2: The Best YouTube Banner Size on Different Devices**](#part2)
-* [**Part 3: The Best YouTube Video Maker--Wondershare Filmora**](#part3)
-
-## Part 1: The Recommended YouTube Banner Size
-
-According to YouTube's official standards, the recommended banner size is 2560×1440 pixels. However, the minimum image dimensions are 2048×1152 pixels. To ensure that your text is visible regardless of the screen size, sticking to the "safe area" of 2560×423 pixels is the best option. Why are these sizes significant? Well, it's essential to keep in mind the fact that people worldwide will be using different kinds of gadgets to access YouTube, and it is crucial to optimize your YouTube banner size for it to be ideal.
-
-## Part 2: The Best YouTube Banner Size on Different Devices
-
-For the best results on all devices, your YouTube banner size should be:
-
-1. [TV](#TV)
-2. [Desktop Minimum and Mobile](#Mobile)
-3. [Tablet](#Tablet)
-4. [Desktop Max](#DesktopMax)
-
-#### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
-
- 2560 x 1440 px
-
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
-
-Here’s what our YouTube channel art example would look like on a TV.
-
-#### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
-
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
-
-On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
-
- ![channel art on mobile](https://images.wondershare.com/filmora/article-images/channel-art-on-mobile4.jpg)
-
-Here’s what our YouTube channel art example would look like on a mobile phone.
-
-#### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
-
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
-
-On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
-
- ![channel art on tablet](https://images.wondershare.com/filmora/article-images/channel-art-on-tablet6.jpg)
-
-Here’s what our YouTube channel art example would look like on a tablet device.
-
-#### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
-
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
-
-On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
-
- ![channel art on desktop max](https://images.wondershare.com/filmora/article-images/channel-art-on-desktop-max8.jpg)
-
-Here’s what our YouTube channel art example would look like on a large desktop monitor.
-
- By following these dimensions in the design of your YouTube channel art/banner, you can be sure to have a responsive image that works best across different devices.
-
-Have you ever had trouble with your YouTube banner size?
-
-If you'd like to make your own channel art, check out our list of [Top 9 YouTube Channel Art Makers](https://tools.techidaily.com/wondershare/filmora/download/).
-
-## Part 3: The Best YouTube Video Maker--Wondershare Filmora
-
-Want to create a spectacular YouTube video with excellent graphics but lack the expertise? Don't stress! Wondershare Filmora is here to save the day with its incredible video editing features. Despite the professional outcome it provides, it has been customized for easy use by the beginners.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**Key Features:**
-
-* Supports GIF and 4K Resolution with advanced text editing features.
-* Directly import files from any social media platform, for example, Facebook.
-* Transform your video by layering multiple video clips and adding titles, filters, and overlays.
-* Time-lapse, noise reduction, and split-screen preset available.
-
-**Compatibility:**
-
-* Windows: Microsoft Windows 7/Windows 8/Windows 10 (64 bit OS recommended).
-* Processor: Intel i3 or better multicore processor, 2GHz or above.
-* RAM: 4 GB RAM (8GB required for HD and 4K videos).
-
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## To Sum Up
 
 So, are you ready to optimize your channel by following the YouTube banner size's basic requirements? We hope you are now aware of the importance your YouTube channel art dimension has.
@@ -845,3 +1045,70 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-clear-video-logger-for-windows-10-systems/"><u>[New] In 2024, Clear Video Logger for Windows 10 Systems</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-pixel-snap-tracker-plus/"><u>[New] In 2024, Pixel Snap Tracker Plus</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-excellence-in-hd-recording-leading-screen-recorder-options/"><u>[Updated] 2024 Approved  Excellence in HD Recording  Leading Screen Recorder Options</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-journey-to-crafting-a-unique-alphanumeric-marker-for-tiktok/"><u>[Updated] In 2024, Journey to Crafting a Unique Alphanumeric Marker for TikTok</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-optimal-budget-free-fb-videopicture-engineer/"><u>[Updated] In 2024, Optimal Budget-Free FB Video/Picture Engineer</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-vsg-hd-screen-snapper-reports-extensive-breakdown/"><u>[Updated] In 2024, VSG HD Screen Snapper Reports  Extensive Breakdown</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-audiovisual-snapshots-made-easy/"><u>2024 Approved  Audiovisual Snapshots Made Easy</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-complete-insight-into-sierras-icloud-file-management/"><u>2024 Approved  Complete Insight Into Sierra’s iCloud File Management</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-casual-entrants-handbook-for-tiktok-lives/"><u>2024 Approved  The Casual Entrant's Handbook for TikTok Lives</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/2024-approved-how-to-mirror-a-video-clip-in-premiere-pro/"><u>2024 Approved How To Mirror a Video Clip in Premiere Pro</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-tecno-pop-7-pro-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Tecno Pop 7 Pro</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/efficient-techniques-accelerating-or-decelerating-instagram-stories/"><u>Efficient Techniques  Accelerating or Decelerating Instagram Stories</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Itel A60s | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-apple-iphone-12-passcode-not-working-drfone-by-drfone-ios/"><u>How to Fix Apple iPhone 12 Passcode not Working? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-lava-storm-5g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Lava Storm 5G Through Google Earth?</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-a-beginners-checklist-for-learning-m4r-conversion/"><u>In 2024, A Beginners Checklist for Learning M4R Conversion</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-choose-wisely-best-border-tools-for-stylizing-instagram-photos/"><u>In 2024, Choose Wisely  Best Border Tools for Stylizing Instagram Photos</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-vivo-v30-pro-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Vivo V30 Pro Lock Screen Password?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-reviving-the-reluctant-connection-of-your-obs-capture-device/"><u>In 2024, Reviving the Reluctant Connection of Your OBS Capture Device</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-techniques-for-transforming-twitter-vids-to-mp3-audios/"><u>In 2024, Techniques for Transforming Twitter Vids to MP3 Audios</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-screen-format-options-on-amazon-prime/"><u>New In 2024, Screen Format Options on Amazon Prime</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-top-5-innovative-vocal-transformers-for-google-meet-the-future-of-online-communication/"><u>New In 2024, Top 5 Innovative Vocal Transformers for Google Meet The Future of Online Communication</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocket-your-channels-with-smart-use-of-youtube-data/"><u>Skyrocket Your Channels with Smart Use of YouTube Data</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocket-your-channels-with-these-essential-freegame-tags-for-youtube/"><u>Skyrocket Your Channels with These Essential FreeGame Tags for YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocket-your-content-tips-for-trending-videos/"><u>Skyrocket Your Content  Tips for Trending Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocket-your-income-on-youtube-the-power-of-500-loyal-fans/"><u>Skyrocket Your Income on Youtube  The Power of 500 Loyal Fans</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocket-your-subscriber-count-6-proven-ways-to-keep-audiences-coming-back/"><u>Skyrocket Your Subscriber Count  6 Proven Ways to Keep Audiences Coming Back</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocket-your-video-discovery-with-these-essential-youtube-seo-insights/"><u>Skyrocket Your Video Discovery with These Essential YouTube SEO Insights</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocket-your-video-reach-with-these-top-5-youtube-strategies/"><u>Skyrocket Your Video Reach with These #Top 5 YouTube Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocket-your-youtube-rankings-with-these-insider-moves/"><u>Skyrocket Your YouTube Rankings with These Insider Moves</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocket-your-youtube-speed-render-and-upload-hacks/"><u>Skyrocket Your YouTube Speed - Render and Upload Hacks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocketing-earnings-through-video-affiliates/"><u>Skyrocketing Earnings Through Video Affiliates</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocketing-influence-growth-in-youtube-audience/"><u>Skyrocketing Influence  Growth in YouTube Audience</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocketing-subscribers-free-techniques-for-youtube-success/"><u>Skyrocketing Subscribers  Free Techniques for YouTube Success</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocketing-subscribers-on-youtube-step-by-step/"><u>Skyrocketing Subscribers on YouTube Step-by-Step</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocketing-viewership-youtubes-quintessential-5-marketing-strategies/"><u>Skyrocketing Viewership - YouTube's Quintessential 5 Marketing Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocketing-youtube-traffic-11-seo-insights-unveiled/"><u>Skyrocketing YouTube Traffic  11 SEO Insights Unveiled</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocketing-youtube-views-strategies-to-dodge-bots/"><u>Skyrocketing YouTube Views  Strategies to Dodge Bots</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/slapstick-suggestions-a-guide-to-hilarious-short-form-videography/"><u>Slapstick Suggestions  A Guide to Hilarious Short-Form Videography</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/slash-and-save-how-to-edit-youtube-videos-quickly/"><u>Slash and Save  How to Edit YouTube Videos Quickly</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smart-budget-audio-gear-for-online-sensation-hopefuls/"><u>Smart Budget Audio Gear for Online Sensation Hopefuls</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smart-shoppers-guide-to-inexpensive-recording-gear/"><u>Smart Shopper's Guide to Inexpensive Recording Gear</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smart-strategies-to-enhance-your-video-with-customized-end-screen-cards/"><u>Smart Strategies to Enhance Your Video with Customized End Screen Cards</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smart-techniques-to-elevate-your-youtube-summaries/"><u>Smart Techniques to Elevate Your Youtube Summaries</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smartphone-camera-accessories-vloggers-should-try-to-improve-recording/"><u>Smartphone Camera Accessories Vloggers Should Try to Improve Recording</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smile-and-watch-your-guide-to-the-top-15-funny-youtubers/"><u>Smile and Watch  Your Guide to the Top 15 Funny YouTubers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smile-more-using-emojis-in-youtube-conversations/"><u>Smile More  Using Emojis in YouTube Conversations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smooth-path-to-crafting-unique-video-shorts-thumbnail-credits/"><u>Smooth Path to Crafting Unique Video Shorts Thumbnail Credits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smooth-sound-transformation-essential-ios-apps-to-convert-youtube-mp3-wise/"><u>Smooth Sound Transformation  Essential iOS Apps to Convert YouTube MP3-Wise</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smooth-sync-add-youtube-soundtracks-to-imovie-easily/"><u>Smooth Sync  Add YouTube Soundtracks to iMovie Easily</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smooth-transition-techniques-for-youtube-to-dailymotion-upload/"><u>Smooth Transition Techniques for YouTube to Dailymotion Upload</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smooth-video-playback-for-televisions-with-youtube/"><u>Smooth Video Playback for Televisions with YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/snappy-and-simple-steps-for-posting-short-videos-online/"><u>Snappy and Simple  Steps for Posting Short Videos Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/snappy-film-maker/"><u>Snappy Film Maker</u></a></li>
+<li><a href="https://techidaily.com/solved-photos-disappeared-from-iphone-xr-suddenly-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Solved Photos Disappeared from iPhone XR Suddenly | Stellar</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/techniques-for-streaming-seminars-on-a-fee-free-basis/"><u>Techniques for Streaming Seminars on a Fee-Free Basis</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-role-of-frequency-in-attracting-more-viewers-on-youtube-for-2024/"><u>The Role of Frequency in Attracting More Viewers on YouTube for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unleash-your-creativity-a-guide-to-30-video-inspirations/"><u>Unleash Your Creativity  A Guide to 30 Video Inspirations</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-nine-high-performance-audio-recorders-you-cant-overlook-for-live-events/"><u>Updated 2024 Approved Nine High-Performance Audio Recorders You Cant Overlook for Live Events</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-get-ready-to-lol-the-funniest-face-swap-apps-for-ios-and-android-for-2024/"><u>Updated Get Ready to LOL The Funniest Face Swap Apps for iOS and Android for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-are-you-looking-for-different-solutions-to-add-vhs-effects-to-your-videos-dont-worry-this-article-will-provide-easy-solutions-to-apply-vhs.m/"><u>Updated In 2024, Are You Looking for Different Solutions to Add VHS Effects to Your Videos? Dont Worry; This Article Will Provide Easy Solutions to Apply VHS</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-mobile-animation-made-easy-top-free-3d-apps-for-beginners/"><u>Updated In 2024, Mobile Animation Made Easy Top Free 3D Apps for Beginners</u></a></li>
+<li><a href="https://change-location.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Xiaomi Civi 3? | Dr.fone</u></a></li>
+</ul></div>

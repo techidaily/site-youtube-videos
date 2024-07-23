@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Amplify Video Dynamics  A Guide to Perfecting Jump Cutting\""
-date: 2024-05-25T16:59:14.183Z
-updated: 2024-05-26T16:59:14.183Z
+date: 2024-07-22T17:49:33.074Z
+updated: 2024-07-23T17:49:33.074Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,86 @@ thumbnail: https://www.lifewire.com/thmb/gMZXpF4PiFLqbOtI_oeQYocLhYI=/540x405/fi
 
 A common problem for new YouTubers and Vlogers is that they cannot get through a recording without feeling like they have messed up and need to restart. It can be extremely discouraging at first. More experienced vloggers know that mistakes happen and they are no reason to stop recording. Instead of trying to record a perfect clip it is common for vloggers to remove errors from their videos in editing using jump cuts.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
+## How To Use Jump Cuts in Your Vlog
+
+#### 1\. What is a Jump Cut?
+
+A jump cut is when you jump from one part of your clip to a later part of that same clip, cutting out the section in-between.
+
+In movies or tv shows jump cuts can be distracting. In vlogs it is the exact opposite; jump cuts are used to remove distractions. It is not strange for a YouTube video to contain a lot of jump cuts. If you go and re-watch a video by your favorite vlogger you will probably notice that every once in a while the vlogger is suddenly sitting differently or that something else has suddenly changed. That is a jump cut, and chances are you did not even think twice about it when you first watched the video.
+
+#### 2\. When to use Jump Cuts in your Youtube Video
+
+There are a lot of things you might want to take out of your clips using jump cuts. Here are some examples:
+
+**Repetition**: You may have had to repeat yourself because you misspoke. Or, you might watch your clip back and realize that two sections you intended – perhaps even scripted – are very similar and you only need one.
+
+**Off-Topic Tangents**: Once you get comfortable talking to the camera it is easy to find yourself getting off-topic while recording. These tangents might be funny or feel important, but you should still cut them out of your final video. Rather than scrapping them completely, though, consider giving your tangent its very own video. Successful vloggers post new videos frequently, after all.
+
+**Silence**: Use jump cuts to take out any pauses in your video. Every period of silence is an opportunity for viewers to get distracted and decide to click on something else. Adding music to the background of your video can help with shorter pauses, but cutting out any silence is still a good way to go.
+
+In the video tutorial below, we will share with you some practical and creative jump cuts tips that you can try in video editing. And most of the jump cuts are done with the cutting features in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can download the free trial version below by clicking the Free Download button based on your system.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### 3\. How to Make Jump Cuts in Vlog & YouTube Videos
+
+You can make jump cuts in almost every editing program, from free software like Windows Movie Maker to professional programs like Adobe Premiere. Remember no matter which video editing software you are using to edit your videos with jump cut, you need to ensure that the software can scroll through your video clips and audio files frame-by-frame. And some video editors may only allow you to scroll video footage frame by frame. This tutorial is for Filmora Video Editor (Now upgraded to Filmora), but many of the same steps will apply to other software.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+You may also like: [How to trim and cut videos in Windows Movie Maker for Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Open up Filmora Video Editor and add a clip into the timeline. Watch it through, and then revisit sections where you think you might want to make cuts.
+
+Find a place in your clip that has silence and use the scissors icon to cut your clip into two. Then start playing your clip and pause as soon as you hear sound.
+
+Make sure your clip is selected, and then go back frame by frame until you hear nothing.
+
+Use the scissors icon to make another cut. You will now have three clips; one before the silence, the silent pause, and the section where sound starts again. Delete the quiet middle clip.
+
+#### 4\. Keep video shorter for more views
+
+The videos that get the most views on YouTube are an average of three minutes long. People will use the length of a video as a reason not to click on it. Viewers are also more likely to get distracted and stop watching longer videos before they are over. That does not mean you should not take as long as you need to properly explain your ideas, just that you should be careful your video is not longer than it needs to be. It is common for youtubers to use only about a third of the clip they record. The rest is removed using jump cuts.
+
+Filmora video editor will help you to be more creative in video editing and saving your time at the same time. Download and leave a comment below about how do you like it.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+A common problem for new YouTubers and Vlogers is that they cannot get through a recording without feeling like they have messed up and need to restart. It can be extremely discouraging at first. More experienced vloggers know that mistakes happen and they are no reason to stop recording. Instead of trying to record a perfect clip it is common for vloggers to remove errors from their videos in editing using jump cuts.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How To Use Jump Cuts in Your Vlog
 
 #### 1\. What is a Jump Cut?
@@ -52,6 +132,9 @@ In the video tutorial below, we will share with you some practical and creative 
 
 You can make jump cuts in almost every editing program, from free software like Windows Movie Maker to professional programs like Adobe Premiere. Remember no matter which video editing software you are using to edit your videos with jump cut, you need to ensure that the software can scroll through your video clips and audio files frame-by-frame. And some video editors may only allow you to scroll video footage frame by frame. This tutorial is for Filmora Video Editor (Now upgraded to Filmora), but many of the same steps will apply to other software.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You may also like: [How to trim and cut videos in Windows Movie Maker for Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -70,6 +153,9 @@ The videos that get the most views on YouTube are an average of three minutes lo
 
 Filmora video editor will help you to be more creative in video editing and saving your time at the same time. Download and leave a comment below about how do you like it.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -86,6 +172,9 @@ Follow @Richard Bennett
 
 A common problem for new YouTubers and Vlogers is that they cannot get through a recording without feeling like they have messed up and need to restart. It can be extremely discouraging at first. More experienced vloggers know that mistakes happen and they are no reason to stop recording. Instead of trying to record a perfect clip it is common for vloggers to remove errors from their videos in editing using jump cuts.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ## How To Use Jump Cuts in Your Vlog
 
 #### 1\. What is a Jump Cut?
@@ -106,12 +195,18 @@ There are a lot of things you might want to take out of your clips using jump cu
 
 In the video tutorial below, we will share with you some practical and creative jump cuts tips that you can try in video editing. And most of the jump cuts are done with the cutting features in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can download the free trial version below by clicking the Free Download button based on your system.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 3\. How to Make Jump Cuts in Vlog & YouTube Videos
 
 You can make jump cuts in almost every editing program, from free software like Windows Movie Maker to professional programs like Adobe Premiere. Remember no matter which video editing software you are using to edit your videos with jump cut, you need to ensure that the software can scroll through your video clips and audio files frame-by-frame. And some video editors may only allow you to scroll video footage frame by frame. This tutorial is for Filmora Video Editor (Now upgraded to Filmora), but many of the same steps will apply to other software.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You may also like: [How to trim and cut videos in Windows Movie Maker for Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -130,8 +225,14 @@ The videos that get the most views on YouTube are an average of three minutes lo
 
 Filmora video editor will help you to be more creative in video editing and saving your time at the same time. Download and leave a comment below about how do you like it.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -146,6 +247,9 @@ Follow @Richard Bennett
 
 A common problem for new YouTubers and Vlogers is that they cannot get through a recording without feeling like they have messed up and need to restart. It can be extremely discouraging at first. More experienced vloggers know that mistakes happen and they are no reason to stop recording. Instead of trying to record a perfect clip it is common for vloggers to remove errors from their videos in editing using jump cuts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How To Use Jump Cuts in Your Vlog
 
 #### 1\. What is a Jump Cut?
@@ -192,66 +296,9 @@ Filmora video editor will help you to be more creative in video editing and savi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-A common problem for new YouTubers and Vlogers is that they cannot get through a recording without feeling like they have messed up and need to restart. It can be extremely discouraging at first. More experienced vloggers know that mistakes happen and they are no reason to stop recording. Instead of trying to record a perfect clip it is common for vloggers to remove errors from their videos in editing using jump cuts.
-
-## How To Use Jump Cuts in Your Vlog
-
-#### 1\. What is a Jump Cut?
-
-A jump cut is when you jump from one part of your clip to a later part of that same clip, cutting out the section in-between.
-
-In movies or tv shows jump cuts can be distracting. In vlogs it is the exact opposite; jump cuts are used to remove distractions. It is not strange for a YouTube video to contain a lot of jump cuts. If you go and re-watch a video by your favorite vlogger you will probably notice that every once in a while the vlogger is suddenly sitting differently or that something else has suddenly changed. That is a jump cut, and chances are you did not even think twice about it when you first watched the video.
-
-#### 2\. When to use Jump Cuts in your Youtube Video
-
-There are a lot of things you might want to take out of your clips using jump cuts. Here are some examples:
-
-**Repetition**: You may have had to repeat yourself because you misspoke. Or, you might watch your clip back and realize that two sections you intended – perhaps even scripted – are very similar and you only need one.
-
-**Off-Topic Tangents**: Once you get comfortable talking to the camera it is easy to find yourself getting off-topic while recording. These tangents might be funny or feel important, but you should still cut them out of your final video. Rather than scrapping them completely, though, consider giving your tangent its very own video. Successful vloggers post new videos frequently, after all.
-
-**Silence**: Use jump cuts to take out any pauses in your video. Every period of silence is an opportunity for viewers to get distracted and decide to click on something else. Adding music to the background of your video can help with shorter pauses, but cutting out any silence is still a good way to go.
-
-In the video tutorial below, we will share with you some practical and creative jump cuts tips that you can try in video editing. And most of the jump cuts are done with the cutting features in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can download the free trial version below by clicking the Free Download button based on your system.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### 3\. How to Make Jump Cuts in Vlog & YouTube Videos
-
-You can make jump cuts in almost every editing program, from free software like Windows Movie Maker to professional programs like Adobe Premiere. Remember no matter which video editing software you are using to edit your videos with jump cut, you need to ensure that the software can scroll through your video clips and audio files frame-by-frame. And some video editors may only allow you to scroll video footage frame by frame. This tutorial is for Filmora Video Editor (Now upgraded to Filmora), but many of the same steps will apply to other software.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-You may also like: [How to trim and cut videos in Windows Movie Maker for Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Open up Filmora Video Editor and add a clip into the timeline. Watch it through, and then revisit sections where you think you might want to make cuts.
-
-Find a place in your clip that has silence and use the scissors icon to cut your clip into two. Then start playing your clip and pause as soon as you hear sound.
-
-Make sure your clip is selected, and then go back frame by frame until you hear nothing.
-
-Use the scissors icon to make another cut. You will now have three clips; one before the silence, the silent pause, and the section where sound starts again. Delete the quiet middle clip.
-
-#### 4\. Keep video shorter for more views
-
-The videos that get the most views on YouTube are an average of three minutes long. People will use the length of a video as a reason not to click on it. Viewers are also more likely to get distracted and stop watching longer videos before they are over. That does not mean you should not take as long as you need to properly explain your ideas, just that you should be careful your video is not longer than it needs to be. It is common for youtubers to use only about a third of the clip they record. The rest is removed using jump cuts.
-
-Filmora video editor will help you to be more creative in video editing and saving your time at the same time. Download and leave a comment below about how do you like it.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -272,6 +319,9 @@ Follow @Richard Bennett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Mastering Creative Splitscreens in YouTube Filmmaking
 
 # How to Make a Creative Split-screen Video for YouTube?
@@ -292,6 +342,9 @@ Before we discuss how to work on YouTube split-screen videos, let’s quickly co
 
 One of the most popular applications of split-screen videos is for comparing two or more instances or perspectives in the same frame. For example, you might wish to depict the lifestyle of two people from different parts of the world or simply compare the effect of various seasons in a single video.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ![split screen video](https://images.wondershare.com/filmora/article-images/make-youtube-split-screen-video-1.jpg)
 
 * ### To provide two or more perspectives
@@ -300,14 +353,148 @@ Videos are the best visual storytelling tools and just like any story, they can 
 
 One of the best examples was depicted in the movie “500 Days of Summer” in which we got several Expectations vs. Reality shots. These split-screen shots depicted the two major perspectives of the story in a single frame.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![split screen video](https://images.wondershare.com/filmora/article-images/make-youtube-split-screen-video-2.jpg)
 
 * ### To implement the cloning effect
 
 Have you ever wondered how filmmakers create a clone of a person in movies? To do that, we make the protagonist record both the scenes in front of the same background. Later, we implement a split-screen effect in which both the clips are combined in such a way that it makes the audience believe as if the scene has both, the character and their clone placed flawlessly.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![split screen video](https://images.wondershare.com/filmora/article-images/make-youtube-split-screen-video-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
+### Watch Video! Use Split-Screen for Your YouTube Videos
+
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
+## Part 2: How to Make Creative YouTube Split-screen Videos with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)?
+
+If you want to come up with professional YouTube split-screen videos, then consider using a resourceful tool like Wondershare Filmora. Recently, the company has launched Wondershare Filmora for Mac V10.2 with an upgraded set of newly-added [split-screen templates](https://tools.techidaily.com/wondershare/filmora/download/). Therefore, you can simply use the wide range of split-screen templates in Filmora and drag-and-drop your videos to implement the effect.
+
+* Wondershare Filmora has recently added an extensive range of split-screen templates that you can instantly use and customize to meet your requirements.
+* Apart from YouTube split-screen templates, you can also find options for other social platforms such as Instagram, Facebook, TikTok, etc.
+* Without undergoing any technical hassle, you can just drag and drop your videos to the split-screen template and further make the needed changes.
+* There are also dedicated options to edit the split-screen video, apply color correction, and even implement different stunning animated effects.
+* Besides that, you can use Filmora to access numerous other editing options like motion tracking, keyframing, audio ducking, auto reframing, action cam editing, and more.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Creating or editing YouTube split-screen videos in Wondershare Filmora is extremely easy and can be done in the following way:
+
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
+### Step 1: Import the Videos You Want to Edit to Wondershare Filmora
+
+Before you edit your YouTube split-screen video, you need to import clips to the application. To do this, just launch Wondershare Filmora on your system and click on the “Import” button to load your videos. You can also go to its **Menu > File > Import Media** to do the same.
+
+![import media file](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Step 2: Select the Split-screen Template and Add Your Videos
+
+Great! Once you have loaded the interface of Filmora, you can locate a “Split Screen” section from the top. Just click on it to browse a wide range of split-screen video templates for YouTube to include two, three, or more clips. You can just double-click any template to get its preview and drag-and-drop it to the timeline to start working on it.
+
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![filmora split screen](https://images.wondershare.com/filmora/guide/filmora9-mac-apply-split-screen.jpg)
+
+If you want, you can take the playhead and drag the pointer to adjust the length of the split-screen template on the timeline. To add your clips, just double-click on the split-screen template and click on the drop icon from the preview window. Now, click on the source clip to add it to the template and adjust its position to get the desired effects.
+
+![filmora split screen](https://images.wondershare.com/filmora/guide/change-split-screen-default-duration.jpg)
+
+### Step 3: Edit Your YouTube Split-screen Video
+
+Following the same drill, you can include multiple clips to the YouTube split-screen template. You can further go to its editing features and explore the “Video” tab to scale, reposition, or rotate your clips. There are also options to add borders in the split-screen effect to separate the clips distinctively in the video.
+
+![filmora split screen](https://images.wondershare.com/filmora/guide/split-screen-video-editing-filmora9-mac.jpg)
+
+Apart from that, you can also go to the “Color” section to access various color correction features. From here, you can adjust the brightness, temperature, saturation, tint, and other effects in the video.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![filmora split screen](https://images.wondershare.com/filmora/guide/split-screen-color-correction-filmora9-mac.jpg)
+
+If you want to make your YouTube split-screen video more appealing, then go to the “Motion” feature. Here, you can easily implement any existing animated template for transitions and other effects.
+
+![filmora split screen](https://images.wondershare.com/filmora/guide/apply-motion-effects-split-screen-filmora9-mac.jpg)
+
+Besides that, you can also click on the edit icon from the bottom panel of the Preview section to edit your videos separately.
+
+![filmora split screen](https://images.wondershare.com/filmora/guide/filmora9-mac-split-screen-inspector.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Step 4: Export the YouTube Split-screen Video
+
+That’s it! Once you are done editing the split-screen video, you can export it from Filmora and save it on your Mac. Just click on the **Export** option and select a location to save the YouTube split-screen video. There are also additional features to save the video in different formats, video resolutions, and frame rates here that you can explore.
+
+![export video](https://images.wondershare.com/filmora/guide/export-to-format-mac.JPG)
+
+There you go! After following this guide, you would be able to come up with all kinds of YouTube split-screen videos on your Mac. Ideally, with the help of a resourceful tool like Wondershare Filmora, working on a split-screen video is an effortless task. Since the tool has numerous split-screen templates for YouTube, you can just select any template, and customize it to create a stunning YouTube split-screen video in minutes.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Oct 26, 2023• Proven solutions
+
+If we talk about post-production techniques and visual effects, then [Split Screen](https://tools.techidaily.com/wondershare/filmora/download/) has to be one of the smartest picks. After all, it lets us narrate our story via two (or more) screens and gives our audience a superior viewing experience. Though, a lot of users find it hard to implement the split-screen effect on YouTube videos. Here, I will let you know how to come up with all kinds of YouTube split-screen videos by using a professional video editor.
+
+## Part 1: The Diverse Applications of Split-screen Videos
+
+Before we discuss how to work on YouTube split-screen videos, let’s quickly consider some major applications of this video effect.
+
+* ### To draw a direct comparison
+
+One of the most popular applications of split-screen videos is for comparing two or more instances or perspectives in the same frame. For example, you might wish to depict the lifestyle of two people from different parts of the world or simply compare the effect of various seasons in a single video.
+
+![split screen video](https://images.wondershare.com/filmora/article-images/make-youtube-split-screen-video-1.jpg)
+
+* ### To provide two or more perspectives
+
+Videos are the best visual storytelling tools and just like any story, they can also have different perspectives. Ideally, the split-screen effect would be one of the best ways to show your audience all kinds of perspectives that can take place in your story.
+
+One of the best examples was depicted in the movie “500 Days of Summer” in which we got several Expectations vs. Reality shots. These split-screen shots depicted the two major perspectives of the story in a single frame.
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![split screen video](https://images.wondershare.com/filmora/article-images/make-youtube-split-screen-video-2.jpg)
+
+* ### To implement the cloning effect
+
+Have you ever wondered how filmmakers create a clone of a person in movies? To do that, we make the protagonist record both the scenes in front of the same background. Later, we implement a split-screen effect in which both the clips are combined in such a way that it makes the audience believe as if the scene has both, the character and their clone placed flawlessly.
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![split screen video](https://images.wondershare.com/filmora/article-images/make-youtube-split-screen-video-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Watch Video! Use Split-Screen for Your YouTube Videos
 
 ## Part 2: How to Make Creative YouTube Split-screen Videos with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)?
@@ -324,12 +511,18 @@ If you want to come up with professional YouTube split-screen videos, then consi
 
 Creating or editing YouTube split-screen videos in Wondershare Filmora is extremely easy and can be done in the following way:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### Step 1: Import the Videos You Want to Edit to Wondershare Filmora
 
 Before you edit your YouTube split-screen video, you need to import clips to the application. To do this, just launch Wondershare Filmora on your system and click on the “Import” button to load your videos. You can also go to its **Menu > File > Import Media** to do the same.
 
 ![import media file](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Step 2: Select the Split-screen Template and Add Your Videos
 
 Great! Once you have loaded the interface of Filmora, you can locate a “Split Screen” section from the top. Just click on it to browse a wide range of split-screen video templates for YouTube to include two, three, or more clips. You can just double-click any template to get its preview and drag-and-drop it to the timeline to start working on it.
@@ -340,10 +533,17 @@ If you want, you can take the playhead and drag the pointer to adjust the length
 
 ![filmora split screen](https://images.wondershare.com/filmora/guide/change-split-screen-default-duration.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ### Step 3: Edit Your YouTube Split-screen Video
 
 Following the same drill, you can include multiple clips to the YouTube split-screen template. You can further go to its editing features and explore the “Video” tab to scale, reposition, or rotate your clips. There are also options to add borders in the split-screen effect to separate the clips distinctively in the video.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora split screen](https://images.wondershare.com/filmora/guide/split-screen-video-editing-filmora9-mac.jpg)
 
 Apart from that, you can also go to the “Color” section to access various color correction features. From here, you can adjust the brightness, temperature, saturation, tint, and other effects in the video.
@@ -362,6 +562,9 @@ Besides that, you can also click on the edit icon from the bottom panel of the P
 
 That’s it! Once you are done editing the split-screen video, you can export it from Filmora and save it on your Mac. Just click on the **Export** option and select a location to save the YouTube split-screen video. There are also additional features to save the video in different formats, video resolutions, and frame rates here that you can explore.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ![export video](https://images.wondershare.com/filmora/guide/export-to-format-mac.JPG)
 
 There you go! After following this guide, you would be able to come up with all kinds of YouTube split-screen videos on your Mac. Ideally, with the help of a resourceful tool like Wondershare Filmora, working on a split-screen video is an effortless task. Since the tool has numerous split-screen templates for YouTube, you can just select any template, and customize it to create a stunning YouTube split-screen video in minutes.
@@ -402,8 +605,14 @@ One of the best examples was depicted in the movie “500 Days of Summer” in w
 
 Have you ever wondered how filmmakers create a clone of a person in movies? To do that, we make the protagonist record both the scenes in front of the same background. Later, we implement a split-screen effect in which both the clips are combined in such a way that it makes the audience believe as if the scene has both, the character and their clone placed flawlessly.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ![split screen video](https://images.wondershare.com/filmora/article-images/make-youtube-split-screen-video-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Watch Video! Use Split-Screen for Your YouTube Videos
 
 ## Part 2: How to Make Creative YouTube Split-screen Videos with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)?
@@ -434,8 +643,14 @@ Great! Once you have loaded the interface of Filmora, you can locate a “Split 
 
 If you want, you can take the playhead and drag the pointer to adjust the length of the split-screen template on the timeline. To add your clips, just double-click on the split-screen template and click on the drop icon from the preview window. Now, click on the source clip to add it to the template and adjust its position to get the desired effects.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora split screen](https://images.wondershare.com/filmora/guide/change-split-screen-default-duration.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ### Step 3: Edit Your YouTube Split-screen Video
 
 Following the same drill, you can include multiple clips to the YouTube split-screen template. You can further go to its editing features and explore the “Video” tab to scale, reposition, or rotate your clips. There are also options to add borders in the split-screen effect to separate the clips distinctively in the video.
@@ -444,6 +659,9 @@ Following the same drill, you can include multiple clips to the YouTube split-sc
 
 Apart from that, you can also go to the “Color” section to access various color correction features. From here, you can adjust the brightness, temperature, saturation, tint, and other effects in the video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![filmora split screen](https://images.wondershare.com/filmora/guide/split-screen-color-correction-filmora9-mac.jpg)
 
 If you want to make your YouTube split-screen video more appealing, then go to the “Motion” feature. Here, you can easily implement any existing animated template for transitions and other effects.
@@ -458,6 +676,9 @@ Besides that, you can also click on the edit icon from the bottom panel of the P
 
 That’s it! Once you are done editing the split-screen video, you can export it from Filmora and save it on your Mac. Just click on the **Export** option and select a location to save the YouTube split-screen video. There are also additional features to save the video in different formats, video resolutions, and frame rates here that you can explore.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![export video](https://images.wondershare.com/filmora/guide/export-to-format-mac.JPG)
 
 There you go! After following this guide, you would be able to come up with all kinds of YouTube split-screen videos on your Mac. Ideally, with the help of a resourceful tool like Wondershare Filmora, working on a split-screen video is an effortless task. Since the tool has numerous split-screen templates for YouTube, you can just select any template, and customize it to create a stunning YouTube split-screen video in minutes.
@@ -476,6 +697,9 @@ Follow @Liza Brown
 
 If we talk about post-production techniques and visual effects, then [Split Screen](https://tools.techidaily.com/wondershare/filmora/download/) has to be one of the smartest picks. After all, it lets us narrate our story via two (or more) screens and gives our audience a superior viewing experience. Though, a lot of users find it hard to implement the split-screen effect on YouTube videos. Here, I will let you know how to come up with all kinds of YouTube split-screen videos by using a professional video editor.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: The Diverse Applications of Split-screen Videos
 
 Before we discuss how to work on YouTube split-screen videos, let’s quickly consider some major applications of this video effect.
@@ -500,6 +724,9 @@ Have you ever wondered how filmmakers create a clone of a person in movies? To d
 
 ![split screen video](https://images.wondershare.com/filmora/article-images/make-youtube-split-screen-video-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Watch Video! Use Split-Screen for Your YouTube Videos
 
 ## Part 2: How to Make Creative YouTube Split-screen Videos with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)?
@@ -516,12 +743,18 @@ If you want to come up with professional YouTube split-screen videos, then consi
 
 Creating or editing YouTube split-screen videos in Wondershare Filmora is extremely easy and can be done in the following way:
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 1: Import the Videos You Want to Edit to Wondershare Filmora
 
 Before you edit your YouTube split-screen video, you need to import clips to the application. To do this, just launch Wondershare Filmora on your system and click on the “Import” button to load your videos. You can also go to its **Menu > File > Import Media** to do the same.
 
 ![import media file](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 2: Select the Split-screen Template and Add Your Videos
 
 Great! Once you have loaded the interface of Filmora, you can locate a “Split Screen” section from the top. Just click on it to browse a wide range of split-screen video templates for YouTube to include two, three, or more clips. You can just double-click any template to get its preview and drag-and-drop it to the timeline to start working on it.
@@ -544,116 +777,32 @@ Apart from that, you can also go to the “Color” section to access various co
 
 If you want to make your YouTube split-screen video more appealing, then go to the “Motion” feature. Here, you can easily implement any existing animated template for transitions and other effects.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora split screen](https://images.wondershare.com/filmora/guide/apply-motion-effects-split-screen-filmora9-mac.jpg)
 
 Besides that, you can also click on the edit icon from the bottom panel of the Preview section to edit your videos separately.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![filmora split screen](https://images.wondershare.com/filmora/guide/filmora9-mac-split-screen-inspector.jpg)
 
 ### Step 4: Export the YouTube Split-screen Video
 
 That’s it! Once you are done editing the split-screen video, you can export it from Filmora and save it on your Mac. Just click on the **Export** option and select a location to save the YouTube split-screen video. There are also additional features to save the video in different formats, video resolutions, and frame rates here that you can explore.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![export video](https://images.wondershare.com/filmora/guide/export-to-format-mac.JPG)
 
 There you go! After following this guide, you would be able to come up with all kinds of YouTube split-screen videos on your Mac. Ideally, with the help of a resourceful tool like Wondershare Filmora, working on a split-screen video is an effortless task. Since the tool has numerous split-screen templates for YouTube, you can just select any template, and customize it to create a stunning YouTube split-screen video in minutes.
 
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Oct 26, 2023• Proven solutions
-
-If we talk about post-production techniques and visual effects, then [Split Screen](https://tools.techidaily.com/wondershare/filmora/download/) has to be one of the smartest picks. After all, it lets us narrate our story via two (or more) screens and gives our audience a superior viewing experience. Though, a lot of users find it hard to implement the split-screen effect on YouTube videos. Here, I will let you know how to come up with all kinds of YouTube split-screen videos by using a professional video editor.
-
-## Part 1: The Diverse Applications of Split-screen Videos
-
-Before we discuss how to work on YouTube split-screen videos, let’s quickly consider some major applications of this video effect.
-
-* ### To draw a direct comparison
-
-One of the most popular applications of split-screen videos is for comparing two or more instances or perspectives in the same frame. For example, you might wish to depict the lifestyle of two people from different parts of the world or simply compare the effect of various seasons in a single video.
-
-![split screen video](https://images.wondershare.com/filmora/article-images/make-youtube-split-screen-video-1.jpg)
-
-* ### To provide two or more perspectives
-
-Videos are the best visual storytelling tools and just like any story, they can also have different perspectives. Ideally, the split-screen effect would be one of the best ways to show your audience all kinds of perspectives that can take place in your story.
-
-One of the best examples was depicted in the movie “500 Days of Summer” in which we got several Expectations vs. Reality shots. These split-screen shots depicted the two major perspectives of the story in a single frame.
-
-![split screen video](https://images.wondershare.com/filmora/article-images/make-youtube-split-screen-video-2.jpg)
-
-* ### To implement the cloning effect
-
-Have you ever wondered how filmmakers create a clone of a person in movies? To do that, we make the protagonist record both the scenes in front of the same background. Later, we implement a split-screen effect in which both the clips are combined in such a way that it makes the audience believe as if the scene has both, the character and their clone placed flawlessly.
-
-![split screen video](https://images.wondershare.com/filmora/article-images/make-youtube-split-screen-video-3.jpg)
-
-### Watch Video! Use Split-Screen for Your YouTube Videos
-
-## Part 2: How to Make Creative YouTube Split-screen Videos with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)?
-
-If you want to come up with professional YouTube split-screen videos, then consider using a resourceful tool like Wondershare Filmora. Recently, the company has launched Wondershare Filmora for Mac V10.2 with an upgraded set of newly-added [split-screen templates](https://tools.techidaily.com/wondershare/filmora/download/). Therefore, you can simply use the wide range of split-screen templates in Filmora and drag-and-drop your videos to implement the effect.
-
-* Wondershare Filmora has recently added an extensive range of split-screen templates that you can instantly use and customize to meet your requirements.
-* Apart from YouTube split-screen templates, you can also find options for other social platforms such as Instagram, Facebook, TikTok, etc.
-* Without undergoing any technical hassle, you can just drag and drop your videos to the split-screen template and further make the needed changes.
-* There are also dedicated options to edit the split-screen video, apply color correction, and even implement different stunning animated effects.
-* Besides that, you can use Filmora to access numerous other editing options like motion tracking, keyframing, audio ducking, auto reframing, action cam editing, and more.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Creating or editing YouTube split-screen videos in Wondershare Filmora is extremely easy and can be done in the following way:
-
-### Step 1: Import the Videos You Want to Edit to Wondershare Filmora
-
-Before you edit your YouTube split-screen video, you need to import clips to the application. To do this, just launch Wondershare Filmora on your system and click on the “Import” button to load your videos. You can also go to its **Menu > File > Import Media** to do the same.
-
-![import media file](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
-
-### Step 2: Select the Split-screen Template and Add Your Videos
-
-Great! Once you have loaded the interface of Filmora, you can locate a “Split Screen” section from the top. Just click on it to browse a wide range of split-screen video templates for YouTube to include two, three, or more clips. You can just double-click any template to get its preview and drag-and-drop it to the timeline to start working on it.
-
-![filmora split screen](https://images.wondershare.com/filmora/guide/filmora9-mac-apply-split-screen.jpg)
-
-If you want, you can take the playhead and drag the pointer to adjust the length of the split-screen template on the timeline. To add your clips, just double-click on the split-screen template and click on the drop icon from the preview window. Now, click on the source clip to add it to the template and adjust its position to get the desired effects.
-
-![filmora split screen](https://images.wondershare.com/filmora/guide/change-split-screen-default-duration.jpg)
-
-### Step 3: Edit Your YouTube Split-screen Video
-
-Following the same drill, you can include multiple clips to the YouTube split-screen template. You can further go to its editing features and explore the “Video” tab to scale, reposition, or rotate your clips. There are also options to add borders in the split-screen effect to separate the clips distinctively in the video.
-
-![filmora split screen](https://images.wondershare.com/filmora/guide/split-screen-video-editing-filmora9-mac.jpg)
-
-Apart from that, you can also go to the “Color” section to access various color correction features. From here, you can adjust the brightness, temperature, saturation, tint, and other effects in the video.
-
-![filmora split screen](https://images.wondershare.com/filmora/guide/split-screen-color-correction-filmora9-mac.jpg)
-
-If you want to make your YouTube split-screen video more appealing, then go to the “Motion” feature. Here, you can easily implement any existing animated template for transitions and other effects.
-
-![filmora split screen](https://images.wondershare.com/filmora/guide/apply-motion-effects-split-screen-filmora9-mac.jpg)
-
-Besides that, you can also click on the edit icon from the bottom panel of the Preview section to edit your videos separately.
-
-![filmora split screen](https://images.wondershare.com/filmora/guide/filmora9-mac-split-screen-inspector.jpg)
-
-### Step 4: Export the YouTube Split-screen Video
-
-That’s it! Once you are done editing the split-screen video, you can export it from Filmora and save it on your Mac. Just click on the **Export** option and select a location to save the YouTube split-screen video. There are also additional features to save the video in different formats, video resolutions, and frame rates here that you can explore.
-
-![export video](https://images.wondershare.com/filmora/guide/export-to-format-mac.JPG)
-
-There you go! After following this guide, you would be able to come up with all kinds of YouTube split-screen videos on your Mac. Ideally, with the help of a resourceful tool like Wondershare Filmora, working on a split-screen video is an effortless task. Since the tool has numerous split-screen templates for YouTube, you can just select any template, and customize it to create a stunning YouTube split-screen video in minutes.
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -677,3 +826,64 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-unveiling-time-saving-shortcuts-for-efficient-mac-screenshots/"><u>[New] 2024 Approved  Unveiling Time-Saving Shortcuts for Efficient Mac Screenshots</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-free-and-paid-options-to-perfectly-document-every-google-meet/"><u>[New] In 2024, Free & Paid Options to Perfectly Document Every Google Meet</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-masterclass-in-virality-cutting-edge-strategies-for-instagram-films/"><u>[Updated] 2024 Approved  Masterclass in Virality  Cutting-Edge Strategies for Instagram Films</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-pivot-to-alternatives-considerations-with-vidmas-reader/"><u>[Updated] 2024 Approved  Pivot to Alternatives? Considerations with Vidma's Reader</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-syncing-twitter-to-snapchat-video-uploading-techniques/"><u>[Updated] 2024 Approved  Syncing Twitter to Snapchat  Video Uploading Techniques</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-gain-recovery-of-personal-snapshots/"><u>[Updated] Gain Recovery of Personal Snapshots</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-perfect-pairing-of-podcast-apps-and-android-top-6-recommendations/"><u>[Updated] Perfect Pairing of Podcast Apps & Android  Top 6 Recommendations</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-should-itop-top-your-list-for-screen-recorders-for-2024/"><u>[Updated] Should ITop Top Your List for Screen Recorders for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-8-best-free-srt-translators-online-tips-to-choose/"><u>[Updated] Top 8 Best Free SRT Translators Online (Tips to Choose)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-fists-fighting-for-fame-versus-follower-frenzy/"><u>2024 Approved  Fists Fighting For Fame Versus Follower Frenzy</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-inside-look-free2xs-camera-recording-capabilities/"><u>2024 Approved  Inside Look  Free2X's Camera Recording Capabilities</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-photo-perfection-instructions-for-text-overlay-on-windowsmacos/"><u>2024 Approved  Photo Perfection  Instructions for Text Overlay on Windows/MacOS</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Samsung Galaxy S24 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/adept-principles-for-youtube-participants/"><u>Adept Principles for YouTube Participants</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/adept-principles-for-youtube-participants-for-2024/"><u>Adept Principles for YouTube Participants for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/adjusting-youtubes-viewership-limits-for-content-for-2024/"><u>Adjusting YouTube's Viewership Limits for Content for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/adobe-premiere-power-enhancing-your-youtube-presence-for-2024/"><u>Adobe Premiere Power  Enhancing Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/adobes-toolset-perfecting-your-youtube-uploads-for-2024/"><u>Adobe's Toolset  Perfecting Your YouTube Uploads for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/adrevenue-on-youtube-unpacked-average-income-from-1000-viewers-engagement/"><u>AdRevenue on YouTube Unpacked  Average Income From 1,000 Viewers' Engagement</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/adsense-on-youtube-determining-your-income-from-1k-viewer-engagement-for-2024/"><u>AdSense on YouTube  Determining Your Income From 1K Viewer Engagement for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/adsense-profits-on-youtube-earnings-per-thousand-video-watchers/"><u>AdSense Profits on YouTube  Earnings per Thousand Video Watchers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/adsense-profits-on-youtube-earnings-per-thousand-video-watchers-for-2024/"><u>AdSense Profits on YouTube  Earnings per Thousand Video Watchers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/advanced-array-manipulations-and-sorting-algorithms/"><u>Advanced Array Manipulations and Sorting Algorithms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/advanced-editing-for-published-youtube-videos-for-2024/"><u>Advanced Editing for Published YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/advanced-techniques-for-trimming-youtube-footage/"><u>Advanced Techniques for Trimming YouTube Footage</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/advanced-techniques-for-youtube-card-use-for-2024/"><u>Advanced Techniques for YouTube Card Use for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/advanced-techniques-for-youtube-editing-via-finalcut-pro/"><u>Advanced Techniques for YouTube Editing via FinalCut Pro</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/advanced-techniques-for-youtube-shorts-and-mp4-exportation/"><u>Advanced Techniques for YouTube Shorts and Mp4 Exportation</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/advanced-tips-for-youtube-commercial-making-for-2024/"><u>Advanced Tips for YouTube Commercial Making for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/aesthetic-alchemy-transforming-youtube-videos-for-2024/"><u>Aesthetic Alchemy  Transforming YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/aesthetic-alignment-for-online-glamour-content-for-2024/"><u>Aesthetic Alignment for Online Glamour Content for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affiliate-advancements-how-small-channels-thrive-financially-for-2024/"><u>Affiliate Advancements  How Small Channels Thrive Financially for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affluent-animator-architects-for-2024/"><u>Affluent Animator Architects for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affluent-streaming-stars/"><u>Affluent Streaming Stars</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affluent-streaming-stars-for-2024/"><u>Affluent Streaming Stars for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-and-accessible-the-definitive-guide-to-9-budget-friendly-editors-for-2024/"><u>Affordable & Accessible  The Definitive Guide to 9 Budget-Friendly Editors for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-acoustic-amps-and-mics-for-video-voyagers/"><u>Affordable Acoustic Amps and Mics for Video Voyagers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-acoustic-amps-and-mics-for-video-voyagers-for-2024/"><u>Affordable Acoustic Amps and Mics for Video Voyagers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-cameras-for-effective-vloggers/"><u>Affordable Cameras for Effective Vloggers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-cameras-for-effective-vloggers-for-2024/"><u>Affordable Cameras for Effective Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-gear-for-aspiring-content-creators/"><u>Affordable Gear for Aspiring Content Creators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-gear-for-aspiring-content-creators-for-2024/"><u>Affordable Gear for Aspiring Content Creators for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-gear-guide-choosing-the-right-cam-for-you/"><u>Affordable Gear Guide  Choosing the Right Cam For You</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-gear-guide-choosing-the-right-cam-for-you-for-2024/"><u>Affordable Gear Guide  Choosing the Right Cam For You for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-mcb-theme-images-for-channels/"><u>Affordable MCB Theme Images for Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-mcb-theme-images-for-channels-for-2024/"><u>Affordable MCB Theme Images for Channels for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/boosting-user-interaction-mastering-hashtag-use-on-instagram/"><u>Boosting User Interaction  Mastering Hashtag Use on Instagram</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-the-activation-lock-on-your-ipad-and-iphone-11-pro-without-apple-account-by-drfone-ios/"><u>How to Remove the Activation Lock On your iPad and iPhone 11 Pro without Apple Account</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-itel-p55-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Itel P55 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-some-outdated-your-drivers-with-windows-device-manager-on-windows-11-and-10-by-drivereasy-guide/"><u>Identify some outdated your drivers with Windows Device Manager on Windows 11 & 10</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-harness-youtube-opportunities-via-strategic-creator-studio-application/"><u>In 2024, Harness YouTube Opportunities via Strategic Creator Studio Application</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/in-2024-unlocking-the-potential-of-your-sony-camcorder-video-editing-essentials/"><u>In 2024, Unlocking the Potential of Your Sony Camcorder Video Editing Essentials</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/missing-printer-device-windows-710-troubleshooting-steps/"><u>Missing Printer Device? Windows 7/10 Troubleshooting Steps</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-make-animated-magic-happen-top-online-animation-tools-revealed/"><u>New 2024 Approved Make Animated Magic Happen Top Online Animation Tools Revealed</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-s-most-popular-public-domain-image-websites/"><u>New In 2024, S Most Popular Public Domain Image Websites</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/seizing-photographic-segments-from-videos-in-windows-11/"><u>Seizing Photographic Segments From Videos in Windows 11</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-complete-guide-for-professional-livestreaming-using-zoom-on-youtube-for-2024/"><u>The Complete Guide for Professional Livestreaming Using Zoom on YouTube for 2024</u></a></li>
+</ul></div>

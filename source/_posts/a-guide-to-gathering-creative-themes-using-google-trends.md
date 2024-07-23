@@ -1,7 +1,7 @@
 ---
 title: "A Guide to Gathering Creative Themes Using Google Trends"
-date: 2024-07-05T23:28:48.332Z
-updated: 2024-07-06T23:28:48.332Z
+date: 2024-07-22T17:55:23.855Z
+updated: 2024-07-23T17:55:23.855Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/cc4de72d7f182f924611ffcdd9be6d67698446b35
 
 # How to Use Google Trends to Come up with Video Ideas \[Easy Guide\]
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -46,6 +49,9 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -54,6 +60,9 @@ Then click from 'Daily Search Trends' to 'Realtime Search Trends'.
 
 On top you will see two drop-down menus, one is for the category and one is for location.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
 
 Under **All categories** select the general theme your channel falls under.
@@ -88,10 +97,16 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
@@ -122,8 +137,14 @@ Want to make coming up with YouTube video ideas a habit? [This post here](https:
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -140,3 +161,50 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-capture-and-share-top-no-cost-screen-recorders-for-windowsmac-users/"><u>[New] Capture and Share - Top No-Cost Screen Recorders for Windows/Mac Users</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-decoding-youtubes-clandestine-content-with-orderliness/"><u>[New] Decoding YouTube's Clandestine Content with Orderliness</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-decoding-youtubes-strategic-approach-to-short-form-video-promotion/"><u>[New] Decoding YouTube's Strategic Approach to Short-Form Video Promotion</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-deconstructing-the-revenue-stream-of-tseries-in-youtube-economy/"><u>[New] Deconstructing the Revenue Stream of TSeries in YouTube Economy</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-deep-dive-the-economy-and-impact-of-online-stars/"><u>[New] Deep Dive  The Economy and Impact of Online Stars</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-deep-dive-into-rank-tracker-solutions-for-peak-success-on-youtube/"><u>[New] Deep Dive Into Rank Tracker Solutions for Peak Success on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-defeat-synthetic-followers-for-true-popularity-peak/"><u>[New] Defeat Synthetic Followers for True Popularity Peak</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-defeating-dissidence-a-guide-for-content-makers/"><u>[New] Defeating Dissidence  A Guide for Content Makers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-defining-your-visual-and-stylistic-identity-high-relevance/"><u>[New] Defining Your Visual and Stylistic Identity [High Relevance]</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-deleted-history-uncovered-your-guide-to-online-video-retrieval/"><u>[New] Deleted History Uncovered  Your Guide to Online Video Retrieval</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-delightful-digests-a-list-of-top-food-channels/"><u>[New] Delightful Digests  A List of Top Food Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-delightful-yuletide-cinema-on-youtube-savor-nine-whole-film-gems/"><u>[New] Delightful Yuletide Cinema on YouTube  Savor Nine Whole-Film Gems</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-delving-into-how-t-series-earnings-work-on-youtube/"><u>[New] Delving Into How T-Series Earnings Work on Youtube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-delving-into-mr-beasts-economic-dominance/"><u>[New] Delving Into Mr. Beast's Economic Dominance</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-delving-into-the-advantages-and-disadvantages-of-youtube-premium/"><u>[New] Delving Into the Advantages and Disadvantages of YouTube Premium</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-delving-into-the-world-of-asmr-soundscapes/"><u>[New] Delving Into the World of ASMR Soundscapes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-delving-into-tseries-streaming-revenue-model-on-youtube/"><u>[New] Delving Into TSeries' Streaming Revenue Model on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-democratize-music-distribution-via-social-media/"><u>[New] Democratize Music Distribution via Social Media</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-mukbang-a-comprehensive-production-guide/"><u>[New] Demystifying Mukbang  A Comprehensive Production Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-the-math-of-youtube-ratio-perfection/"><u>[New] Demystifying the Math of YouTube Ratio Perfection</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-the-money-behind-1m-on-youtube/"><u>[New] Demystifying the Money Behind 1M on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-the-powerhouse-behind-youtube-creator-hub/"><u>[New] Demystifying the Powerhouse Behind YouTube Creator Hub</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-video-profit-on-youtube/"><u>[New] Demystifying Video Profit on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-youtube-analytics-views-subscriptions-and-profits/"><u>[New] Demystifying YouTube Analytics  Views, Subscriptions & Profits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-youtube-edits-an-in-depth-analysis-and-review/"><u>[New] Demystifying YouTube Edits  An In-Depth Analysis and Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-youtube-premium-membership-benefits/"><u>[New] Demystifying YouTube Premium Membership Benefits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-youtube-seo-terminology-and-tactics/"><u>[New] Demystifying YouTube SEO Terminology and Tactics</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-design-principles-for-eye-catching-yt-previews/"><u>[New] Design Principles for Eye-Catching YT Previews</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-design-strategies-for-top-tier-valorant-thumbnails-on-social-media/"><u>[New] Design Strategies for Top-Tier Valorant Thumbnails on Social Media</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-designing-a-memorable-youtube-sign-off/"><u>[New] Designing a Memorable YouTube Sign-Off</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-designing-an-easy-access-subscribe-link-to-channels/"><u>[New] Designing an Easy Access Subscribe Link to Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-designing-direct-urls-for-automatic-content-subscription/"><u>[New] Designing Direct URLs for Automatic Content Subscription</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-designing-memorable-try-on-videos-for-online-audiences/"><u>[New] Designing Memorable Try-On Videos for Online Audiences</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-designing-news-outro-sequences/"><u>[New] Designing News Outro Sequences</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pinnacle-portals-high-performance-laptops-for-uhd-videos/"><u>[New] Pinnacle Portals  High-Performance Laptops for UHD Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-sticker-squash-a-pathway-to-clean-tiktok-videos/"><u>[New] Sticker Squash  A Pathway to Clean TikTok Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-unlocking-success-with-instagrams-business-platform/"><u>[Updated] 2024 Approved  Unlocking Success with Instagram's Business Platform</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-rise-to-the-top-the-essentials-of-starting-a-youtube-gaming-sensation/"><u>[Updated] Rise to the Top  The Essentials of Starting a YouTube Gaming Sensation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-your-youtube-comment-tracking-on-multiple-devices/"><u>[Updated] Unlocking Your YouTube Comment Tracking on Multiple Devices</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-the-importance-of-sound-tracks-infused-with-mystery-in-creating-award-winning-film-compositions/"><u>2024 Approved The Importance of Sound Tracks Infused with Mystery in Creating Award-Winning Film Compositions</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/complete-fixes-to-solve-apple-iphone-13-mini-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>Complete Fixes To Solve Apple iPhone 13 mini Randomly Asking for Apple ID Password</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-track-imei-number-of-poco-x5-pro-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Poco X5 Pro Through Google Earth?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-top-ten-recommendations-for-dynamic-instagram-grid-crafting/"><u>In 2024, Top Ten Recommendations for Dynamic Instagram Grid Crafting</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/leading-15-voice-media-hosts-and-hubs/"><u>Leading 15 Voice-Media Hosts & Hubs</u></a></li>
+</ul></div>
