@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY Templates for Affordable YouTube Intros"
-date: 2024-08-16T08:55:27.970Z
-updated: 2024-08-17T08:55:27.970Z
+date: 2024-09-06T12:43:30.077Z
+updated: 2024-09-07T12:43:30.077Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,12 @@ keywords: "\"DIY YouTube Intros,Cost-Effective Intros,Template-Based Intros,DoIt
 thumbnail: https://www.lifewire.com/thmb/DR4eAaMw5O8zb4lVyCeKwtCptPY=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1182646353-592e5ea20e2846d7b84b9d60e2b5a92c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## DIY Templates for Affordable YouTube Intros
 
 # How to Make a Cool Intro for YouTube? \[+Free Templates\]
@@ -40,6 +46,12 @@ The good news is that YouTube intro making is not a complex process due to some 
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle?spm=rs.filmora%5Fweb)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is YouTube Intro?
 
 YouTube Intro is a short clip at the start of the video that introduces the maker as well as the topic under discussion. It can be rightfully called as the trademark of your channel. The intro tells the user who you really are. This is the only part of the video that is brief and allows the users to get the first impact of you.
@@ -83,10 +95,13 @@ You need not be a tech-savvy person to operate the program as it is self-explana
 * The tech specialties of the program are highly in line with the current trends. Apart from intro making, there is a wide range of functions that the program can perform.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### The Process to create your own YouTube intro by Filmora?
 
 If you want to make intro using Filmora then it is advised to follow the steps as under to get the best outcome.
@@ -95,28 +110,40 @@ If you want to make intro using Filmora then it is advised to follow the steps a
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-import-media-interface.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2:** Head over to “Title” and you can add them to you YouTube intro with ease:
 
 **Step 3:** To add opener you need to head to “Opener” under Titles and right-click the one you want to select. Click apply and it will be added to the timeline.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-openers.jpg)
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** You can also change the duration of the title effects. Drag its edge on the timeline you can also click the clock icon and enter new duration.
 
 **Step 5:** Under the style tab you can change the font, text type, and other settings.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-text.jpg)
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 6:** To edit the intro, even more, click the “Advanced” button to access the advanced editing panel. Add text boxes, shapes and other effects from here.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-step.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 7:** Under “Effects” you can access the filters and overlays to add to your project.
 
 Step 8: The default length of the filter is 5 seconds that can be extended by dragging its corners on to the timeline.
@@ -128,14 +155,17 @@ Step 8: The default length of the filter is 5 seconds that can be extended by dr
 **Step 11:** Once the editing has been done you just need to click Export on the toolbar. Under the window that appears you can export the intro with respect to device, format, and can also burn it onto the DVD. If you want you can also directly upload the intro to YouTube and other social media platforms.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-export-mp4.jpg)
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 It's very easy right? Download Filmora and make a click-driven intro now!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Key Takeaways to Create Great Attractive YouTube Intro
 
 There are certain sections that will make sure that you get the best YouTube intro of all time. It is also important as the intro is regarded as the face of your channel. It will allow you to get the attention for your channel. Some important points are as under.
@@ -208,9 +238,6 @@ To get the best gaming intro you need to focus on the outcome on the gaming bran
 * [Top Insane Gaming One](https://youtu.be/ELKfV5N0Jvo)
 * [EPIC Dual](https://youtu.be/2ZigyDPmCAk)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 This article has taught you well how to make an intro with ease and perfection. The different templates are available online which can be used to make awesome YouTube intros. The best software that you can find on the market is the Wondershare Filmora which makes the process a lot easier.
@@ -218,10 +245,13 @@ This article has taught you well how to make an intro with ease and perfection. 
 The program is known for the awesome workability as well as viability kudos to the developers of this awesome software. It is also recommended sharing this article on social media such as Facebook and Twitter so that the others can also benefit from it. It will also help others in creating awesome YouTube tutorials.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

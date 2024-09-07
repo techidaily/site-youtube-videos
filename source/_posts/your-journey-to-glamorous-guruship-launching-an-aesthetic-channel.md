@@ -1,7 +1,7 @@
 ---
 title: "\"Your Journey to Glamorous Guruship  Launching an Aesthetic Channel\""
-date: 2024-08-16T08:56:08.481Z
-updated: 2024-08-17T08:56:08.481Z
+date: 2024-09-06T12:43:29.303Z
+updated: 2024-09-07T12:43:29.303Z
 tags:
   - ai video
   - ai youtube
@@ -14,18 +14,36 @@ keywords: "Glams Guru Channelling,Aesthetic Leadership,Beauty Stream Launch,Glam
 thumbnail: https://thmb.techidaily.com/57a07625ab9c873f1b8816cfe4ef02cf1a6f9bda4b7acdd0899c793b0d810b70.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Your Journey to Glamorous Guruship: Launching an Aesthetic Channel
 
 # How To Be A Beauty Guru on YouTube: Beauty Vlogger Set Up
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
 
 Beauty Vlogs are some of the most popular channels on YouTube. These vlogs are all about aesthetics, so it is important that the videos themselves are beautiful. When you are giving out tips on makeup or hair you want to use a setup that will make your results look their very best.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## YouTube Beauty Vlogger Set Up
 
 It’s easy to put together your own Beauty Vlog setup. There are four main elements; lighting, beauty supplies, backgrounds, and audio. Here are some tips on building your beauty guru set:
@@ -34,6 +52,12 @@ It’s easy to put together your own Beauty Vlog setup. There are four main elem
 
 ![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Beauty Vlogs need to have great lighting so that everyone can clearly see what you are doing and how amazing it looks. Make sure you have even light over your whole face by ‘front lighting’ your vlog. Front lighting means having a light source right in front of you.
 
 Depending on your budget, you can either use a window as a front light or buy a diva ring light.
@@ -64,6 +88,12 @@ If you do not have access to an external mic then you may be able to get by with
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -129,6 +159,3 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

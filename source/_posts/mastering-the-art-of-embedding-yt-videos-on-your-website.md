@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Art of Embedding YT Videos on Your Website"
-date: 2024-08-16T08:55:54.568Z
-updated: 2024-08-17T08:55:54.568Z
+date: 2024-09-06T12:43:29.558Z
+updated: 2024-09-07T12:43:29.558Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,12 @@ keywords: "\"YouTube Video Integration,Web Video Embedding Techniques,SEO-Friend
 thumbnail: https://thmb.techidaily.com/43d04728eb067b27b181109747aeff382529cf3d84fbfcf0819906ab437cf25f.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Mastering the Art of Embedding YT Videos on Your Website
 
 YouTube is an excellent resource for entertainment, education, and general information, but did you know you can also display a YouTube playlist on your website?
@@ -24,6 +30,12 @@ To help you with the process, we'll explore different step-by-step methods to em
 
 So, if you're ready to get started, read on!
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How To Embed a YouTube Playlist on a Website
 
 If you want to embed and display a YouTube playlist on your website, we'll give you a complete rundown of the three methods you can try to get this done. But, of course, each method has its pros and cons, so you'll need to decide which is right for you.
@@ -31,7 +43,10 @@ If you want to embed and display a YouTube playlist on your website, we'll give 
 Here's **how to embed a YouTube playlist on a Website:**
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Embedding a YouTube Playlist on Website Using WordPress Plugin
 
@@ -49,12 +64,21 @@ Step3 Click the **"YouTube Feed"** option from the left menu and open **"All Fee
 
 ![creating new feed in the youtube feed plugin](https://images.wondershare.com/filmora/article-images/2023/03/creating-new-feed-in-the-youtube-feed-plugin.png)
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 You will now be asked what type of feed you want to create. Select **"Playlist"** and click **"Next."**
 
 ![embedding playlist on website](https://images.wondershare.com/filmora/article-images/2023/03/embedding-playlist-on-website.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 
 Step4 You need to [create your YouTube API Key](https://developers.google.com/youtube/v3/getting-started), copy it, and paste it into the pop-up. Click **"Add"** to connect your YouTube account to the plugin.
 
@@ -62,6 +86,12 @@ Step5 Select the Playlist you want to display on your WordPress website and take
 
 ![adding playlist id to embed in website](https://images.wondershare.com/filmora/article-images/2023/03/adding-playlist-id-to-embed-in-website.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Your YouTube playlist will be connected to your WordPress website. To further customize it, select the template you want and click **"Next."** You can also configure the **Feed Layout** and **Color Scheme.**
 
 ![customizing youtube playlist embedded in website](https://images.wondershare.com/filmora/article-images/2023/03/customizing-youtube-playlist-embedded-in-website.png)
@@ -69,9 +99,6 @@ Your YouTube playlist will be connected to your WordPress website. To further cu
 Step6 Once you are done with customization, click the **"Embed"** option on the top-right side of the screen, and a pop-up window will appear. Next, click **"Add to a Page,"** and a list of pages on your website will be displayed.
 
 ![adding playlist to website page](https://images.wondershare.com/filmora/article-images/2023/03/adding-playlist-to-website-page.png)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Choose your page and click **"Add"** at the bottom of the pop-up window. You'll be directed to a new page where you can embed the feed. Click the **"Plus"** icon at the top-left of the screen, search for **YouTube Feed** and choose the **Feeds for YouTube** block to embed and add your playlist.
 
@@ -93,9 +120,6 @@ Step3 Paste the URL directly in the editor and click **"Update"** to save the ch
 
 WordPress will grab your playlist from YouTube and automatically show it in your post using oEmbed. The outcome is a single video with a menu that your viewers can click to see other videos in the playlist.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Embedding a YouTube Playlist on WebsiteUsing <iframe >
 
 Another way to embed a playlist of your YouTube channel on your WordPress site is by using the iFrame code with the following step-by-step instructions:
@@ -114,9 +138,6 @@ Now, paste the iFrame embed code you've copied from YouTube and click "Update" a
 
 This method will also display one video with a menu from where you and your website viewers can access the playlist. Moreover, there are few customization options to change the appearance.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## A Bonus Tip: YouTube Video Maker - Filmora
 
 If you find your YouTube videos as boring and not engaging as other content on your website, we recommend using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) for your next project.
@@ -135,9 +156,6 @@ Some key features of Wondershare Filmora are as follows:
 * Record from webcam, screen, and voiceover.
 * Simple drag-and-drop interface.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 This article discusses step-by-step methods **to embed a YouTube playlist on a website** using the WordPress plugin, oEmbed code, and iFrame embed code.
@@ -185,88 +203,6 @@ We hope you've found this article informative and can now display your YouTube p
 # How to Add YouTube End Screen and Cards Effectively
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-The traditional annotation’s features are replaced by its successor YouTube Cards and End Screen. The annotations performed poorly on mobile and thus, the new changes are for good. The annotations had become outdated and were completely unbefitting. On the contrary, the YouTube cards and end screen offers great access to both desktop and mobiles with easier and faster implementation. Are you still looking for Annotations? Stop your search and try considering YouTube end screen. In this article, learn how to use Youtube end screen and cards.
-
-* [**Part1: Why You Need to Add End Screens To Videos**](#part1)
-* [**Part2: How To Use Youtube End Screen**](#part2)
-* [**Part3: How To Use Youtube Cards**](#part3)
-
-[Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
-
-## Part 1: Why You Need to Add End Screens and Cards to Videos
-
-There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
-
-## Part 2: How To Use Youtube End Screen
-
-Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
-
-* Go to Creator Studio and check the left side to find the Video Manager, click on it.
-* Wherever you wish to add the end screen on the video, click on it.
-* Click End Screen & Annotations at the top.
-* From end screen and annotations, you can add or configure elements.
-* Check how the end screen will appear to the visitors.
-* Click on blue color add element’s button to find four options available there:
-
-**Playlist or Videos**\- This element allows to play the suggested video on the same tab when the user clicks on it.
-
-**Subscribe**\- This allows the users to quickly subscribe to the channel. You may change the appearance of the icon and how your brand name looks.
-
-**Channel**\- Click on this element to promote other YouTube Channel. You may also customize it with a message.
-
-**Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
-
-## Part 3: How To Use Youtube Cards
-
-YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
-
-* Click on the "Video Manager" tab.
-* If you want to add cards, Click "Edit" tab under it. Then click “cards”.
-* Choose the cards type you want to make on "Add Card" drop down menu.
-* Click “create” button. Select the timeline. In the end, apply.
-
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
-### The types of YouTube cards
-
-* **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
-* **Channel**: promote another YouTube channel, one of the most common methods to collaborate with other YouTubers
-* **Poll**: Encourage viewers to participate in a poll (vote)
-* **Link**: links to a website which compliments whatever content is in the video.
-
-### 4 Tips for Using YouTube Cards
-
-**1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
-
-**2.** Use three or less cards per video. Viewers are more likely to click your cards if there are fewer of them, and more likely to start ignoring them if it seems like they’re always popping up. Also, do not have all three of these cards appear at once and make people choose between them. Stagger them throughout your video.
-
-**3.** Your cards should be related to what you are saying in your vlog. Avoid posting completely random links in the middle of your video because a viewer who clicks on them will get confused. You can post any type of link you want at the very end of your video, though.
-
- **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
-
-## Conclusion
-
-Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
 
 ##### Richard Bennett
 
@@ -281,7 +217,16 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
 
@@ -307,7 +252,10 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 3: How To Use Youtube Cards
 
@@ -318,6 +266,12 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Choose the cards type you want to make on "Add Card" drop down menu.
 * Click “create” button. Select the timeline. In the end, apply.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
@@ -326,103 +280,11 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Link**: links to a website which compliments whatever content is in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-### 4 Tips for Using YouTube Cards
-
-**1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
-
-**2.** Use three or less cards per video. Viewers are more likely to click your cards if there are fewer of them, and more likely to start ignoring them if it seems like they’re always popping up. Also, do not have all three of these cards appear at once and make people choose between them. Stagger them throughout your video.
-
-**3.** Your cards should be related to what you are saying in your vlog. Avoid posting completely random links in the middle of your video because a viewer who clicks on them will get confused. You can post any type of link you want at the very end of your video, though.
-
- **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
-## Conclusion
-
-Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-The traditional annotation’s features are replaced by its successor YouTube Cards and End Screen. The annotations performed poorly on mobile and thus, the new changes are for good. The annotations had become outdated and were completely unbefitting. On the contrary, the YouTube cards and end screen offers great access to both desktop and mobiles with easier and faster implementation. Are you still looking for Annotations? Stop your search and try considering YouTube end screen. In this article, learn how to use Youtube end screen and cards.
-
-* [**Part1: Why You Need to Add End Screens To Videos**](#part1)
-* [**Part2: How To Use Youtube End Screen**](#part2)
-* [**Part3: How To Use Youtube Cards**](#part3)
-
-[Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
-
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
-## Part 1: Why You Need to Add End Screens and Cards to Videos
-
-There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
-
-## Part 2: How To Use Youtube End Screen
-
-Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
-
-* Go to Creator Studio and check the left side to find the Video Manager, click on it.
-* Wherever you wish to add the end screen on the video, click on it.
-* Click End Screen & Annotations at the top.
-* From end screen and annotations, you can add or configure elements.
-* Check how the end screen will appear to the visitors.
-* Click on blue color add element’s button to find four options available there:
-
-**Playlist or Videos**\- This element allows to play the suggested video on the same tab when the user clicks on it.
-
-**Subscribe**\- This allows the users to quickly subscribe to the channel. You may change the appearance of the icon and how your brand name looks.
-
-**Channel**\- Click on this element to promote other YouTube Channel. You may also customize it with a message.
-
-**Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
-## Part 3: How To Use Youtube Cards
-
-YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
-
-* Click on the "Video Manager" tab.
-* If you want to add cards, Click "Edit" tab under it. Then click “cards”.
-* Choose the cards type you want to make on "Add Card" drop down menu.
-* Click “create” button. Select the timeline. In the end, apply.
-
-### The types of YouTube cards
-
-* **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
-* **Channel**: promote another YouTube channel, one of the most common methods to collaborate with other YouTubers
-* **Poll**: Encourage viewers to participate in a poll (vote)
-* **Link**: links to a website which compliments whatever content is in the video.
-
 ### 4 Tips for Using YouTube Cards
 
 **1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
@@ -439,6 +301,12 @@ Now, that you are aware how to add YouTube end screen to your video, make use of
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -461,6 +329,224 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How To Use Youtube End Screen
+
+Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
+
+* Go to Creator Studio and check the left side to find the Video Manager, click on it.
+* Wherever you wish to add the end screen on the video, click on it.
+* Click End Screen & Annotations at the top.
+* From end screen and annotations, you can add or configure elements.
+* Check how the end screen will appear to the visitors.
+* Click on blue color add element’s button to find four options available there:
+
+**Playlist or Videos**\- This element allows to play the suggested video on the same tab when the user clicks on it.
+
+**Subscribe**\- This allows the users to quickly subscribe to the channel. You may change the appearance of the icon and how your brand name looks.
+
+**Channel**\- Click on this element to promote other YouTube Channel. You may also customize it with a message.
+
+**Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: How To Use Youtube Cards
+
+YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
+
+* Click on the "Video Manager" tab.
+* If you want to add cards, Click "Edit" tab under it. Then click “cards”.
+* Choose the cards type you want to make on "Add Card" drop down menu.
+* Click “create” button. Select the timeline. In the end, apply.
+
+### The types of YouTube cards
+
+* **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
+* **Channel**: promote another YouTube channel, one of the most common methods to collaborate with other YouTubers
+* **Poll**: Encourage viewers to participate in a poll (vote)
+* **Link**: links to a website which compliments whatever content is in the video.
+
+### 4 Tips for Using YouTube Cards
+
+**1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
+
+**2.** Use three or less cards per video. Viewers are more likely to click your cards if there are fewer of them, and more likely to start ignoring them if it seems like they’re always popping up. Also, do not have all three of these cards appear at once and make people choose between them. Stagger them throughout your video.
+
+**3.** Your cards should be related to what you are saying in your vlog. Avoid posting completely random links in the middle of your video because a viewer who clicks on them will get confused. You can post any type of link you want at the very end of your video, though.
+
+ **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+The traditional annotation’s features are replaced by its successor YouTube Cards and End Screen. The annotations performed poorly on mobile and thus, the new changes are for good. The annotations had become outdated and were completely unbefitting. On the contrary, the YouTube cards and end screen offers great access to both desktop and mobiles with easier and faster implementation. Are you still looking for Annotations? Stop your search and try considering YouTube end screen. In this article, learn how to use Youtube end screen and cards.
+
+* [**Part1: Why You Need to Add End Screens To Videos**](#part1)
+* [**Part2: How To Use Youtube End Screen**](#part2)
+* [**Part3: How To Use Youtube Cards**](#part3)
+
+[Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1: Why You Need to Add End Screens and Cards to Videos
+
+There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
+
+## Part 2: How To Use Youtube End Screen
+
+Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
+
+* Go to Creator Studio and check the left side to find the Video Manager, click on it.
+* Wherever you wish to add the end screen on the video, click on it.
+* Click End Screen & Annotations at the top.
+* From end screen and annotations, you can add or configure elements.
+* Check how the end screen will appear to the visitors.
+* Click on blue color add element’s button to find four options available there:
+
+**Playlist or Videos**\- This element allows to play the suggested video on the same tab when the user clicks on it.
+
+**Subscribe**\- This allows the users to quickly subscribe to the channel. You may change the appearance of the icon and how your brand name looks.
+
+**Channel**\- Click on this element to promote other YouTube Channel. You may also customize it with a message.
+
+**Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: How To Use Youtube Cards
+
+YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
+
+* Click on the "Video Manager" tab.
+* If you want to add cards, Click "Edit" tab under it. Then click “cards”.
+* Choose the cards type you want to make on "Add Card" drop down menu.
+* Click “create” button. Select the timeline. In the end, apply.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### The types of YouTube cards
+
+* **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
+* **Channel**: promote another YouTube channel, one of the most common methods to collaborate with other YouTubers
+* **Poll**: Encourage viewers to participate in a poll (vote)
+* **Link**: links to a website which compliments whatever content is in the video.
+
+### 4 Tips for Using YouTube Cards
+
+**1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
+
+**2.** Use three or less cards per video. Viewers are more likely to click your cards if there are fewer of them, and more likely to start ignoring them if it seems like they’re always popping up. Also, do not have all three of these cards appear at once and make people choose between them. Stagger them throughout your video.
+
+**3.** Your cards should be related to what you are saying in your vlog. Avoid posting completely random links in the middle of your video because a viewer who clicks on them will get confused. You can post any type of link you want at the very end of your video, though.
+
+ **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+The traditional annotation’s features are replaced by its successor YouTube Cards and End Screen. The annotations performed poorly on mobile and thus, the new changes are for good. The annotations had become outdated and were completely unbefitting. On the contrary, the YouTube cards and end screen offers great access to both desktop and mobiles with easier and faster implementation. Are you still looking for Annotations? Stop your search and try considering YouTube end screen. In this article, learn how to use Youtube end screen and cards.
+
+* [**Part1: Why You Need to Add End Screens To Videos**](#part1)
+* [**Part2: How To Use Youtube End Screen**](#part2)
+* [**Part3: How To Use Youtube Cards**](#part3)
+
+[Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
+
+## Part 1: Why You Need to Add End Screens and Cards to Videos
+
+There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How To Use Youtube End Screen
 
 Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
@@ -489,9 +575,6 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Choose the cards type you want to make on "Add Card" drop down menu.
 * Click “create” button. Select the timeline. In the end, apply.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
@@ -500,7 +583,16 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Link**: links to a website which compliments whatever content is in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 4 Tips for Using YouTube Cards
 
@@ -512,9 +604,6 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.

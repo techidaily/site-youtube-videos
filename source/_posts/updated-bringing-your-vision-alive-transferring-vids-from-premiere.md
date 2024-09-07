@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Bringing Your Vision Alive  Transferring Vids From Premiere\""
-date: 2024-08-16T08:57:36.200Z
-updated: 2024-08-17T08:57:36.200Z
+date: 2024-09-06T12:43:27.695Z
+updated: 2024-09-07T12:43:27.695Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,12 @@ thumbnail: https://www.lifewire.com/thmb/nddT7xpdIb204fnLyNuwQ_BtFXk=/540x405/fi
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Do I Use Adobe Premiere To Upload YouTube Videos
 
 #### 1\. Master Copy
@@ -46,6 +52,12 @@ thumbnail: https://www.lifewire.com/thmb/nddT7xpdIb204fnLyNuwQ_BtFXk=/540x405/fi
 
 ![exportdialogue](https://images.wondershare.com/multimedia/exportdialogue.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  To create your Master Copy, simply select the first option of 'Match Sequence Settings', this exports a file that is of the same quality as your original footage, essentially producing a digital copy of the work for archiving before anything else is done.
 
  With you work safe and secure it is now time to look at ensuring the project is suitable for YouTube. With our sequence selected in the Timeline or Project Panel again, we go through the same **File > Export > Media** path to bring up the media export dialogue as before.
@@ -76,12 +88,24 @@ thumbnail: https://www.lifewire.com/thmb/nddT7xpdIb204fnLyNuwQ_BtFXk=/540x405/fi
 
 ![presets](https://images.wondershare.com/multimedia/presets.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  It is important here to select the correct preset from the various YouTube options. You want to select the resolution and frame rate that match your source file, for the best results. So, if your source file is 1080p with a frame rate of 29.97 fps then that is the YouTube setting you would select.
 
  Once a preset is selected a summary of the settings is displayed below, normally these will be well suited to your project, however you can fine tune anything you wish by selecting the video or audio tabs at the bottom which give you the chance to adjust each parameter individually. If you do this, you can save these changes as a custom preset by clicking the button at the side of the Preset dropdown menu and simply use it on later projects by selecting it from the list the same as any other, a great time saving tool.
 
 ![finetuning](https://images.wondershare.com/multimedia/finetuning.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 5\. Rendering
 
  Once you are satisfied with the settings, either from the Preset alone or if you have adjusted anything yourself, you are nearly ready to render the file and export it.
@@ -94,6 +118,18 @@ thumbnail: https://www.lifewire.com/thmb/nddT7xpdIb204fnLyNuwQ_BtFXk=/540x405/fi
 
 ![filename](https://images.wondershare.com/multimedia/filename.png)
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Once those are selected clicking 'Export' starts the rendering process, and eventually (how long depends on the speed of your computer and the size and type of file involved), you will end up with your YouTube optimized video in the location you chose.
 
  Here I created 4 key frames that let the 'Animation' object move around the 'Demo Text' Object and finally come to rest below it. Whilst this type of effect does look very effective on screen, such is the ease of use of After Effects it really is just a few minutes work to achieve.
@@ -114,10 +150,22 @@ thumbnail: https://www.lifewire.com/thmb/nddT7xpdIb204fnLyNuwQ_BtFXk=/540x405/fi
 
 ![upload-progress](https://images.wondershare.com/multimedia/upload-progress.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Once the upload as finished, you can do final adjustments to settings and choose a thumbnail for the video. The final step is to click the 'Publish' button and your video will be processed and go live.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 Benjamin Arango
@@ -198,6 +246,3 @@ Follow @Benjamin Arango
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
