@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boosting Your Online Presence  A Step-by-Step Guide to Viral YouTube Shorts\""
-date: 2024-08-16T08:53:45.396Z
-updated: 2024-08-17T08:53:45.396Z
+date: 2024-09-10T23:18:54.658Z
+updated: 2024-09-11T23:18:54.658Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,20 @@ Comparatively different from other videos, the ones that are added under the ‘
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
@@ -62,6 +76,20 @@ Comparatively different from other videos, the ones that are added under the ‘
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 To elaborate, generally, YouTube suggests you a video as per your viewing history, browsing statistics, and other such information that the streaming media giant collects over time. On the other hand, the ‘Featured’ videos are suggested according to what YouTube ‘thinks’ might be of your interest, or could be somehow useful to you.
 
 Therefore, when any clip is added as a ‘Featured’ video, YouTube suggests it to more viewers as compared to those that are published under the ‘Recommended’ category.
@@ -77,9 +105,20 @@ Adding YouTube Shorts videos to the ‘Featured’ section is fairly simple, and
 Go to YouTube on your PC’s web browser, sign in to your Google account, click **Your videos** from the navigation bar in the left, and click **Customization** from the left bar when the **Studio** page opens up.
 
 ![ Get to YouTube Studio Customization Section](https://images.wondershare.com/filmora/article-images/get-more-views-featured-section-customization.jpg)
+
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
 
 **Step 2: Add YouTube Shorts**
 
@@ -87,18 +126,54 @@ Click **ADD SECTION** from the **Layout** tab in the right window, and click **S
 
 ![Add Section in Featured Section](https://images.wondershare.com/filmora/article-images/get-more-views-featured-section-add-section.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **Step 3: Add Short videos to Featured sections and Save the Changes**
 
 Hold the **Short videos** bar from the moving handle at the left, and move it right below the **Featured sections** segment. Once the **Short videos** category is in the right place, click **PUBLISH** from the top-right corner of the page to save the changes. From this point onward, any YouTube Shorts video that you publish on your channel will be automatically added as ‘Featured’ after its approval.
 
 ![Publish Added Section in Featured Section](https://images.wondershare.com/filmora/article-images/publish-featured-section.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
+
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Part 2: Create Attractive Thumbnail for YouTube Shorts to Get More Views
 
 The thumbnails are the face of the videos that you publish anywhere online. Therefore, it is imperative to take down the default one that is automatically added by YouTube, and add your own, custom image instead.
@@ -121,9 +196,6 @@ Always use an image with clear content and large text (if any). This lets the vi
 
 You should avoid using misleading images as thumbnails. While such photos would attract more viewers initially, people will gradually lose trust in your channel if they do not find what they expect by the glimpse of the thumbnail.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Optimize YouTube Shorts to Get More Views
 
 The fact of the matter is, YouTube Shorts videos aren’t much different that any other video that you publish on the platform. Therefore, the process of optimizing both short and regular videos is identical.
@@ -147,13 +219,21 @@ The description of your short videos should be complete, and must explain the th
 Make sure to add relevant tags to your short videos. For instance, adding ‘#Shorts’ in the title or description of the video tells YouTube that the clip is created for YouTube Shorts. Likewise, other tags that are related to the genre and/or theme of the short videos help YouTube suggest your media to the relevant audiences across the website.
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
+
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Filmora - Best YouTube Shorts Video Editor for PC
 
 * Easily record a video on PC and Mac.
@@ -186,9 +266,20 @@ However, because these short videos cannot be monetized, at times you may notice
 Yes. As mentioned above, the view counts and playback durations of YouTube Shorts videos are added to your channel’s statistics. Therefore, with the number of views your short videos get, the overall performance of your YouTube stats is affected accordingly.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
 
 Richard Bennett
 

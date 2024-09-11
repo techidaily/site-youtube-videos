@@ -1,7 +1,7 @@
 ---
 title: "\"The Journey to Exceptional Educational Content  Creating Impactful Vids on YouTube\""
-date: 2024-08-16T08:53:48.591Z
-updated: 2024-08-17T08:53:48.591Z
+date: 2024-09-10T23:18:54.588Z
+updated: 2024-09-11T23:18:54.588Z
 tags:
   - ai video
   - ai youtube
@@ -29,6 +29,20 @@ YouTube is an app that makes it easy for teachers to carry out their work effici
 Also, it archives all the lessons for a long time and makes them easily accessible by both the present, past, and future students. Students can quickly go back for a review for upcoming exams. Through feedbacks or comments, teachers can provide answers to students with the problem of clarity.
 
 A teacher needs to know what an educational video is, what makes an excellent educational video, and **how to make an educational video for YouTube** before opening a YouTube channel. Now, let's delve into it!
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Part 1\. What's an Educational Video?
 
@@ -72,12 +86,37 @@ Color grading and speed control of each clip on your video are possible using Fi
 
 To make a great educational video for YouTube, you can achieve this using Filmora. Follow the steps below.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Step 1\. Launch Filmora and select the aspect ratio
 
 Launch Filmora by double-clicking on the icon, and start working on a new project by selecting project aspect ratio.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Step 2\. Create a new project and import footage
 
@@ -85,32 +124,62 @@ Click the “New Project” icon on the program’s welcome screen and wait for 
 
 Then, move to choose your desired aspect ratio and click on the import footage icon located at the left corner of the video editor.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Step 3\. Organize your project material
 
 At the bottom of the "My Project" tab, click on "add a new folder". In that new folder, arrange the footage alphabetically. This reduces time spent browsing files and increases efficiency.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Step 4\. Preview and edit your video
 
 Press the play icon to preview the video clip. Trim your video clip to the desired video size by dragging the end of the video clip left or right.
 
 Then add customized text and add effects to the video if needed. An amazing effect can be added to each clip of the video to create an outstanding video.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Step 5\. Export and share the video
 
 When you're okay with the already made video, click the **Export** button. Choose the **YouTube** option to upload it easily from the Filmora program.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Conclusion
 
 Without a doubt, the process of creating an educational video requires that you pay attention to some things to create an excellent educational video that achieves the learning goal. Once you've learned what it means to make an educational video, how to go about it wouldn't be something to worry about.
@@ -118,9 +187,6 @@ Without a doubt, the process of creating an educational video requires that you 
 Thus, with the steps mentioned above, **how to make a great educational video for YouTube** has been answered. Now, you can go ahead and make amazing educational videos by yourself.
 
 ![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Marion Dubois
 
