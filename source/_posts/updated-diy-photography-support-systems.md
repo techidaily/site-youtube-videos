@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY Photography Support Systems"
-date: 2024-09-10T23:18:54.176Z
-updated: 2024-09-11T23:18:54.176Z
+date: 2024-09-12T19:08:01.965Z
+updated: 2024-09-16T16:29:40.755Z
 tags:
   - ai video
   - ai youtube
@@ -36,20 +36,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -64,55 +50,13 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -131,6 +75,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -139,19 +90,12 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 _All of your supplies plus the finished product._
 
@@ -175,68 +119,11 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-a-compreehensive-guide-to-youtube-thumbnail-creation-mac/"><u>[New] A Compreehensive Guide to YouTube Thumbnail Creation (Mac)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-beginners-guide-adding-text-overlays-on-youtube/"><u>[New] Beginner's Guide  Adding Text Overlays on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-discovering-top-10-must-watch-business-video-hubs/"><u>[New] Discovering Top 10 Must-Watch Business Video Hubs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-efficient-broadcast-techniques-incorporating-youtube-loops-on-tv/"><u>[New] Efficient Broadcast Techniques  Incorporating YouTube Loops on TV</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-effortless-strategy-deleting-dislikes-from-youtube-discussions/"><u>[New] Effortless Strategy  Deleting Dislikes From YouTube Discussions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-enhanced-engagement-with-effective-youtube-video-outros-strategies/"><u>[New] Enhanced Engagement with Effective YouTube Video Outros Strategies</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-essential-windows-8-tips-record-your-screen-for-2024/"><u>[New] Essential Windows 8 Tips  Record Your Screen for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-iconic-tricks-from-the-80s-for-stunning-videos/"><u>[New] Iconic Tricks From the '80S for Stunning Videos</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-the-ultimate-list-of-ios-solutions-to-play-your-favorite-psp-games/"><u>[New] In 2024, The Ultimate List of iOS Solutions to Play Your Favorite PSP Games</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-crafting-winning-titles-and-tags-for-your-youtube-videos/"><u>[Updated] 2024 Approved  Crafting Winning Titles & Tags for Your YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-channel-elevation-strategy-quickly-reach-your-10k-view-quota/"><u>[Updated] Channel Elevation Strategy – Quickly Reach Your 10K View Quota</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-controlling-youtubes-playback-speed-mobile-and-pc/"><u>[Updated] Controlling YouTube's Playback Speed - Mobile and PC</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-enhancing-yt-experience-handling-several-videos-at-a-time/"><u>[Updated] Enhancing YT Experience  Handling Several Videos at a Time</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-ensuring-transparency-in-video-creator-incomes/"><u>[Updated] Ensuring Transparency in Video Creator Incomes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/10-most-inspiring-yoga-channels-on-the-web/"><u>10 Most Inspiring Yoga Channels on the Web</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-curb-automated-youtube-content-feeds/"><u>2024 Approved  Curb Automated YouTube Content Feeds</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/access-a-world-of-content-anywhere-anyplace-with-the-leading-6-best-and-cost-free-tools-to-download-youtubes-short-videos-for-2024/"><u>Access a World of Content Anywhere, Anyplace with the Leading 6 Best and Cost-Free Tools to Download YouTubes' Short Videos for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/comprehensive-guide-to-embedding-multiple-youtube-playlists-in-websites-for-2024/"><u>Comprehensive Guide to Embedding Multiple YouTube Playlists in Websites for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-compelling-combinations-a-guide-to-creating-your-own-youtube-playlists/"><u>Crafting Compelling Combinations  A Guide to Creating Your Own YouTube Playlists</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discovering-how-youtube-runs-its-creator-workshop/"><u>Discovering How YouTube Runs Its Creator Workshop</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-features-and-mechanisms-after-uploading-content/"><u>Dissecting YouTube’s Features and Mechanisms After Uploading Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/earnings-breakdown-youtubes-adsense-payments-by-thousands-of-views-for-2024/"><u>Earnings Breakdown  Youtube's AdSense Payments by Thousands of Views for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/efficiently-implementing-youtube-end-screens-for-2024/"><u>Efficiently Implementing Youtube End Screens for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/enhance-facebook-visibility-uploading-panoramic-content-on-mobile-for-2024/"><u>Enhance Facebook Visibility  Uploading Panoramic Content on Mobile for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/essential-techniques-for-sizing-up-your-instagram-video-reach-for-2024/"><u>Essential Techniques for Sizing Up Your Instagram Video Reach for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-tips-sharing-your-apple-devices-screen-with-youtube-for-2024/"><u>Essential Tips  Sharing Your Apple Devices Screen with YouTube for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-oneplus-open-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked OnePlus Open Phone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-bringing-bygone-era-filmmaking-to-life-today/"><u>In 2024, Bringing Bygone Era Filmmaking to Life Today</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-easily-alter-video-velocity-youtubes-playback-speed-mastery/"><u>In 2024, Easily Alter Video Velocity  YouTube's Playback Speed Mastery</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-smartphone-shots-best-camera-accessories-for-filmmakers/"><u>In 2024, Elevate Your Smartphone Shots  Best Camera Accessories for Filmmakers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-hash-strategies-for-optimizing-youtube-gameplay-videos/"><u>In 2024, Essential Hash Strategies for Optimizing YouTube Gameplay Videos</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-itel-a60-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Itel A60 to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-tecno-camon-20-pro-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Tecno Camon 20 Pro 5G FRP</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/including-youtube-playlist-content-a-step-by-step-tutorial/"><u>Including YouTube Playlist Content  A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-video-impact-on-youtube-top-video-formats/"><u>Maximizing Video Impact on YouTube – Top Video Formats</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/peeling-back-the-curtain-on-youtubes-content-popularity-index/"><u>Peeling Back the Curtain on YouTube's Content Popularity Index</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/probing-financial-depths-an-analysis-of-mr-beasts-wealth/"><u>Probing Financial Depths  An Analysis of Mr. Beast's Wealth</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/simplified-guide-to-high-fidelity-console-recordings/"><u>Simplified Guide to High-Fidelity Console Recordings</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/transitioning-notepads-display-from-light-to-dark-theme-win-11/"><u>Transitioning Notepad's Display From Light to Dark Theme (Win 11)</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -244,3 +131,18 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-effortless-steps-for-verifying-and-correcting-your-tiktok-age/"><u>[New] In 2024, Effortless Steps for Verifying & Correcting Your TikTok Age</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-create-endless-video-on-iphone/"><u>[New] In 2024, How-To Create Endless Video on iPhone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-esports-news-and-analysis-from-top-vloggers/"><u>[Updated] Esports News and Analysis From Top Vloggers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-vocal-excellence-techniques-for-capturing-flawless-audio/"><u>[Updated] Vocal Excellence Techniques for Capturing Flawless Audio</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-web-supplement-fb-stories-downloader/"><u>[Updated] Web Supplement FB Stories Downloader</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-vivo-x90s-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Vivo X90S Devices</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-rated-free-ipod-video-transformation-tool-the-ultimate-guide-to-the-best-free-ipod-video-converter/"><u>Top Rated Free iPod Video Transformation Tool: The Ultimate Guide to the Best Free iPod Video Converter</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unleashing-potential-crafting-a-youtube-channel-brand-for-success/"><u>Unleashing Potential Crafting a YouTube Channel Brand for Success</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-imovie-free-alternatives-the-best-online-video-editing-tools/"><u>Updated IMovie Free Alternatives The Best Online Video Editing Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/virtual-hubs-for-scouting-sponsorship-opportunities-on-youtube/"><u>Virtual Hubs for Scouting Sponsorship Opportunities on Youtube</u></a></li>
+</ul></div>
+

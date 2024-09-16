@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2024-09-10T23:18:50.472Z
-updated: 2024-09-11T23:18:50.472Z
+date: 2024-09-14T18:49:04.703Z
+updated: 2024-09-16T18:12:38.798Z
 tags:
   - ai video
   - ai youtube
@@ -41,26 +41,6 @@ They say that less is more, so let's have a look at how you can apply this princ
 9. [10 Things About You](#nine)
 10. [Video Rant](#ten)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 1\. Introduce Yourself
 
 Let the world know who you are and what you do. If you are planning on starting a YouTube channel, or if you’ve already been posting videos on a topic but haven’t formally introduced yourself, it’s a great idea to put some thought into an introduction video. Producing such a YouTube video will enable you to introduce yourself to your future subscribers and give them an idea as to what your channel is all about.
@@ -93,25 +73,12 @@ Are you a Tarantino fan? Why not? When you are struggling to find inspiration fo
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 6\. What’s on Your Phone?
 
@@ -125,45 +92,37 @@ There's no need to constantly produce new videos because you can just take some 
 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 8\. Make a Tutorial
 
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 9\. 10 Things About You
 
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 10\. Video Rant
 
@@ -179,35 +138,14 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Richard Bennett
 
@@ -215,49 +153,25 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-comprehensive-overview-of-whatsapp-voice-calls/"><u>[New] In 2024, Comprehensive Overview of WhatsApp Voice Calls</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-maximize-online-revenue-monetizing-on-youtube-with-500plus-viewers/"><u>[New] Maximize Online Revenue  Monetizing on Youtube with 500+ Viewers</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-modern-vr-equipment-overview/"><u>[New] Modern VR Equipment Overview</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-ban-unwanted-youtube-recommended-titles/"><u>[Updated] Ban Unwanted YouTube Recommended Titles</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-conquer-any-gadget-to-record-your-youtube-live-experience/"><u>[Updated] Conquer Any Gadget to Record Your YouTube Live Experience</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-craft-a-vibrant-youtube-experience-with-tracks/"><u>[Updated] Craft a Vibrant Youtube Experience with Tracks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-10-must-see-vr-videos-on-youtube-for-deep-immersion/"><u>2024 Approved  10 Must-See VR Videos on YouTube for Deep Immersion</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-amusing-clip-loading-appraisal/"><u>2024 Approved  Amusing Clip Loading Appraisal</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-cutting-down-on-workload-the-ultimate-mac-mp4-apps-list/"><u>2024 Approved  Cutting Down on Workload  The Ultimate Mac MP4 Apps List</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-guide-on-how-to-enable-the-text-to-speech-function-on-iphone/"><u>2024 Approved Guide on How to Enable the Text to Speech Function on iPhone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-itel-a60-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Itel A60</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/ace-your-youtube-finances-secrets-for-profits-at-the-500-subscriber-milestone/"><u>Ace Your Youtube Finances  Secrets for Profits at the 500-Subscriber Milestone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/bend-reality-with-your-own-animated-craftsmanship/"><u>Bend Reality with Your Own Animated Craftsmanship</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-cross-promotion-the-art-of-collaborative-co-stars/"><u>Channel Cross-Promotion  The Art of Collaborative Co-Stars</u></a></li>
-<li><a href="https://fox-info.techidaily.com/compare-the-best-free-screen-recorders-on-windows-os-for-2024/"><u>Compare the Best Free Screen Recorders on Windows OS for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-the-mysteries-of-effective-youtube-keywords/"><u>Decoding the Mysteries of Effective YouTube Keywords</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discovering-the-worlds-most-popular-shorter-videos-free/"><u>Discovering the World's Most Popular Shorter Videos (FREE)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhancing-follows-into-genuine-subscriptions-for-2024/"><u>Enhancing Follows Into Genuine Subscriptions for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/finalcut-pro-tutorials-for-top-tier-youtube-video-editing/"><u>FinalCut Pro Tutorials for Top-Tier YouTube Video Editing</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-academic-engagement-lecture-capture-via-mac-computers/"><u>In 2024, Academic Engagement  Lecture Capture via Mac Computers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-architects-of-online-marvel-adventures/"><u>In 2024, Architects of Online Marvel Adventures</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-bringing-videos-to-life-using-youtube-in-educational-environments/"><u>In 2024, Bringing Videos to Life  Using YouTube in Educational Environments</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-captivating-viewers-with-youtubes-visual-polishing/"><u>In 2024, Captivating Viewers with Youtube's Visual Polishing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-confirm-monetization-accuracy-essential-steps-for-your-yt-channels/"><u>In 2024, Confirm Monetization Accuracy  Essential Steps for Your YT Channels</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-constructing-coherent-youtube-video-sequences/"><u>In 2024, Constructing Coherent YouTube Video Sequences</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-demystifying-how-tseries-capitalizes-on-youtube-audience-reach/"><u>In 2024, Demystifying How TSeries Capitalizes on YouTube Audience Reach</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-earning-strategies-with-youtubes-adsense-payout-per-k-viewers/"><u>In 2024, Earning Strategies with Youtube's AdSense  Payout per K Viewers</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-xiaomi-redmi-a2plus-by-drfone-android/"><u>In 2024, How to Bypass FRP on Xiaomi Redmi A2+?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-aspect-ratios-for-youtube-videos-shorts-and-ads-guide/"><u>Mastering Aspect Ratios for YouTube Videos, Shorts & Ads Guide</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/must-have-3d-model-systems-in-animation-for-2024/"><u>Must-Have 3D Model Systems in Animation for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/navigating-full-hd-display-on-twitter-videos-for-2024/"><u>Navigating Full HD Display on Twitter Videos for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-discover-the-best-glitch-video-editors-for-windows-mac-and-online-use/"><u>New In 2024, Discover the Best Glitch Video Editors for Windows, Mac, and Online Use</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/seamlessly-blend-music-with-visuals-in-premiere-pro-for-2024/"><u>Seamlessly Blend Music with Visuals in Premiere Pro for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/understanding-youtubers-income-average-ad-revenues-per-play/"><u>Understanding Youtuber's Income  Average Ad Revenues per Play?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-the-secrets-of-earning-via-youtube/"><u>Unlocking the Secrets of Earning via YouTube</u></a></li>
-</ul></div>
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-essential-snapshot-strategies-snapchat-boomerangs-unveiled/"><u>[New] 2024 Approved The Essential Snapshot Strategies Snapchat Boomerangs Unveiled</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-leading-edge-in-photo-editing-top-6-signature-removers-unveiled/"><u>[New] Leading Edge in Photo Editing Top 6 Signature Removers Unveiled</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-importance-of-understanding-asmr-media/"><u>[Updated] The Importance of Understanding ASMR Media</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-visual-hook-creating-captivating-youtube-thumbnails-to-drive-traffic/"><u>2024 Approved A Visual Hook Creating Captivating YouTube Thumbnails to Drive Traffic</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-creating-impactful-youtube-thumbnails-and-ads/"><u>2024 Approved Creating Impactful YouTube Thumbnails & Ads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/direct-entry-into-your-channel-simplifying-the-follow-button-creation-for-2024/"><u>Direct Entry Into Your Channel Simplifying the Follow Button Creation for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/direction-and-intensity-in-video-lighting/"><u>Direction and Intensity in Video Lighting</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/effective-strategies-to-prevent-and-repair-frequent-kodi-crashing-problems/"><u>Effective Strategies to Prevent and Repair Frequent Kodi Crashing Problems</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-article-successfully-pairing-your-phone-or-tablet-with-an-lg-screen-mirroring-function/"><u>How-To Article: Successfully Pairing Your Phone or Tablet with an LG Screen Mirroring Function</u></a></li>
+<li><a href="https://blog-min.techidaily.com/platinum-series-dvd-ripping-tool-fast-easy-dvd-cloning-on-windows-11-platforms/"><u>Platinum Series DVD Ripping Tool - Fast, Easy DVD Cloning on Windows 11 Platforms</u></a></li>
+<li><a href="https://windows11.techidaily.com/unveiling-cost-effective-windows-11-keys/"><u>Unveiling Cost-Effective Windows 11 Keys</u></a></li>
+</ul></div>
+

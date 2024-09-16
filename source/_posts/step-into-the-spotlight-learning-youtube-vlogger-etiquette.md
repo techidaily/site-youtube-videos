@@ -1,7 +1,7 @@
 ---
 title: "\"Step Into the Spotlight  Learning YouTube Vlogger Etiquette\""
-date: 2024-09-10T23:18:49.057Z
-updated: 2024-09-11T23:18:49.057Z
+date: 2024-09-13T18:04:50.734Z
+updated: 2024-09-16T18:58:34.203Z
 tags:
   - ai video
   - ai youtube
@@ -40,20 +40,6 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -72,19 +58,12 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## **4\. Be Inviting**
 
@@ -93,20 +72,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## **5\. Compose the Shot**
 
@@ -120,20 +85,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -143,20 +94,6 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## **7\. Be Expressive**
 
@@ -192,21 +129,21 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -214,65 +151,24 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-raw-footage-to-polished-perfection-an-essential-youtube-video-editing-guide/"><u>[New] 2024 Approved  From Raw Footage to Polished Perfection  An Essential Youtube Video Editing Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-ajeys-youtube-profit-milestones/"><u>[New] Ajey's YouTube Profit Milestones</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-borrow-premium-image-footage-via-top-rated-4-youtube-channels/"><u>[New] Borrow Premium Image Footage via Top-Rated 4 YouTube Channels</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-economic-education-top-15-youtube-picks/"><u>[New] Essential Economic Education  Top 15 YouTube Picks</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-skyrocket-sales-traffic-with-the-15-cutting-edge-facebook-gadgets/"><u>[New] In 2024, Skyrocket Sales Traffic with the 15 Cutting-Edge Facebook Gadgets</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-tutorial-on-making-an-impact-with-instagram-live/"><u>[New] The Ultimate Tutorial on Making an Impact with Instagram Live</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-unlocking-social-networks-the-pathway-to-a-facebook-profile-for-2024/"><u>[New] Unlocking Social Networks  The Pathway to a Facebook Profile for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-bright-ideas-effective-lighting-in-vlogging/"><u>[Updated] Bright Ideas  Effective Lighting in Vlogging</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-brighten-up-techniques-for-improving-video-lighting-on-youtube/"><u>[Updated] Brighten Up  Techniques for Improving Video Lighting on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-comprehensive-guide-your-shorts-hidden-thumbnails/"><u>[Updated] Comprehensive Guide  Your Shorts' Hidden Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-does-instant-subscription-strategy-improve-user-engagement/"><u>[Updated] Does Instant Subscription Strategy Improve User Engagement?</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-why-your-youtube-videos-have-zero-views-heres-what-to-do/"><u>[Updated] Why Your YouTube Videos Have Zero Views? Here's What to Do</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-list-makeup-tutorials-who-to-watch/"><u>2024 Approved  A-List Makeup Tutorials  Who to Watch ?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-delightful-no-cost-access-to-youtubes-nine-full-length-yule-celebrations/"><u>2024 Approved  Delightful, No-Cost Access to YouTube's Nine Full-Length Yule Celebrations</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-dismantling-youtube-ranks-factors-and-their-effects/"><u>2024 Approved  Dismantling YouTube Ranks  Factors and Their Effects</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-stop-the-mist-secrets-to-a-clean-gopro-shot/"><u>2024 Approved  Stop the Mist  Secrets to a Clean GoPro Shot</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/adsense-on-youtube-determining-your-income-from-1k-viewer-engagement-for-2024/"><u>AdSense on YouTube  Determining Your Income From 1K Viewer Engagement for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/bite-sized-script-producer-for-2024/"><u>Bite-Sized Script Producer for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/bluetooth-usb-adapter-support-guide-asus-bt400/"><u>Bluetooth USB Adapter Support Guide - Asus BT400</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/comprehensive-guide-your-shorts-hidden-thumbnails/"><u>Comprehensive Guide  Your Shorts' Hidden Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/deciphering-the-world-of-youtube-media-conglomerates/"><u>Deciphering the World of YouTube Media Conglomerates</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discovering-the-excellent-10-yoga-programs-for-better-wellness/"><u>Discovering the Excellent 10 Yoga Programs for Better Wellness</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/effective-solutions-for-correcting-lameencdll-dll-conflicts-in-audacity-audio-converter/"><u>Effective Solutions for Correcting lame_enc.dll DLL Conflicts in Audacity Audio Converter</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-your-watchlist-experience-with-youtubes-av1-settings-for-2024/"><u>Elevate Your Watchlist Experience with YouTube's AV1 Settings for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevating-gameplay-streaming-mastery-for-youtubers/"><u>Elevating Gameplay  Streaming Mastery for YouTubers</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-a2plus-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi A2+ Phones with/without a PC</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-wipe-out-your-youtube-buffered-videos/"><u>How-To  Wipe Out Your YouTube Buffered Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-8-tips-on-how-to-vlog-confidently-like-popular-youtubers/"><u>In 2024, 8 Tips on How to Vlog Confidently Like Popular YouTubers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-a-quick-tutorial-on-how-to-convert-image-to-youtube-thumbnail/"><u>In 2024, A Quick Tutorial On How To Convert Image To YouTube Thumbnail</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-digital-delights-the-finest-15-comedic-channels-on-youtube/"><u>In 2024, Digital Delights  The Finest 15 Comedic Channels on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-dissecting-youtube-copyright-vs-creative-commons-ethos/"><u>In 2024, Dissecting YouTube Copyright Vs. Creative Commons Ethos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-engagement-posting-youtube-video-on-fb/"><u>In 2024, Elevate Engagement  Posting YouTube Video on FB</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-how-to-add-music-to-youtubevideo-with-youtube-video-editor/"><u>In 2024, How to Add Music to YouTubeVideo with YouTube Video Editor</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/instant-understanding-of-keying-concepts/"><u>Instant Understanding of Keying Concepts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/leveraging-youtubes-profit-potential-the-500-subscribers-gateway/"><u>Leveraging YouTube's Profit Potential  The 500 Subscribers Gateway</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-channel-descriptions/"><u>Mastering YouTube Channel Descriptions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-digital-earnings-a-side-by-side-comparison/"><u>Navigating Digital Earnings  A Side-by-Side Comparison</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-the-world-of-youtube-titling-and-tagging/"><u>Navigating the World of YouTube Titling and Tagging</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-understanding-the-best-tools-for-changing-sky-background/"><u>New 2024 Approved Understanding The Best Tools for Changing Sky Background</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/safekeeping-your-online-space-youtube-channel-blocking-guide/"><u>Safekeeping Your Online Space  Youtube Channel Blocking Guide</u></a></li>
-<li><a href="https://driver-install.techidaily.com/seamless-bluetooth-driver-reinstallation-on-windows-1011/"><u>Seamless Bluetooth Driver Reinstallation on Windows 10/11</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/step-by-step-guide-enhancing-youtube-content-with-ios-recording/"><u>Step-by-Step Guide  Enhancing YouTube Content with iOS Recording</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/streamlining-sound-systems-uploads-for-your-youtube-hub/"><u>Streamlining Sound Systems  Uploads for Your Youtube Hub</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-blueprint-to-climbing-your-way-up-in-youtube-ranks/"><u>The Blueprint to Climbing Your Way Up in YouTube Ranks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-dual-platform-dance-posting-vids-with-twitter-and-tumblr-for-2024/"><u>The Dual-Platform Dance  Posting Vids with Twitter & Tumblr for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-new-era-of-content-creation-and-profitability/"><u>The New Era of Content Creation and Profitability</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-playlist-wizard-youtube-music-edition/"><u>The Playlist Wizard  YouTube Music Edition</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Xiaomi Civi 3 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-partnership-unlocked-break-through-at-10k-vistas/"><u>YouTube Partnership Unlocked  Break Through at 10K Vistas</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-vs-dailymention-spotlighting-key-aspects/"><u>YouTube Vs. DailyMention  Spotlighting Key Aspects</u></a></li>
-</ul></div>
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ccess-unlimited-free-high-quality-green-screen-footage-online-for-2024/"><u>[New] Access Unlimited Free, High-Quality Green Screen Footage Online for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-differentiate-yourself-with-these-critical-yt-shorts-hacks/"><u>[New] In 2024, Differentiate Yourself with These Critical YT Shorts Hacks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-rhythm-of-motivation-discover-the-most-inspiring-exercinasaurus-rex-songs/"><u>[New] Rhythm of Motivation Discover the Most Inspiring Exercinasaurus Rex Songs</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-step-by-step-process-for-capturing-top-tier-presentations/"><u>[Updated] 2024 Approved Step-by-Step Process for Capturing Top-Tier Presentations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-viewer-friendly-approach-implementing-commentary-and-alerts-on-youtube/"><u>2024 Approved A Viewer-Friendly Approach Implementing Commentary and Alerts on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-breaking-barriers-worlds-best-and-largest-shorts-downloaders/"><u>2024 Approved Breaking Barriers World’s Best & Largest Shorts Downloaders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/craft-your-best-youtubing-exit-tips-from-industry-leaders-for-2024/"><u>Craft Your Best YouTubing Exit - Tips From Industry Leaders for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/explore-the-leading-no-cost-apps-to-download-4k-and-hd-videos-a-guide-to-premium-film-downloads-in-mp4/"><u>Explore the Leading No-Cost Apps to Download 4K & HD Videos – A Guide to Premium Film Downloads in MP4</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-harmonizing-tech-and-artistry-mac-studios/"><u>In 2024, Harmonizing Tech & Artistry Mac Studios</u></a></li>
+<li><a href="https://common-error.techidaily.com/successfully-overcoming-issues-with-the-microsoft-store-not-opening-correctly/"><u>Successfully Overcoming Issues with the Microsoft Store Not Opening Correctly</u></a></li>
+</ul></div>
+

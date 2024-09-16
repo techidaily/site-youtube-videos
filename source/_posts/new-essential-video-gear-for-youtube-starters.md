@@ -1,7 +1,7 @@
 ---
 title: "[New] Essential Video Gear for YouTube Starters"
-date: 2024-08-16T08:53:28.736Z
-updated: 2024-08-17T08:53:28.736Z
+date: 2024-09-13T18:11:32.921Z
+updated: 2024-09-16T18:08:44.846Z
 tags:
   - ai video
   - ai youtube
@@ -36,9 +36,6 @@ In this article, we’re going to explore some of the best cameras for YouTube. 
 ### 1\. [Sony DSC WX350 Digital Camera](https://www.amazon.com/dp/B00I8BIBB8/ref=twister%5FB00IG1ZEWO?%5Fencoding=UTF8&psc=1) – Best Point and Shoot Video Camera
 
 ![Sony DSC WX350 Digital Camera](https://images.wondershare.com/filmora/filmorapro/sony-dsc-wx350.JPG)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 **Specifications:**
 
@@ -58,9 +55,6 @@ In this article, we’re going to explore some of the best cameras for YouTube. 
 ### 2\. [GoPro HERO8 Action Camera](https://www.amazon.com/GoPro-Waterproof-Accessory-Batteries-MicroSDHC/dp/B082MQFG76/ref=sr%5F1%5F3?crid=161JHBT1AHB2A&keywords=gopro+hero+8&qid=1583984353&sprefix=gopro%2Caps%2C363&sr=8-3) \- Best Wearable Sports Camera
 
 ![GoPro HERO8 Action Camera](https://images.wondershare.com/filmora/filmorapro/gopro-8.JPG)
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 **Specifications:**
 
@@ -101,9 +95,6 @@ In this article, we’re going to explore some of the best cameras for YouTube. 
 ### 4\. [PANASONIC Lumix G7 4K Digital Camera](https://www.amazon.com/PANASONIC-Digital-Megapixel-Mirrorless-DMC-G7KK/dp/B00X409PQS/ref=sr%5F1%5F4?keywords=best+mirrorless+camera+for+youtube&qid=1583984713&sr=8-4) \- Best Mirrorless Camera for Professionals
 
 ![PANASONIC Lumix G7 4K Digital Camera](https://images.wondershare.com/filmora/filmorapro/panasonic-lumix-g7-camera.JPG)
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Specifications:**
 
@@ -124,8 +115,12 @@ In this article, we’re going to explore some of the best cameras for YouTube. 
 ### 5\. [Sony CX405 Full HD](https://www.amazon.com/HDRCX405-Recording-Handycam-Camcorder-Battery/dp/B00HZ26X34/ref=sr%5F1%5F17?keywords=cam+recorder+sony&qid=1583985040&sr=8-17) \- Best Camcorder (Only) for Video
 
 ![Sony CX405 Full HD](https://images.wondershare.com/filmora/filmorapro/sony-cx405.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Specifications:**
@@ -145,14 +140,33 @@ In this article, we’re going to explore some of the best cameras for YouTube. 
 **Cons:** Connectivity ports are in strange spots, and can be hard to get to. You cannot add an external mic, so you have to use the on-board ones. After extensive use of the ports, the on-board USB cable may have some issues with connectivity over time.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 6\. [DJI OSMO Handheld Gimbal](https://www.amazon.com/DJI-Lightweight-Portable-Stabilizer-Compatible/dp/B07RSPPQ18/ref=sr%5F1%5F6?keywords=phone+gimbal&qid=1583985252&sr=8-6) – Best Easy to Use Holder for Camera Phone for Beginners
 
 ![DJI OSMO Handheld Gimbal](https://images.wondershare.com/filmora/filmorapro/dji-osmo-gimbal.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Specifications:**
@@ -169,12 +183,22 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
 **Cons:** Some people note that it doesn’t work with wide-screen mobile devices or “phablets” as they are called. Another complaint is that it can be difficult to get used the construction of the Gimbal, but that’s something that you can sort out with practice.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### 7\. [Canon Digital SLR Camera Kit](https://www.amazon.com/Canon-Digital-Camera-18-55mm-75-300mm/dp/B01CQJHJ2E/ref=sr%5F1%5F3?keywords=Canon+Rebel+T6i&qid=1583985851&sr=8-3) – Best Cheap SLR Choice
 
 ![Canon Digital SLR Camera Kit](https://images.wondershare.com/filmora/filmorapro/canon-digital-slr-camera.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Specifications:**
 
@@ -193,16 +217,16 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
 Want to know more about camera? Watch this!
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What Gear Do Creators Actually Use | Vidcon 2023 | Sony vs Canon
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Part 2: Frequently Asked Questions
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. What is a good camera for YouTube beginners?
 
@@ -234,9 +258,6 @@ There are a number of different options that you can consider if you’re lookin
 * **Final Cut Pro**: A Mac-Only, high end video editing software, many people who use the best YouTube camera also use this.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -244,48 +265,25 @@ Max Wales is a writer and a lover of all things video.
 
 Follow @Max Wales
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-monitor-metamorphosis-from-standard-to-stunning-with-asus-mg28uq/"><u>[New] 2024 Approved  Monitor Metamorphosis  From Standard to Stunning With ASUS MG28UQ</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-automating-the-creation-of-youtube-subscriber-links/"><u>[New] Automating the Creation of YouTube Subscriber Links</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-boost-engagement-on-youtube-by-adding-emojis/"><u>[New] Boost Engagement on YouTube by Adding Emojis</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-constructing-captivating-conclusions/"><u>[New] Constructing Captivating Conclusions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-decoding-youtube-shorts-all-you-need-to-understand/"><u>[New] Decoding YouTube Shorts  All You Need to Understand</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-elite-gaming-setup-essentials-revealed/"><u>[New] Elite Gaming Setup Essentials Revealed</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-broadcast-repeat-looping-youtube-video-magic-for-your-setup/"><u>[Updated] Broadcast Repeat  Looping YouTube Video Magic for Your Setup</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-curate-a-perfect-playlist-on-youtube-a-step-by-step-guide/"><u>[Updated] Curate a Perfect Playlist on YouTube  A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-digital-content-arena-competing-titans-vimeo-youtube-dailymotion/"><u>[Updated] Digital Content Arena  Competing Titans - Vimeo, YouTube, DailyMotion</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-download-free-mcb-logo-templates/"><u>[Updated] Download Free MCB Logo Templates</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-instagrams-unusual-video-display-the-explanation/"><u>[Updated] Instagram's Unusual Video Display  The Explanation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-beginners-guide-to-youtube-shorts-nuances/"><u>2024 Approved  A Beginner's Guide to YouTube Shorts Nuances</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-comprehensive-strategies-for-tracking-yt-traffic-and-gains/"><u>2024 Approved  Comprehensive Strategies for Tracking YT Traffic and Gains</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-creations-get-free-high-quality-templates-today/"><u>2024 Approved  Elevate Creations - Get FREE High-Quality Templates Today</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-youtube-traffic-best-hash-tactics-explained/"><u>2024 Approved  Elevate Your YouTube Traffic  Best Hash Tactics Explained</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-pickup-vs-competitors-an-incisive-review-of-androids-top-editor/"><u>2024 Approved  PickUp Vs. Competitors  An Incisive Review of Android's Top Editor</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-the-ultimate-guide-to-post-a-picture-on-youtube/"><u>2024 Approved  The Ultimate Guide to Post a Picture on YouTube</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-top-20-moments-of-laughter-best-fb-jail-gems-for-a-sunny-outlook/"><u>2024 Approved  Top 20 Moments of Laughter  Best FB Jail Gems for a Sunny Outlook</u></a></li>
-<li><a href="https://change-location.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Xiaomi Civi 3 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-building-gear-a-quick-start-guide-for-2024/"><u>Channel-Building Gear  A Quick Start Guide for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cutting-edge-taggification-top-7-affordable-online-extractors-for-youtube-for-2024/"><u>Cutting-Edge Taggification  Top 7 Affordable Online Extractors for YouTube for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decode-and-resolve-youtube-short-errors/"><u>Decode and Resolve YouTube Short Errors</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/effortless-repetition-replay-your-youtube-videos-via-tv-connection-for-2024/"><u>Effortless Repetition  Replay Your YouTube Videos via TV Connection for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/eliminate-background-noise-from-online-video-content/"><u>Eliminate Background Noise From Online Video Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ring-how-tseries-harnesses-revenue-from-online-viewer-base-youtube-for-2024/"><u>Exploring How TSeries Harnesses Revenue From Online Viewer Base (YouTube) for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/exquisite-couple-clips-the-best-weddings-online-8-picks/"><u>Exquisite Couple Clips  The Best Weddings Online (8 Picks)</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-oppo-f23-5g-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Oppo F23 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-breaking-down-t-series-income-mechanism-on-youtube/"><u>In 2024, Breaking Down T-Series Income Mechanism on YouTube</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-ios-and-ps2-gaming-top-emulators-unveiled/"><u>In 2024, IOS and PS2 Gaming  Top Emulators Unveiled</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Lava Blaze 2? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-video-merging/"><u>Mastering YouTube Video Merging</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/streaming-success-latest-updates-on-earnings-guidelines/"><u>Streaming Success  Latest Updates on Earnings Guidelines</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1722896344098-trouble-with-your-new-iphone-15-reset-and-resolve-issues-today/"><u>Trouble with Your New iPhone 15? Reset and Resolve Issues Today!</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshoot-and-repair-imessage-problems-for-ios-devices-and-mac-computers/"><u>Troubleshoot & Repair: IMessage Problems for iOS Devices and Mac Computers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-profile-picture-templates-free-downloads/"><u>YouTube Profile Picture Templates – Free Downloads</u></a></li>
-</ul></div>
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-best-channel-discoveries-in-asmr/"><u>[New] Best Channel Discoveries in ASMR</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-video-seo-on-youtube-as-a-novice/"><u>[New] Demystifying Video SEO on YouTube as a Novice</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-amplify-your-shorts-impact-with-bespoke-thumbnails/"><u>[Updated] Amplify Your Shorts' Impact with Bespoke Thumbnails</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-empowerment-in-entertainment-top-10-inspirational-women/"><u>[Updated] Empowerment in Entertainment Top 10 Inspirational Women</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enhance-youtube-livestreams-webcam-selection-mastery/"><u>[Updated] Enhance YouTube Livestreams Webcam Selection Mastery</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-journey-to-high-definition-mastering-sdr-to-hdr-conversion/"><u>[Updated] In 2024, Journey to High Definition Mastering SDR to HDR Conversion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apples-ipad-pro-versus-microsofts-surface-pro-how-do-they-stack-up/"><u>Apple's iPad Pro versus Microsoft's Surface Pro - How Do They Stack Up?</u></a></li>
+<li><a href="https://games-able.techidaily.com/beating-the-big-picture-breakdown-in-steam/"><u>Beating The Big Picture Breakdown in Steam</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Realme 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-art-of-engaging-audiences-with-facebooks-split-screen-tech/"><u>In 2024, The Art of Engaging Audiences with Facebook's Split Screen Tech</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-and-resolving-common-errors-in-chatgpt-interactions/"><u>Understanding and Resolving Common Errors in ChatGPT Interactions</u></a></li>
+</ul></div>
+

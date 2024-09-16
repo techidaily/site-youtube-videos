@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of the End Scene  Tutorials & Templates for YouTube\""
-date: 2024-09-10T23:18:48.464Z
-updated: 2024-09-11T23:18:48.464Z
+date: 2024-09-13T18:26:36.429Z
+updated: 2024-09-16T17:12:48.123Z
 tags:
   - ai video
   - ai youtube
@@ -32,26 +32,6 @@ YouTube end screens are a great way to get your viewers who have watched your Yo
 2. [Give you a step-by-step tutorial on how to build your own outro for free](#diyoutro)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 1: Free End Screen Templates Download
 
@@ -85,20 +65,6 @@ Those who do not have PhotoShop can use Taha Chimar’s end screen designs that 
 
 ![taha-chimar-youtube-end-screen](https://images.wondershare.com/filmora/article-images/taha-chimar-youtube-end-screen.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 To download, you will have to follow a URL link in the description box of the YouTube videos. Be careful, though, as a lot of the links lead to free hosting websites with pop-ups that can harm your computer if you are easily fooled by them.
 
 #### 4. SoapyEdits
@@ -109,71 +75,15 @@ Here are some of our favorite ones.
 
 ![SoapyEdits-youtube-end-screen-template-1](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
@@ -191,20 +101,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
@@ -216,20 +112,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -247,49 +129,42 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-building-an-mc-village-housing-essentials/"><u>[New] 2024 Approved  Building an MC Village  Housing Essentials</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-earnings-from-a-million-youtube-globals/"><u>[New] Earnings From a Million YouTube Globals</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-steps-for-mp3-streams-on-youtube/"><u>[New] Essential Steps for MP3 Streams on Youtube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-turning-videos-into-dollars-the-ultimate-mobile-focused-youtubers-manual-for-2e24/"><u>[New] Turning Videos Into Dollars  The Ultimate Mobile-Focused YouTuber's Manual for 2E24</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-direct-music-upload-top-tools-for-turning-spotify-into-youtube-listings/"><u>[Updated] Direct Music Upload  Top Tools for Turning Spotify Into YouTube Listings</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-filmmakers-toolkit-making-compelling-youtube-trailers/"><u>[Updated] Filmmaker's Toolkit  Making Compelling YouTube Trailers</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-live-on-air-how-to-broadcast-on-youtube-and-twitch-using-obs/"><u>[Updated] In 2024, Live on Air  How to Broadcast on YouTube & Twitch Using OBS</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-budget-friendly-designs-for-youtube-content-creators/"><u>2024 Approved  Budget-Friendly Designs for YouTube Content Creators</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-capturing-crisp-sound-a-guide-to-superior-audio-recording/"><u>2024 Approved  Capturing Crisp Sound  A Guide to Superior Audio Recording</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-direct-music-upload-top-tools-for-turning-spotify-into-youtube-listings/"><u>2024 Approved  Direct Music Upload  Top Tools for Turning Spotify Into YouTube Listings</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-elite-8-cameras-revolutionizing-online-broadcasts/"><u>2024 Approved  Elite 8 Cameras Revolutionizing Online Broadcasts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/access-all-subtitles-top-10-free-tools-for-youtube-videos/"><u>Access All Subtitles  Top 10 Free Tools for YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/achieving-million-sub-milestone-the-youtube-guide/"><u>Achieving Million-Sub Milestone  The YouTube Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/charting-the-course-of-youtube-success-through-social-blade-analysis/"><u>Charting the Course of YouTube Success Through Social Blade Analysis</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-youtubes-algorithm-the-role-of-keyword-optimization/"><u>Decoding YouTube's Algorithm  The Role of Keyword Optimization</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/digital-dollar-first-steps-in-youtubers-revenue-for-2024/"><u>Digital Dollar  First Steps in YouTubers' Revenue for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-fixes-when-your-logitech-g533-microphone-fails-to-work/"><u>Effective Fixes When Your Logitech G533 Microphone Fails to Work</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-illumination-strategies-for-filming/"><u>Essential Illumination Strategies for Filming</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/expert-strategies-for-tackling-copyright-claims-on-youtube/"><u>Expert Strategies for Tackling Copyright Claims on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-views-to-valuables-the-ultimate-video-income-play/"><u>From Views to Valuables  The Ultimate Video Income Play</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-12-pro-max-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 12 Pro Max without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-design-guide-youtube-banners-and-thumbnail-creation/"><u>In 2024, Design Guide  YouTube Banners & Thumbnail Creation</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-from-apple-iphone-12-pro-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account From Apple iPhone 12 Pro without Password?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-humorhub-easy-login-easy-signup/"><u>In 2024, HumorHub  Easy Login, Easy Signup</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-online-onyx-the-monetary-meaningfulness-of-pewdiepies-earnings/"><u>In 2024, Online Onyx  The Monetary Meaningfulness of Pewdiepie's Earnings</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/mastering-quick-remedy-for-video-error-0xc10100be/"><u>Mastering Quick Remedy for Video Error 0XC10100be</u></a></li>
-<li><a href="https://win11.techidaily.com/navigating-windows-11-essential-steps-for-using-dev-drive/"><u>Navigating Windows 11: Essential Steps for Using Dev Drive</u></a></li>
-<li><a href="https://win-able.techidaily.com/pc-troubleshooting-guide-fixing-subnautica-below-zeros-constant-crashes/"><u>PC Troubleshooting Guide: Fixing Subnautica: Below Zero's Constant Crashes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/personalize-your-pixelated-world-the-ultimate-guide-to-discovering-creator-types-via-6-tests/"><u>Personalize Your Pixelated World  The Ultimate Guide to Discovering Creator Types via 6 Tests</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/real-time-narrative-builder/"><u>Real-Time Narrative Builder</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/social-media-savvy-top-trending-hashtags-for-youtubers/"><u>Social Media Savvy  Top Trending Hashtags for Youtubers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/tactics-to-increase-youtube-video-engagement-and-views/"><u>Tactics to Increase YouTube Video Engagement and Views</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-tutorial-for-spreading-playlists/"><u>The Ultimate Tutorial for Spreading Playlists</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-your-missing-mouse-icon-on-a-windows-tn-solved/"><u>Troubleshooting Your Missing Mouse Icon on a Windows ˈtɛn - Solved!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unboxing-the-secrets-to-stunning-shorts-thumbnails/"><u>Unboxing the Secrets to Stunning Shorts Thumbnails</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/voice-command-battle-which-wins-out-alexa-or-googles-digital-helper/"><u>Voice Command Battle: Which Wins Out, Alexa or Google's Digital Helper?</u></a></li>
-</ul></div>
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://printer-issues.techidaily.com/fix-usb-printers-ignoring-command-in-windows-7-mode/"><u>[Fix] USB Printers Ignoring Command in Windows 7 Mode</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-step-by-step-expedition-to-youtubes-unseen-layers-for-2024/"><u>[New] A Step-by-Step Expedition to YouTube's Unseen Layers for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-quick-and-simple-creating-stunning-time-lapses-on-samsungs/"><u>[New] Quick & Simple Creating Stunning Time-Lapses on Samsungs</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-unlocking-high-quality-audio-interpretation-via-google-for-2024/"><u>[New] Unlocking High-Quality Audio Interpretation via Google for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-the-ultimate-list-best-mac-compatible-recorders/"><u>[Updated] In 2024, The Ultimate List Best Mac-Compatible Recorders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-channels-popularity-with-12-key-growth-techniques/"><u>2024 Approved Elevate Your Channel's Popularity with 12 Key Growth Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-step-by-step-approach-to-crafting-customized-youtube-alerts-and-notifications/"><u>A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/balancing-creativity-and-monetization-in-youtube-shorts/"><u>Balancing Creativity and Monetization in YouTube Shorts</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016008656-common-problems-and-fixes-for-a-malfunctioning-logitech-g230-microphone-resolved/"><u>Common Problems and Fixes for a Malfunctioning Logitech G230 Microphone - Resolved!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cutting-edge-techniques-for-youtube-video-production-with-sony-vegas-for-2024/"><u>Cutting-Edge Techniques for YouTube Video Production with Sony Vegas for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discovering-the-top-tools-for-engaging-video-beginnings/"><u>Discovering the Top Tools for Engaging Video Beginnings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/does-immediate-subscription-enhance-user-engagement-on-youtube/"><u>Does Immediate Subscription Enhance User Engagement on Youtube?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-a-disable-iphone-12-mini-using-itunes-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock a disable iPhone 12 mini using itunes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/visualcut-content-checker-for-2024/"><u>VisualCut Content Checker for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

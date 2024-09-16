@@ -1,7 +1,7 @@
 ---
 title: "\"The YouTube Creator Summit - A Getaway for YouTube's Top Talent\""
-date: 2024-09-10T23:18:53.565Z
-updated: 2024-09-11T23:18:53.565Z
+date: 2024-09-09T18:55:16.151Z
+updated: 2024-09-16T18:54:40.579Z
 tags:
   - ai video
   - ai youtube
@@ -51,20 +51,6 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -77,20 +63,6 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
@@ -101,59 +73,31 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 _thinknoodles wearing his YouTube slippers._
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -165,25 +109,12 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Richard Bennett
 
@@ -191,43 +122,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-a-childs-fortune-the-wealthy-world-of-youtubes-youngest-star/"><u>[New] A Child’s Fortune  The Wealthy World of YouTube’s Youngest Star</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-earnings-on-youtube-a-monthly-perspective/"><u>[New] Earnings on YouTube  A Monthly Perspective?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-elevating-your-youtube-stream-the-wirecast-way/"><u>[New] Elevating Your YouTube Stream  The WireCast Way</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-live-broadcast-converter-decoder/"><u>[New] Live Broadcast Converter Decoder</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-quick-path-to-virtual-self-building-metaverse-profiles/"><u>[New] Quick Path to Virtual Self  Building Metaverse Profiles</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/tarting-strong-with-these-trendy-15-video-intros-for-2024/"><u>[New] Starting Strong with These Trendy 15 Video Intros for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-ultimate-list-of-idevice-screen-recorders/"><u>[Updated] 2024 Approved  Ultimate List of iDevice Screen Recorders</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-clipmaster-software/"><u>[Updated] ClipMaster Software</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-avoiding-the-blank-thumbnail-scenario-in-shorts/"><u>2024 Approved  Avoiding the Blank Thumbnail Scenario in Shorts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-practices-for-youtube-video-marketing/"><u>2024 Approved  Best Practices for YouTube Video Marketing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-compile-of-free-high-quality-sound-clips-for-videos/"><u>2024 Approved  Compile of Free, High-Quality Sound Clips for Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-easy-paths-to-profitable-youtube-business-channels-top-10-list/"><u>2024 Approved  Easy Paths to Profitable YouTube Business Channels, Top 10 List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/briefvideo-creator-for-2024/"><u>BriefVideo Creator for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-aspect-ratios-for-effective-youtube-videos-for-2024/"><u>Decoding Aspect Ratios for Effective YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/digital-makeup-mastering-youtubes-chromatic-alignment/"><u>Digital Makeup  Mastering Youtube's Chromatic Alignment</u></a></li>
-<li><a href="https://win11.techidaily.com/essential-steps-to-rectify-predominant-windows-anydesk-mishaps/"><u>Essential Steps to Rectify Predominant Windows AnyDesk Mishaps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-tips-for-wirecast-live-streaming-to-youtube/"><u>Essential Tips for WireCast Live Streaming to Youtube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/find-the-best-way-to-enhance-cell-signal-in-2amo-top-devices-of-2024/"><u>Find the Best Way to Enhance Cell Signal in 2Amo: Top Devices of 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Vivo Y17s | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/harness-youtube-movie-maker-for-impactful-videos/"><u>Harness YouTube Movie Maker for Impactful Videos</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-x90s-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Vivo X90S? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/imagecraft-tools/"><u>ImageCraft Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-adding-impact-strategies-for-youtubes-last-impressions/"><u>In 2024, Adding Impact  Strategies for Youtubes' Last Impressions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-brief-video-explanations-all-inclusive/"><u>In 2024, Brief Video Explanations, All-Inclusive</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-a-viral-video-journey-6-key-strategies-on-youtube/"><u>In 2024, Crafting a Viral Video Journey  6 Key Strategies on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-diy-photography-support-systems/"><u>In 2024, DIY Photography Support Systems</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-youtube-visibility-with-key-hashtags/"><u>Maximizing YouTube Visibility with Key #Hashtags</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/navigating-new-realities-metaverse-meets-omniverse/"><u>Navigating New Realities  Metaverse Meets Omniverse</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/resolve-silent-tweets-video-audio-woes-for-2024/"><u>Resolve Silent Tweets  Video Audio Woes for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/step-by-step-validating-your-online-identity-on-youtube/"><u>Step by Step  Validating Your Online Identity on YouTube</u></a></li>
-</ul></div>
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-discover-top-asmr-for-iosandroid-devices/"><u>[New] Discover Top ASMR for iOS/Android Devices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-crafting-dynamic-gifs-from-video-an-illustrative-tutorial/"><u>[Updated] Crafting Dynamic Gifs From Video An Illustrative Tutorial</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-direct-to-device-converting-youtube-tracks-for-idevices/"><u>[Updated] Direct to Device Converting YouTube Tracks for iDevices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-engaging-audiences-crafting-youtube-trailers-via-filmora/"><u>[Updated] Engaging Audiences Crafting YouTube Trailers via Filmora</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-unlock-the-ultimate-windows-screen-snip-list-1-5/"><u>[Updated] In 2024, Unlock the Ultimate Windows Screen Snip List, #1-5</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-cutting-edge-accessories-for-gopro-devices/"><u>2024 Approved Cutting-Edge Accessories for Gopro Devices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unveiling-the-d500s-4k-capabilities-in-full-hd/"><u>2024 Approved Unveiling the D500's 4K Capabilities in Full HD</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-vivo-y100t-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Vivo Y100t to iPad | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/navigating-the-maze-of-igtv-video-downloads/"><u>Navigating the Maze of IGTV Video Downloads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/proven-youtube-seo-methods-for-video-rankings/"><u>Proven YouTube SEO Methods for Video Rankings</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-rotate-videos-on-iphone-for-free-top-5-essential-tools/"><u>Updated 2024 Approved Rotate Videos on iPhone for Free Top 5 Essential Tools</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Motorola Moto G04? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-live-broadcasting-demystified/"><u>YouTube Live Broadcasting Demystified</u></a></li>
+</ul></div>
+
