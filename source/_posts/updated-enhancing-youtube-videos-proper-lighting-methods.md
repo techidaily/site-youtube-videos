@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing YouTube Videos  Proper Lighting Methods\""
-date: 2024-09-10T16:41:05.486Z
-updated: 2024-09-16T18:17:38.708Z
+date: 2024-09-19T17:51:39.403Z
+updated: 2024-09-21T17:30:11.956Z
 tags:
   - ai video
   - ai youtube
@@ -61,16 +61,16 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1. Light Control
 
@@ -82,18 +82,18 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -104,10 +104,10 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
@@ -133,13 +133,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-from-front-to-back-the-instagram-art-of-flipping-visuals-with-ease/"><u>[New] 2024 Approved From Front to Back The Instagram Art of Flipping Visuals with Ease</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-amazon-prime-videos-social-stardom-on-twitter/"><u>[Updated] Amazon Prime Video's Social Stardom on Twitter</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-fast-framerates-in-photos-innovating-with-windows-paint-app/"><u>[Updated] Fast Framerates in Photos Innovating with Windows Paint App</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-speed-up-video-playback-in-powerpoint-for-2024/"><u>How to Speed Up Video Playback in PowerPoint for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/producing-channel-trailer-synopses-a-guide/"><u>Producing Channel Trailer Synopses A Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-complete-users-manual-to-youtube-editing-via-finalcut-pro/"><u>The Complete User's Manual to YouTube Editing via FinalCut Pro</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unveiling-excellence-in-online-advertising-craftsmanship/"><u>Unveiling Excellence in Online Advertising Craftsmanship</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/webcamwizardry-techniquesforperfectrecordings-for-2024/"><u>WebCamWizardry TechniquesForPerfectRecordings for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-boosting-your-channels-income-the-optimal-view-count-quotient/"><u>[New] Boosting Your Channel's Income The Optimal View Count Quotient</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-the-math-of-youtube-ratio-perfection/"><u>[New] Demystifying the Math of YouTube Ratio Perfection</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-elevate-visual-appeal-incorporating-black-bar-and-box-in-social-feeds/"><u>[Updated] 2024 Approved Elevate Visual Appeal Incorporating Black Bar & Box in Social Feeds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-ultimate-canva-guide-to-incorporating-and-refining-audio/"><u>[Updated] In 2024, The Ultimate Canva Guide to Incorporating and Refining Audio</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-earnings-escalation-leveraging-your-youtube-channel-on-mobile-devices/"><u>2024 Approved Earnings Escalation Leveraging Your YouTube Channel on Mobile Devices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-daily-use-to-extraordinary-experiences-phones-into-vr/"><u>2024 Approved From Daily Use to Extraordinary Experiences Phones Into VR</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-ultimate-hunt-for-premium-costless-lut-files/"><u>2024 Approved The Ultimate Hunt for Premium, Costless LUT Files</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ace-your-youtube-livestreams-mastering-broadcast-techniques-using-wirecast-for-2024/"><u>Ace Your Youtube Livestreams Mastering Broadcast Techniques Using WireCast for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/blurring-the-line-secure-video-content-with-smoother-images-for-2024/"><u>Blurring the Line Secure Video Content with Smoother Images for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-engaging-listeners-respectfully-for-increased-sign-ups/"><u>In 2024, Engaging Listeners Respectfully for Increased Sign-Ups</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unlocking-igtv-potential-converting-and-curating-horizontal-videos/"><u>In 2024, Unlocking IGTV Potential Converting and Curating Horizontal Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/simplified-approach-to-embedding-multiple-video-playlists-from-youtube/"><u>Simplified Approach to Embedding Multiple Video Playlists From YouTube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-of-the-pruveeo-1080p-hd-dashcam-on-a-shoestring-exceptional-features-for-safe-driving/"><u>Top Review of the Pruveeo 1080P HD Dashcam on a Shoestring - Exceptional Features for Safe Driving</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-bring-your-photos-to-life-a-detailed-ken-burns-effect-guide/"><u>Updated In 2024, Bring Your Photos to Life A Detailed Ken Burns Effect Guide</u></a></li>
+<li><a href="https://driver-install.techidaily.com/win71011-nvidia-gtx-1650-drivers-update/"><u>Win7/10/11 - Nvidia GTX 1650 Drivers Update</u></a></li>
 </ul></div>
 

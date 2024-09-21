@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Fix Guide: Eliminating Red Dead Redemption 2 Game Crashes on Windows"
-date: 2024-09-13T18:21:13.224Z
-updated: 2024-09-16T18:43:36.262Z
+date: 2024-09-19T19:39:41.131Z
+updated: 2024-09-21T16:10:10.758Z
 tags:
   - win11
   - win10
@@ -66,22 +66,15 @@ To do so:
 3. Pay extra attention to**Intel Turbo Boost Technology** : if you have it running, please disable it as well.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Then run your game again and see if the FPS dropping issue is fixed. If the problem still remains, please move on to the next fix below.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Modify your network settings
 
@@ -112,10 +105,10 @@ To do so:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/Snipaste_2021-06-01_10-06-54.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.2 Switch to a public DNS server
@@ -131,13 +124,6 @@ To do so:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/click-ethernet.png)
 4. Select**Internet Protocol Version 4 (TCP/IPv4)** , then click**Properties** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/ipv4.png)
 5. Select**Use the following DNS server addresses** , fill in the Google DNS server addresses as below, then click**OK** .  
 
@@ -146,22 +132,35 @@ To do so:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/change-to-google-dns.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Run your game again to see if the frame rate per second still drops. If the problem still persists, please move on.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Update graphics card and network card drivers
 
  Another reason why FPS drops in your games is probably outdated or incorrect drivers for your graphics and network cards. This is because outdated, incorrect, or missing drivers for your display card and network card could lead to unstable graphics rendering and slow network connection, and therefore the stuttering and the FPS dropping problems. So you should update your device drivers to see if it helps.
 
  There are mainly 2 ways you can update the drivers for your video card and network card: manually or automatically.
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Option 1: Update your graphics and network drivers manually
 
@@ -192,6 +191,14 @@ and your network card manufacturer:
 2. Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2023/09/image.png)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All.)![](https://images.drivereasy.com/wp-content/uploads/2023/09/image-1.png)  
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note** : You can do it for free if you like, but it’s partly manual.
 
 4. Restart your PC for the changes to take effect.
@@ -243,21 +250,20 @@ To change the power mode:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-nvidia-game-capturer-simple-gaming-sessions/"><u>[New] 2024 Approved NVIDIA Game Capturer Simple Gaming Sessions</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-understanding-image-validity-on-insta/"><u>[New] 2024 Approved Understanding Image Validity on Insta</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-access-and-organize-fb-pages-easily-with-top-8-tools/"><u>[New] In 2024, Access and Organize FB Pages Easily with Top 8 Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-trimming-tactics-for-time-strapped-youtubers/"><u>[New] Trimming Tactics for Time-Strapped YouTubers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-creative-backgrounds-for-engaging-thumbnails/"><u>2024 Approved Creative Backgrounds for Engaging Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-dissecting-youtubes-activities-post-uploading-videos/"><u>2024 Approved Dissecting YouTube's Activities Post-Uploading Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-sound-with-these-asmr-apps/"><u>2024 Approved Elevate Sound with These ASMR Apps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-lowdown-on-the-maximum-video-length-on-instagram/"><u>2024 Approved The Lowdown on the Maximum Video Length on Instagram</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/30-leading-free-platforms-for-exceptional-youtube-intros-for-2024/"><u>30 Leading Free Platforms for Exceptional YouTube Intros for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/amplify-your-voice-on-youtube-mastery-through-tubebuddy/"><u>Amplify Your Voice on YouTube - Mastery Through TubeBuddy</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/apex-creators-video-giants-in-the-making-for-2024/"><u>Apex Creators Video Giants in the Making for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722976158066-brother-hl-2270dw-find-and-install-updated-printer-drivers-on-windows-systems-here/"><u>Brother HL-2270DW: Find and Install Updated Printer Drivers on Windows Systems Here</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-boosting-strategies-effortless-sponsorship-securing-tips/"><u>Channel Boosting Strategies Effortless Sponsorship Securing Tips</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-on-iphone-12-pro-max-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working On iPhone 12 Pro Max</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-essential-tutorial-on-using-snapchat-spotlight/"><u>The Essential Tutorial on Using Snapchat Spotlight</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-best-practices-in-confirming-your-youtube-access/"><u>[New] Best Practices in Confirming Your YouTube Access</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-crafting-timeless-videos-with-retro-filmmaking-skills/"><u>[New] Crafting Timeless Videos with Retro Filmmaking Skills</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-dive-into-iphones-audio-memos-made-simple/"><u>[New] Dive Into iPhone's Audio Memos Made Simple</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unpacking-the-essence-of-digital-tales/"><u>[New] Unpacking the Essence of Digital Tales</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-complete-code-of-conduct-for-youtube-creators/"><u>[Updated] Complete Code of Conduct for YouTube Creators</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-hysterics-hub-best-meme-tool/"><u>[Updated] Hysterics Hub Best Meme Tool</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-crafting-timeless-videos-with-retro-filmmaking-skills/"><u>2024 Approved Crafting Timeless Videos with Retro Filmmaking Skills</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-ensuring-correct-ad-revenue-a-comprehensive-guide-to-yt-channel-earnings/"><u>2024 Approved Ensuring Correct Ad Revenue A Comprehensive Guide to YT Channel Earnings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-best-14-youtube-gaming-video-ideas-to-boost-gaming-channels/"><u>In 2024, Best 14 YouTube Gaming Video Ideas to Boost Gaming Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-boost-your-video-impact-expert-tips-on-using-wm-maker/"><u>In 2024, Boost Your Video Impact Expert Tips on Using WM Maker</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-decoding-the-mystery-of-youtube-shorts/"><u>In 2024, Decoding the Mystery of YouTube Shorts</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-zte-nubia-flip-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from ZTE Nubia Flip 5G to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rating-and-economical-comprehensive-guide-to-the-tp-link-re200-ac750-range-extender/"><u>Top Rating and Economical: Comprehensive Guide to the TP-Link RE200 AC750 Range Extender</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unveiling-the-definition-what-is-tagging-and-its-purpose-in-our-digital-world/"><u>Unveiling the Definition: What Is Tagging and Its Purpose in Our Digital World?</u></a></li>
 </ul></div>
 

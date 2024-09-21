@@ -1,7 +1,7 @@
 ---
 title: "\"Personalized Video Setups  A Beginner's Guide to Selfies on YouTube\""
-date: 2024-09-15T17:55:32.872Z
-updated: 2024-09-16T17:30:38.125Z
+date: 2024-09-20T18:25:58.275Z
+updated: 2024-09-21T16:16:28.312Z
 tags:
   - ai video
   - ai youtube
@@ -53,13 +53,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -74,13 +67,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -88,6 +74,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -111,6 +104,13 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -128,16 +128,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-analyzing-the-boons-and-banes-of-vr-headsets-for-2024/"><u>[Updated] Analyzing the Boons & Banes of VR Headsets for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-worlds-beyond-borders-best-10-mmo-adventures-for-free/"><u>[Updated] In 2024, Worlds Beyond Borders Best 10 MMO Adventures for Free</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-vivo-s17e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Vivo S17e | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/achieving-perfect-tv-picture-on-xbox-series-xands/"><u>Achieving Perfect TV Picture on Xbox Series X&S</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/analyzing-ownership-rights-in-youtube-vs-freedom-of-use-in-cc-for-2024/"><u>Analyzing Ownership Rights in Youtube Vs. Freedom Of Use In CC for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/apex-creators-video-giants-in-the-making/"><u>Apex Creators Video Giants in the Making</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/creative-command-center-studio-for-youtubers-for-2024/"><u>Creative Command Center Studio for YouTubers for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cross-media-content-flow-from-youtube-to-thirtyplus-others-for-2024/"><u>Cross-Media Content Flow From YouTube to Thirty+ Others for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-vivo-v27-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Vivo V27 FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-use-a-facebook-avatar-on-whatsapp/"><u>How to Use a Facebook Avatar on WhatsApp</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/in-2024-best-10-chinese-video-to-english-translator/"><u>In 2024, Best 10 Chinese Video to English Translator</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-annual-compilation-of-premium-free-lut-choices/"><u>[New] 2024 Approved Annual Compilation of Premium Free LUT Choices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-discover-the-magic-of-editing-in-60-seconds-with-snapseed-for-2024/"><u>[Updated] Discover the Magic of Editing in 60 Seconds with Snapseed for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-navigating-the-world-of-screen-capture-with-bandicam/"><u>[Updated] In 2024, Navigating the World of Screen Capture with Bandicam</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-vivid-visuals-brush-up-your-youtube-beauty-videos/"><u>[Updated] Vivid Visuals Brush up Your YouTube Beauty Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-charting-a-path-to-monthly-earnings-from-youtube/"><u>2024 Approved Charting a Path to Monthly Earnings From YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-video-discoverability-with-effective-titles-and-tags-for-2024/"><u>Enhancing Video Discoverability with Effective Titles & Tags for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/paced-favorites-leading-background-music-in-yt-shorts-for-2024/"><u>Fast-Paced Favorites Leading Background Music in YT Shorts for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-back-in-the-past-with-snapchats-animation-hacks/"><u>In 2024, Back in the Past with Snapchat's Animation Hacks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/maximizing-revenue-a-complete-framework-for-tracking-youtube-views-and-income/"><u>Maximizing Revenue A Complete Framework for Tracking YouTube Views & Income</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-monetary-impact-of-mr-beast/"><u>The Monetary Impact of Mr. Beast</u></a></li>
 </ul></div>
 

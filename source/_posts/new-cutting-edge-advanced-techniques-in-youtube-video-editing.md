@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting Edge  Advanced Techniques in YouTube Video Editing\""
-date: 2024-09-15T18:25:10.334Z
-updated: 2024-09-16T16:35:20.980Z
+date: 2024-09-16T17:04:13.016Z
+updated: 2024-09-21T17:21:45.136Z
 tags:
   - ai video
   - ai youtube
@@ -89,6 +89,13 @@ Camera shake is a video effect that makes the original clip appear like it was f
 
 A lot of comedy YouTubers change the color and levels of their videos in order to emphasize different moods. One common thing YouTubers do when they talk about anything slightly sad is to gradually fade out the colors in their talking head shots. In a cheesy way, the black and white look can emphasize a feeling of emptiness. For his “sad” reactions, PewDiePie often jump cuts into a black and white, slowed down clip of his sad face while playing some sad music in the background. To emphasize a darker message, some YouTubers increase the amount of shadows in their video. In the video below, while his daughter is delivering a darker message from 0:32 to 0:50, La Guardia Cross gradually adds more shadows around his daughter’s face through what appears to be a vignette effect.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Part 4: Transitions
 
 #### 1. Wipe
@@ -149,37 +156,24 @@ A lot of video editing software programs give you the option to add compression 
 
 ![ How to edit YouTube video](https://images.wondershare.com/filmora/article-images/compresssor-audio-in-youtube-video-editing.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 For those who want to make their YouTube videos better, I recommend Wondershare Filmora for [editing YouTube videos](https://tools.techidaily.com/wondershare/filmora/download/). [Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) allows you to create and edit a YouTube video easily with plentiful templates and effects pre-programmed.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -197,18 +191,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-from-humble-beginnings-to-prodigy-carryminatis-earnings-ajey/"><u>[New] 2024 Approved From Humble Beginnings to Prodigy CarryMinati's Earnings (Ajey)</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-minicam-project-scrutiny-overview/"><u>[New] MiniCam Project Scrutiny Overview</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-snowball-rally-highlights-from-the-beijing-games-2022/"><u>[New] Snowball Rally Highlights From the Beijing Games, 2022</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-top-mobile-video-assembly-software-for-smartphones/"><u>[New] Top Mobile Video Assembly Software for Smartphones</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-achieve-more-engagement-on-youtube-learn-the-best-thumbnail-size/"><u>[Updated] Achieve More Engagement on YouTube Learn the Best Thumbnail Size</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-disable-non-specific-youtube-video-alerts/"><u>[Updated] Disable Non-Specific YouTube Video Alerts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-vimeo-vs-youtube-differences-between-vimeo-and-youtube/"><u>2024 Approved Vimeo vs YouTube Differences Between Vimeo and YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>Enhance Your Presence Best Free Tools for Intriguing Openings</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-lava-blaze-pro-5g-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Lava Blaze Pro 5G to Another | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Vivo Y78t | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/international-commercial-arbitration-is-governed-by-different-sets-of-rules-such-as-the-uncitrebarbitrage-convention-which-facilitates-enforcement-across-bo287/"><u>International Commercial Arbitration Is Governed by Different Sets of Rules Such as the UNCITRebarbitrage Convention, Which Facilitates Enforcement Across Borders.</u></a></li>
-<li><a href="https://program-issues.techidaily.com/no-more-overwatch-crash-error-update-your-graphics-driver-today/"><u>No More Overwatch Crash Error? Update Your Graphics Driver Today!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716465777166-transform-spaceships-into-trees-youtubes-green-secrets-revealed/"><u>Transform Spaceships Into Trees – Youtube’s Green Secrets Revealed!</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-unveiling-samsungs-picture-editor-features-and-drawbacks/"><u>[New] 2024 Approved Unveiling Samsung's Picture Editor Features & Drawbacks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dailymotion-vs-youtube-monetization-which-is-more-profitable/"><u>[New] Dailymotion vs YouTube Monetization Which Is More Profitable?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-accolades-across-platforms-for-video-creators/"><u>[Updated] Accolades Across Platforms for Video Creators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-audio-visual-transcript-maker/"><u>[Updated] Audio Visual Transcript Maker</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-compreran-yoga-moves-check-out-top-10-youtube-channels/"><u>[Updated] Compreran Yoga Moves? Check Out Top 10 YouTube Channels</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-superior-apps-to-itunes-for-effortless-iphone-and-ipad-data-syncing/"><u>5 Superior Apps to iTunes for Effortless iPhone and iPad Data Syncing</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-play-mp4-files-on-samsung-galaxy-a54-5g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Can't play MP4 files on Samsung Galaxy A54 5G</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/direct-download-destiny-10-online-tool-reviewers-choice/"><u>Direct Download Destiny #10 Online Tool Reviewers' Choice</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhance-your-content-filmmaking-for-youtube-trailers-with-filmora-for-2024/"><u>Enhance Your Content Filmmaking for YouTube Trailers with Filmora for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/exploring-the-world-of-aspect-ratios-in-youtube-content/"><u>Exploring the World of ASPECT RATIOS in YOUTUBE Content</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-tecno-pop-8-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-seamless-and-permanent-tiktok-bio-linking-methods/"><u>In 2024, Seamless & Permanent TikTok Bio Linking Methods</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-realme-12-proplus-5g-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Realme 12 Pro+ 5G Phone Hassle-Free</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/infusing-life-into-jujutsu-kaisen-with-tiktok-videos-for-2024/"><u>Infusing Life Into Jujutsu Kaisen with TikTok Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ate-mic-for-digital-content-makers/"><u>Ultimate Mic for Digital Content Makers</u></a></li>
 </ul></div>
 

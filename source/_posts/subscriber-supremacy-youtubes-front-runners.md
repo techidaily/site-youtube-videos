@@ -1,7 +1,7 @@
 ---
 title: "\"Subscriber Supremacy  YouTube's Front-Runners\""
-date: 2024-09-13T17:53:09.894Z
-updated: 2024-09-16T18:05:55.583Z
+date: 2024-09-20T18:50:15.664Z
+updated: 2024-09-21T19:38:36.561Z
 tags:
   - ai video
   - ai youtube
@@ -78,35 +78,22 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -121,13 +108,20 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -144,18 +138,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-creating-a-cash-flow-from-content-youtubes-monetization-techniques-for-the-future/"><u>2024 Approved Creating a Cash Flow From Content YouTube's Monetization Techniques for the Future</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-streamline-your-gaming-memories-easy-minecraft-recordings-on-macs/"><u>2024 Approved Streamline Your Gaming Memories Easy Minecraft Recordings on Macs</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-x50-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor X50 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/analyzing-video-success-self-vs-rivals-in-the-youtube-arena/"><u>Analyzing Video Success Self Vs. Rivals in the YouTube Arena</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/can-instant-subscription-lead-to-higher-watch-time-for-2024/"><u>Can Instant Subscription Lead to Higher Watch Time for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/comedic-content-concepts-7-hilarious-vlog-ideas-for-laughter-lovers/"><u>Comedic Content Concepts 7 Hilarious Vlog Ideas for Laughter Lovers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/counterclockwise-content-youtube-replay-methods/"><u>Counterclockwise Content YouTube Replay Methods</u></a></li>
-<li><a href="https://os-tips.techidaily.com/discover-the-ultimate-selection-of-app-runners-the-top-7-solutions-for-using-mobile-apps-on-pc/"><u>Discover the Ultimate Selection of App Runners: The Top 7 Solutions for Using Mobile Apps on PC</u></a></li>
-<li><a href="https://techidaily.com/enhancing-conversions-the-efficacy-of-cookiebot-driven-marketing-solutions/"><u>Enhancing Conversions: The Efficacy of Cookiebot-Driven Marketing Solutions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-exclusive-mp4-uploader-to-facebook-platform/"><u>In 2024, Exclusive MP4 Uploader to Facebook Platform</u></a></li>
-<li><a href="https://win11.techidaily.com/streamline-your-input-flows-disable-mouse-acceleration-on-win-devices/"><u>Streamline Your Input Flows: Disable Mouse Acceleration on Win Devices</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-motorola-edge-40-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Motorola Edge 40 FRP Bypass</u></a></li>
-<li><a href="https://article-tips.techidaily.com/unveiling-the-best-vr-applications-for-phones-for-2024/"><u>Unveiling the Best VR Applications for Phones for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-15-synergistic-tasks-for-the-contemporary-audio-aficionado/"><u>[New] 15 Synergistic Tasks for the Contemporary Audio Aficionado</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-efficiently-documenting-your-fb-chats-and-meets/"><u>[New] 2024 Approved Efficiently Documenting Your FB Chats & Meets</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-premier-selections-versatile-and-affordable-macpc-bd-decoders/"><u>[New] Premier Selections Versatile and Affordable Mac/PC BD Decoders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-building-a-channel-team-up-videography-guide/"><u>[Updated] Building a Channel Team-Up Videography Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-clear-cinematic-vision-top-camera-stabilizers-reviewed/"><u>[Updated] Clear Cinematic Vision - Top Camera Stabilizers Reviewed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-designing-distinctive-denouements/"><u>[Updated] Designing Distinctive Denouements</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-your-yt-content-with-the-top-thumbnail-hacks/"><u>[Updated] Elevating Your YT Content with the Top Thumbnail Hacks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-meme-matrix-top-10-memes-on-social-media-platforms/"><u>[Updated] In 2024, Meme Matrix Top 10 Memes on Social Media Platforms</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/detailed-steps-for-manipulating-windows-registry-command-line/"><u>Detailed Steps for Manipulating Windows Registry Command Line</u></a></li>
+<li><a href="https://video-capture.techidaily.com/from-viewer-to-victor-step-by-step-windows-pc-guide-for-high-quality-live-recording/"><u>From Viewer to Victor Step-by-Step Windows PC Guide for High-Quality Live Recording</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-embrace-cold-choosing-heated-backdrops-for-youtube/"><u>In 2024, Embrace Cold Choosing Heated Backdrops for YouTube</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-delete-icloud-account-with-or-without-password-from-your-iphone-xswindowsmac-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account with or without Password from your iPhone XS/Windows/Mac</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-your-pathway-to-successful-youtube-beginnings-techniques-1-and-2/"><u>In 2024, Your Pathway to Successful YouTube Beginnings (Techniques 1 & 2)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-10-tips-for-youtube-stars-perfecting-your-music-reaction-skills/"><u>Top 10 Tips for YouTube Stars Perfecting Your Music Reaction Skills</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/transforming-challenges-into-triumphs-with-these-30-tips-for-2024/"><u>Transforming Challenges Into Triumphs with These 30 Tips for 2024</u></a></li>
 </ul></div>
 

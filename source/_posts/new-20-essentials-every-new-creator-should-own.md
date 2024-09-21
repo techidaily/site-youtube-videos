@@ -1,7 +1,7 @@
 ---
 title: "[New] 20 Essentials Every New Creator Should Own"
-date: 2024-09-10T16:04:50.473Z
-updated: 2024-09-16T16:47:59.256Z
+date: 2024-09-17T18:48:05.822Z
+updated: 2024-09-21T16:42:42.921Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -86,6 +93,13 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
 **The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
@@ -94,25 +108,11 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -129,21 +129,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-top-5-best-live-streaming-webcamscameras-for-twitch-for-2024/"><u>[Updated] Top 5 Best Live Streaming Webcams/Cameras for Twitch for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-beginners-guide-to-crafting-trendy-mac-video-content/"><u>2024 Approved Beginner's Guide to Crafting Trendy Mac Video Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-boost-your-channels-income-understanding-critical-view-thresholds/"><u>2024 Approved Boost Your Channel's Income Understanding Critical View Thresholds</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-digital-makeup-mastering-youtubes-chromatic-alignment/"><u>2024 Approved Digital Makeup Mastering Youtube's Chromatic Alignment</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-your-content-with-effortlessly-added-youtube-subtitles/"><u>2024 Approved Enhancing Your Content with Effortlessly Added YouTube Subtitles</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/achieve-more-money-from-your-short-videos-on-youtube-for-2024/"><u>Achieve More Money From Your Short Videos on YouTube for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/basic-printer-and-scanner-support-added-directly-into-windows-10-operating-system/"><u>Basic Printer and Scanner Support Added Directly Into Windows 10 Operating System</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-practices-for-writing-testable-maintainable-javascript-code/"><u>Best Practices for Writing Testable, Maintainable JavaScript Code</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/digital-dominance-top-youtube-watch-count-chronicles/"><u>Digital Dominance Top YouTube Watch Count Chronicles</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-nokia-g42-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Nokia G42 5G</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-baleful-blackness-clashing-with-splendid-silverliness/"><u>In 2024, Baleful Blackness Clashing with Splendid Silverliness</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-vivo-v30-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Vivo V30</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-starting-and-participating-in-zoom-meetings-from-android-devices/"><u>In 2024, Starting and Participating in Zoom Meetings From Android Devices</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-stuck-screens-steps-to-successfully-turn-off-windows-10-on-laptops-and-desktops/"><u>Overcoming Stuck Screens: Steps to Successfully Turn Off Windows 10 on Laptops and Desktops</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/simple-steps-mastering-the-art-of-capturing-team-fortress-2-gaming-sessions/"><u>Simple Steps: Mastering the Art of Capturing Team Fortress 2 Gaming Sessions</u></a></li>
-<li><a href="https://techidaily.com/vivo-v27-pro-video-recovery-recover-deleted-videos-from-vivo-v27-pro-by-fonelab-android-recover-video/"><u>Vivo V27 Pro Video Recovery - Recover Deleted Videos from Vivo V27 Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unveiling-the-secrets-to-producing-popular-youtube-shorts/"><u>[New] 2024 Approved Unveiling the Secrets to Producing Popular YouTube Shorts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-detailed-guide-to-dollar-counts-a-stepwise-strategy-to-track-youtube-earnings/"><u>[Updated] Detailed Guide to Dollar Counts A Stepwise Strategy to Track YouTube Earnings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-practices-in-confirming-your-youtube-access/"><u>2024 Approved Best Practices in Confirming Your YouTube Access</u></a></li>
+<li><a href="https://win-able.techidaily.com/bypassing-launch-errors-in-borderlands-3-effective-strategies-you-can-apply-now/"><u>Bypassing Launch Errors in Borderlands 3: Effective Strategies You Can Apply Now</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/discover-the-heroic-escapades-in-assassins-creed-valhalla-an-epic-viking-expedition-through-time/"><u>Discover the Heroic Escapades in 'Assassin's Creed: Valhalla': An Epic Viking Expedition Through Time</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/facebook-fanfare-unveiled-android-and-iphones-most-liked-apps/"><u>Facebook Fanfare Unveiled Android & iPhone's Most Liked Apps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-techniques-youtube-trailers-through-filmoras-lens/"><u>In 2024, Cutting Edge Techniques YouTube Trailers Through Filmora's Lens</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mise-en-ligne-sans-frais-convertir-des-images-gif-en-tiff-rapidement-avec-movavi-instructions-detaillees/"><u>Mise en Ligne Sans Frais: Convertir Des Images GIF en TIFF Rapidement Avec Movavi - Instructions Détaillées</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-the-new-streaming-landscape-with-youtube-premium/"><u>Navigating the New Streaming Landscape with YouTube Premium</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/protecting-your-privacy-avoiding-risks-with-personalized-gpt-models-like-chatgpt/"><u>Protecting Your Privacy: Avoiding Risks with Personalized GPT Models Like ChatGPT</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/stop-algorithmic-youtube-video-selections/"><u>Stop Algorithmic YouTube Video Selections</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-guide-what-to-do-when-alexa-reports-your-echo-device-is-not-connected/"><u>Troubleshooting Guide: What to Do When Alexa Reports Your Echo Device Is Not Connected</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unveiling-the-best-3-video-hosts-post-youtube-era/"><u>Unveiling the Best 3 Video Hosts Post-YouTube Era</u></a></li>
 </ul></div>
 

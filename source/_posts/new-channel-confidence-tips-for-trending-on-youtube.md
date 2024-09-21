@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Confidence  Tips for Trending on YouTube\""
-date: 2024-09-10T19:04:00.111Z
-updated: 2024-09-16T16:07:01.128Z
+date: 2024-09-17T17:13:52.323Z
+updated: 2024-09-21T19:03:47.246Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -65,6 +72,13 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -77,13 +91,6 @@ The great thing about vlogging is that you will get a lot of practice framing sh
 Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UCjwmbv6NE4mOh8Z8VhPUx1Q), where she gives a tour of her bedroom.
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
 
@@ -104,13 +111,6 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -136,20 +136,14 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -166,17 +160,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-premier-auditory-options-for-iphones/"><u>[New] 2024 Approved Premier Auditory Options for iPhones</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-best-9-free-youtube-logo-makers/"><u>[New] Best 9 Free YouTube Logo Makers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-low-cost-footage-source-directory/"><u>[New] Essential Low-Cost Footage Source Directory</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-premium-audio-devices-for-online-recording-reviewed-2023/"><u>[New] Premium Audio Devices for Online Recording Reviewed 2023</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-simplified-steps-for-posting-tweets-on-facebook/"><u>[New] Simplified Steps for Posting Tweets on Facebook</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-crafting-compelling-youtube-narratives-with-chapters-and-subsections/"><u>[Updated] 2024 Approved Crafting Compelling YouTube Narratives with Chapters and Subsections</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-banishing-black-edges-on-your-youtube-video/"><u>[Updated] Banishing Black Edges on Your YouTube Video</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/constructing-youtube-video-content-that-resonates-with-viewers/"><u>Constructing YouTube Video Content That Resonates with Viewers</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-sony-xperia-1-v-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Sony Xperia 1 V FRP In 3 Different Ways</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-breathtaking-judgment-and-variant-proposals/"><u>In 2024, Breathtaking Judgment & Variant Proposals</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-engage-and-learn-students-choice-of-best-historical-youtubes/"><u>In 2024, Engage & Learn Students' Choice of Best Historical YouTubes</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1726029735859-youtube/"><u>YouTubeビデオ字幕抽出方法詳細解説</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dive-into-the-world-of-enhanced-youtube-content-with-premium-subscription/"><u>[New] Dive Into the World of Enhanced YouTube Content with Premium Subscription</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtube-studio-editor-step-by-step-video-tutorial-creation/"><u>[New] In 2024, YouTube Studio Editor Step-by-Step Video Tutorial Creation</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-5-pro-tips-to-perfectly-tag-videos-and-maximize-views/"><u>[Updated] 5 Pro Tips to Perfectly Tag Videos and Maximize Views</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-transform-your-flip-to-flash-with-android/"><u>[Updated] Transform Your Flip to Flash with Android</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-charting-success-with-youtube-income-streams/"><u>2024 Approved Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-oneplus-ace-2v-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from OnePlus Ace 2V to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/download-premium-quality-designs-at-no-cost-for-youtube-creators/"><u>Download Premium-Quality Designs at No Cost – For YouTube Creators</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-cinematic-brilliance-mastering-video-lighting-techniques/"><u>In 2024, Cinematic Brilliance Mastering Video Lighting Techniques</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-debut-visual-capturing-analysis/"><u>In 2024, Debut Visual Capturing Analysis</u></a></li>
+<li><a href="https://games-able.techidaily.com/psp-into-virtual-game-boy-transition-tips/"><u>PSP Into Virtual Game Boy Transition Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/reimagine-your-youtube-approach-with-tubebuddy/"><u>Reimagine Your YouTube Approach with TubeBuddy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unlock-the-secrets-of-internet-humor-with-a-guide-on-9gag-for-2024/"><u>Unlock the Secrets of Internet Humor with a Guide on 9GAG for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/44ot44oh44kq55s75yop44go6zplusz5aow5zcm5pyf6kit5a6a5oml6acg44ks5a2m44g25pa55rov/"><u>ビデオ画像と音声同期設定手順を学ぶ方法</u></a></li>
 </ul></div>
 

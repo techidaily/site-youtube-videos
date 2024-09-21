@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Advanced Filmmaking Techniques  Selecting Top-Notch Lenses\""
-date: 2024-09-14T18:43:16.854Z
-updated: 2024-09-16T17:24:04.155Z
+date: 2024-09-17T18:42:58.315Z
+updated: 2024-09-21T16:28:03.282Z
 tags:
   - ai video
   - ai youtube
@@ -76,6 +76,13 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
 
 Here are a couple great lenses that might be good fits for you and your YouTube channel. The thing that makes them both ideal for vlogging is that they have low enough f-stops to blur out your background.
@@ -101,19 +108,6 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
@@ -126,6 +120,13 @@ Recording **moving objects** from a distance requires you to have a lens that al
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
 A lot of zoom lenses do not have wide enough apertures to create blurred backgrounds, but this Tamron lens is an exception at f/2.8\. This low f-stop also means that it performs better in poor lighting conditions than a lot of other zoom lenses. If your shooting conditions change a lot – if you often change locations, for example – then it will be good to have a sturdy, well-built, zoom lens like the AF 17-mm that can be quickly adapted to new angles and distances.
@@ -137,13 +138,6 @@ All Sony's APS-C format E mount cameras are compatible with this multi-purpose l
 If you are using a 4k camera to shoot your YouTube video, check out [best camera lens for 4k professional production.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -160,21 +154,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-navigating-through-top-6-ideal-helmet-harnesses-for-gopros/"><u>[New] Navigating Through Top 6 Ideal Helmet Harnesses for GoPros</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-demystifying-video-recordingediting-a-comprehensive-guide-on-adobe-connect/"><u>[Updated] In 2024, Demystifying Video Recording/Editing A Comprehensive Guide on Adobe Connect</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/cutting-edge-collage-companions-android-and-iphones-best-for-2024/"><u>Cutting-Edge Collage Companions Android & iPhone's Best for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhancing-youtube-viewing-with-faster-or-slower-video-pace/"><u>Enhancing YouTube Viewing with Faster or Slower Video Pace</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-techniques-for-splendid-lyric-videos-lyric-video-maker-edition-for-2024/"><u>Essential Techniques for Splendid Lyric Videos, Lyric Video Maker Edition for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/gamers-quest-1000plus-game-adventures-unfolded/"><u>Gamer's Quest 1,000+ Game Adventures Unfolded</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/hire-harmony-a-collection-of-inspirational-clips/"><u>Hire Harmony A Collection of Inspirational Clips</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-6s-plus-without-losing-any-content-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 6s Plus without Losing Any Content? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-12-proplus-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on 12 Pro+ 5G</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-authenticating-a-step-by-step-for-youtube-users/"><u>In 2024, Authenticating A Step-by-Step for Youtube Users</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-youtube-channel-trailers-the-ultimate-guide-to-profitability/"><u>In 2024, Crafting YouTube Channel Trailers The Ultimate Guide to Profitability</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-empowered-by-numbers-decoding-youtube-analytics/"><u>In 2024, Empowered by Numbers Decoding YouTube Analytics</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-on-iphone-x-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock On iPhone X?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Infinix Zero 30 5G? | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/instantly-connect-device-usbethernet-adapter/"><u>Instantly Connect Device - USB/Ethernet Adapter</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/streamline-your-video-livestreaming-vlc-strategies/"><u>Streamline Your Video Livestreaming VLC Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-a-palette-of-pleasantness-five-winter-backgrounds-ideas/"><u>[New] A Palette of Pleasantness Five Winter Backgrounds Ideas</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-building-a-strong-foundation-for-advertising-deals-using-famebit-methods/"><u>[New] Building a Strong Foundation for Advertising Deals Using FameBit Methods</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-expert-approaches-for-preserving-facetime-calls/"><u>[New] In 2024, Expert Approaches for Preserving FaceTime Calls</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-unleash-the-potential-of-your-webcam-for-slideshows/"><u>[Updated] 2024 Approved Unleash the Potential of Your Webcam for Slideshows</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-how-to-go-live-with-recorded-material-on-the-worlds-largest-social-network/"><u>[Updated] In 2024, How to Go Live with Recorded Material on the World's Largest Social Network</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-secrets-of-instagram-igniting-content-passion-for-2024/"><u>[Updated] Secrets of Instagram Igniting Content Passion for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-dive-into-video-production-mastering-green-screens-on-yt/"><u>2024 Approved Dive Into Video Production Mastering Green Screens on YT</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-authority-in-education-10-tips-for-youtube-channel-creation-for-2024/"><u>Building Authority in Education 10 Tips for YouTube Channel Creation for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-lava-agni-2-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Lava Agni 2 5G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ideal-acquisitions-starting-off-with-profitable-youtube-channel-buys/"><u>Ideal Acquisitions Starting Off with Profitable YouTube Channel Buys</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-from-apple-iphone-6-plus-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account From Apple iPhone 6 Plus?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/securing-your-stake-in-youtubes-financial-future/"><u>Securing Your Stake in YouTube's Financial Future</u></a></li>
 </ul></div>
 

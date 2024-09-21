@@ -1,7 +1,7 @@
 ---
 title: The Next Level of Gaming Experience with Xbox Series X's Stunning 4K Graphics
-date: 2024-09-11T18:26:41.326Z
-updated: 2024-09-16T17:39:43.158Z
+date: 2024-09-20T19:08:50.368Z
+updated: 2024-09-21T19:38:00.531Z
 categories:
   - BestProducts
 description: This Article Describes The Next Level of Gaming Experience with Xbox Series X's Stunning 4K Graphics
@@ -123,20 +123,14 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
- Lifewire / Zach Sweat
-
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Zach Sweat
 
 ## **Gaming: From ok to amazing, if you have the cash**
 
@@ -153,13 +147,6 @@ Lifewire / Zach Sweat
  Aside from FPS, the load times for games compared to my[SSD-equipped](https://www.lifewire.com/best-external-hard-drives-4050413) PC were much, much slower. Loading into planets and zones in[Destiny 2](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) takes only a few moments with an SSD, while this HDD R9 felt twice as long or more—similar to what you’d see with any current-gen gaming console (they all have HDDs).
 
  Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Audio: Decent prebuilt performance and surround sound**
 
@@ -190,10 +177,10 @@ Lifewire / Zach Sweat
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -210,6 +197,13 @@ Lifewire / Zach Sweat
 
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Not the best bang for your buck**
 
  PC gaming is notoriously expensive to initially get into, but the prices of many components have continued to dwindle over the decades. Although the old adage that building your own computer from scratch is cheaper still holds true, prebuilt computers have also become much more comparable. So how does this Alienware match up?
@@ -223,6 +217,13 @@ Lifewire / Zach Sweat
  Another thing to keep in mind here is that the $850 price point doesn’t include much in the way of peripherals, and these can really add up. The Aurora R9 does include a shoddy Dell keyboard and mouse, but these accessories are definitely the bare minimum, and won’t provide the best experience.
 
  Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Alienware Aurora R9 vs. Dell G5 5090**
 
@@ -239,13 +240,6 @@ Lifewire / Zach Sweat
  **A quality prebuilt, but not the most frugal.**
 
  With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -275,18 +269,18 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-discovering-the-forgotten-chronicles-a-guide-to-past-facebook-stories-on-tech-devices-for-2024/"><u>[New] Discovering The Forgotten Chronicles A Guide to Past Facebook Stories on Tech Devices for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-from-couch-to-camera-earning-through-personal-vlogging-for-2024/"><u>[New] From Couch-to-Camera Earning Through Personal Vlogging for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ac-users-launch-your-own-sports-videography-hub/"><u>[New] Mac Users Launch Your Own Sports Videography Hub</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-uncovering-secrets-in-instagram-story-watchers/"><u>[Updated] 2024 Approved Uncovering Secrets in Instagram Story Watchers</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-comprehensive-review-by-inclusive-experts/"><u>2024 Approved Comprehensive Review by Inclusive Experts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-convert-youtube-to-mp4-safely-in-2024/"><u>How to Convert YouTube to MP4 Safely, In 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-audio-purging-techniques-for-streaming-success/"><u>In 2024, Audio Purging Techniques for Streaming Success</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-best-youtube-video-converters-for-high-quality-webm/"><u>In 2024, Best YouTube Video Converters for High-Quality WebM</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-free-tools-convert-youtube-audio-to-mp3-on-iphone/"><u>In 2024, Essential Free Tools Convert YouTube Audio to MP3 on iPhone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-mp4-software-elevate-your-mac-productions/"><u>In 2024, Essential MP4 Software Elevate Your Mac Productions</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sing-your-heart-out-with-these-premiere-karaoke-machines-of-2024/"><u>Sing Your Heart Out with These Premiere Karaoke Machines of 2024!</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/step-by-step-including-in-apples-premium-catalog-for-2024/"><u>Step-by-Step Including in Apple's Premium Catalog for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-poco-c51-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Poco C51 Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-detailed-guide-to-screen-record-skype-via-obs/"><u>[New] Detailed Guide to Screen Record Skype via OBS</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cracking-the-code-calculating-your-income-from-youtubes-cpm/"><u>[Updated] Cracking the Code Calculating Your Income From YouTube's CPM</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-decoding-the-youtube-view-number-for-profitability/"><u>[Updated] Decoding the YouTube View Number for Profitability</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevate-your-content-with-these-10-reaction-wonders/"><u>[Updated] Elevate Your Content with These 10 Reaction Wonders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/are-scalping-subscribers-a-viable-strategy-for-2024/"><u>Are Scalping Subscribers a Viable Strategy for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-samsung-galaxy-m34-5g-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Samsung Galaxy M34 5G to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-poco-c50-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-poco-m6-pro-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Poco M6 Pro 5G</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-8-plus-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 8 Plus to other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-empowering-your-business-communication-google-meet-to-youtube-steps/"><u>In 2024, Empowering Your Business Communication Google Meet to YouTube Steps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-quieting-audible-outputs-a-windowsmac-guide/"><u>In 2024, Quieting Audible Outputs A Windows/Mac Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/must-play-biking-games-anthology/"><u>Must-Play Biking Games Anthology</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/proven-techniques-for-captivating-viewers-with-live-video-graphics/"><u>Proven Techniques for Captivating Viewers with Live Video Graphics</u></a></li>
 </ul></div>
 

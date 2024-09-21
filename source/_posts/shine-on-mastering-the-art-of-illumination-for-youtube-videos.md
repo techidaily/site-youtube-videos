@@ -1,7 +1,7 @@
 ---
 title: "\"Shine On  Mastering the Art of Illumination for YouTube Videos\""
-date: 2024-09-14T17:42:52.470Z
-updated: 2024-09-16T16:35:57.117Z
+date: 2024-09-18T18:30:54.975Z
+updated: 2024-09-21T18:51:14.100Z
 tags:
   - ai video
   - ai youtube
@@ -62,16 +62,10 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
@@ -88,18 +82,24 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
+
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -109,18 +109,18 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -139,17 +139,12 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-10-facts-about-instagram-reels-the-truth-you-may-ignore-for-2024/"><u>[New] 10 Facts About Instagram Reels-The Truth You May Ignore for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-ace-your-earnings-game-in-youtube-shorts/"><u>[New] Ace Your Earnings Game in YouTube Shorts</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/4-ways-to-unlock-iphone-6s-plus-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>4 Ways to Unlock iPhone 6s Plus to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/charting-the-course-to-youtube-fame-strategic-video-release-frequency/"><u>Charting the Course to YouTube Fame Strategic Video Release Frequency</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/find-download-and-set-up-logitech-k400-plus-keyboardtrackpad-drivers-now/"><u>Find, Download & Set Up Logitech K400 Plus Keyboard/Trackpad Drivers Now</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/endings-that-wow-ranked-for-you-top-6-for-2024/"><u>Free Endings That Wow - Ranked for You (Top 6) for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/harmonic-haven-best-dj-template-selections/"><u>Harmonic Haven Best DJ Template Selections</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-do-i-play-mkv-movies-on-moto-g-5g-2023-by-aiseesoft-video-converter-play-mkv-on-android/"><u>How do I play MKV movies on Moto G 5G (2023)?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-your-nokia-c210-lock-screen-password-by-drfone-android/"><u>How to Reset your Nokia C210 Lock Screen Password</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-poco-c51-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Poco C51? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-demystifying-mukbang-a-comprehensive-production-guide/"><u>In 2024, Demystifying Mukbang A Comprehensive Production Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-20-fonts-for-captivating-youtube-thumbnails/"><u>Top 20 Fonts for Captivating YouTube Thumbnails</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-complete-kinetic-review-2023/"><u>[New] 2024 Approved Complete Kinetic Review 2023</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-winter-olympics-2022-precision-snowriders-in-the-spotlight/"><u>[New] 2024 Approved Winter Olympics 2022 - Precision Snowriders in the Spotlight</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-compelling-combinations-a-guide-to-creating-your-own-youtube-playlists-for-2024/"><u>Crafting Compelling Combinations A Guide to Creating Your Own YouTube Playlists for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/earnings-expertise-in-streams-a-comparative-study/"><u>Earnings Expertise in Streams A Comparative Study</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/handling-haters-strategies-for-content-creators/"><u>Handling Haters Strategies for Content Creators</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/harness-the-power-of-automated-content-crafting/"><u>Harness the Power of Automated Content Crafting</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/introducing-the-cutting-edge-flagship-k1c-from-creality-a-new-era-in-3d-printers/"><u>Introducing the Cutting-Edge Flagship K1C From Creality, a New Era in 3D Printers</u></a></li>
 </ul></div>
 

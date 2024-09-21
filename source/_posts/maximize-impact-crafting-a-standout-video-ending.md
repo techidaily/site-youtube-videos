@@ -1,7 +1,7 @@
 ---
 title: "\"Maximize Impact  Crafting a Standout Video Ending\""
-date: 2024-09-12T16:51:28.817Z
-updated: 2024-09-16T16:24:39.121Z
+date: 2024-09-14T19:02:32.059Z
+updated: 2024-09-21T19:42:57.848Z
 tags:
   - ai video
   - ai youtube
@@ -109,10 +109,10 @@ Next, go to the shape tool again and select the "Ellipse Tool." Deselect the cur
 ![subscribe button added](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 6: Add Effects
@@ -121,13 +121,6 @@ Now highlight the shape layers again by shift. Right-click and add "Layer Styles
 
 ![effects added](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 7: Customize Background
 
 From the "Effects and Preset" panel, you can add different "Animation Presets" to your background. Choose one that you like and drag it on the layer.
@@ -135,16 +128,10 @@ From the "Effects and Preset" panel, you can add different "Animation Presets" t
 ![customize your background](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-7.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 8: Add Text and Icons
@@ -152,6 +139,13 @@ Step 8: Add Text and Icons
 Now add text to your YouTube outros like your social media handles or any other information that you want. Grab the text tool from the top and add a text.
 
 ![add text or icons in the design](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you want to add other logos or PNGs like social media icons, you can drag and drop them into their layer and place them on the composition.
 
@@ -189,18 +183,18 @@ The YouTube Subscribe Reminders pack by Filmstock contains 10 title templates th
 
 ![youtube subscribe reminders](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. [4K YouTube Motion Graphics Packaging](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The 4K YouTube Motion Graphics Packaging contains multiple title templates from Filmstock's library to help you create a remarkable outro for YouTube. From subscribe reminders to recommended video templates and text animations, the pack can be used at the end screen of any video. The pack is compatible with Filmora 9.6 or above versions.
 
 ![4k youtube motion graphics packaging](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. [Clean YouTube Subscribe Pack](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -215,10 +209,10 @@ Compatible with Filmora 9.2 or above, the Social Media Icons Pack by Filmstock c
 The Social Media Icons Pack contains all the necessary elements for when you want to communicate with your viewers. It includes bell icons, subscribes buttons, hashtags, location tags, like, share, and follows icons, and much more. With 23 elements revolving around multiple social media themes, this pack is perfectly suited for YouTube videos.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. [Social Media Lowerthird Pack](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -250,18 +244,18 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-how-to-set-up-zoom-for-video-meeting/"><u>[New] How to Set up Zoom for Video Meeting</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-earning-insights-from-viewing-data-on-youtube/"><u>2024 Approved Earning Insights From Viewing Data on YouTube</u></a></li>
-<li><a href="https://some-tips.techidaily.com/abbyy-welcomes-scott-opitz-as-new-head-of-technology-and-product-innovation/"><u>ABBYY Welcomes Scott Opitz as New Head of Technology and Product Innovation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-10-volume-elevators-for-windows-ios-and-android/"><u>Best 10 Volume Elevators for Windows, iOS & Android</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/constructing-compelling-channel-overviews-for-2024/"><u>Constructing Compelling Channel Overviews for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-most-anticipated-sony-playstation-5-exclusives/"><u>Discover the Most Anticipated Sony PlayStation 5 Exclusives</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716465621220-download-premium-video-covers-free-fast-and-easy/"><u>Download Premium Video Covers - Free, Fast & Easy!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/eliminating-odd-shades-a-step-by-step-guide-to-flawless-greenscreens/"><u>Eliminating Odd Shades A Step-by-Step Guide to Flawless Greenscreens</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-motorola-moto-g34-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Motorola Moto G34 5G Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-vivo-y27-5g-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Vivo Y27 5G | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/intels-new-dual-p-core-310-still-thriving-in-the-world-of-processors/"><u>Intel's New Dual-P Core 310: Still Thriving in the World of Processors</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/scripting-success-gpt-in-podcast-making/"><u>Scripting Success: GPT in Podcast Making</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-apple-ring-saga-continues-forecasting-prices-debuting-dates-specifications-and-new-whispers/"><u>The Apple Ring Saga Continues: Forecasting Prices, Debuting Dates, Specifications & New Whispers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhancing-video-discoverability-with-effective-titles-and-tags/"><u>[New] Enhancing Video Discoverability with Effective Titles & Tags</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-explore-how-you-can-do-speech-to-text-in-powerpoint/"><u>[New] Explore How You Can Do Speech-To-Text in Powerpoint</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-ppt-visualization-leveraging-webcam-tech/"><u>[Updated] 2024 Approved PPT Visualization Leveraging Webcam Tech</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-essential-guide-to-writing-click-worthy-youtube-titles/"><u>[Updated] In 2024, Essential Guide to Writing Click-Worthy Youtube Titles</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-your-youtube-content-basic-premiere-pro-edits/"><u>Enhancing Your YouTube Content Basic Premiere Pro Edits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enjoy-pure-browsing-our-selections-of-7-top-android-adblockers/"><u>Enjoy Pure Browsing Our Selections of 7 Top Android AdBlockers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-details-on-creating-effective-yt-shorts/"><u>Essential Details on Creating Effective YT Shorts</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-realme-c67-4g-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Realme C67 4G Phone that is Locked?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-oppo-a59-5g-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Oppo A59 5G to Another | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-iphone-13-pro-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 13 Pro When We Dont Have Apple ID or Password?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-magic-5-lite-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Honor Magic 5 Lite Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/straightforward-screen-capture-app-win10-edition-for-2024/"><u>Straightforward Screen Capture App, Win10 Edition for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/transform-your-streaming-enabling-av1-technology-in-youtube/"><u>Transform Your Streaming Enabling AV1 Technology in YouTube</u></a></li>
 </ul></div>
 

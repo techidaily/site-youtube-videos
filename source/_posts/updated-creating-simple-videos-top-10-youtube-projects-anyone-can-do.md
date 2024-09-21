@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2024-09-14T18:49:04.703Z
-updated: 2024-09-16T18:12:38.798Z
+date: 2024-09-18T16:12:54.559Z
+updated: 2024-09-21T19:46:23.933Z
 tags:
   - ai video
   - ai youtube
@@ -61,24 +61,31 @@ Opinion videos are great conversation starters. Expressing an opinion through a 
 
 You can express your opinions on virtually any topic, but being respectful while doing so is for the best if you don’t want to find yourself in a YouTube feud.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Review Anything
 
 Everywhere around you, there are items you can review. The Apple Watch and the latest season of Game of Thrones are equally good choices for a review video. However, when creating review videos you need to make sure that all the factual information you have is accurate, which is why it is much better to make review videos about topics you know a lot about.
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. What’s on Your Phone?
 
@@ -93,10 +100,10 @@ There's no need to constantly produce new videos because you can just take some 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Make a Tutorial
@@ -104,19 +111,6 @@ If you are a photography enthusiast you can also plan the entire slideshow in ad
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
-
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 9\. 10 Things About You
 
@@ -132,18 +126,18 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Start Editing Videos with Beginner-friendly Software
 
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -162,16 +156,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-essential-snapshot-strategies-snapchat-boomerangs-unveiled/"><u>[New] 2024 Approved The Essential Snapshot Strategies Snapchat Boomerangs Unveiled</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-leading-edge-in-photo-editing-top-6-signature-removers-unveiled/"><u>[New] Leading Edge in Photo Editing Top 6 Signature Removers Unveiled</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-importance-of-understanding-asmr-media/"><u>[Updated] The Importance of Understanding ASMR Media</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-visual-hook-creating-captivating-youtube-thumbnails-to-drive-traffic/"><u>2024 Approved A Visual Hook Creating Captivating YouTube Thumbnails to Drive Traffic</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-creating-impactful-youtube-thumbnails-and-ads/"><u>2024 Approved Creating Impactful YouTube Thumbnails & Ads</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/direct-entry-into-your-channel-simplifying-the-follow-button-creation-for-2024/"><u>Direct Entry Into Your Channel Simplifying the Follow Button Creation for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/direction-and-intensity-in-video-lighting/"><u>Direction and Intensity in Video Lighting</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/effective-strategies-to-prevent-and-repair-frequent-kodi-crashing-problems/"><u>Effective Strategies to Prevent and Repair Frequent Kodi Crashing Problems</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-article-successfully-pairing-your-phone-or-tablet-with-an-lg-screen-mirroring-function/"><u>How-To Article: Successfully Pairing Your Phone or Tablet with an LG Screen Mirroring Function</u></a></li>
-<li><a href="https://blog-min.techidaily.com/platinum-series-dvd-ripping-tool-fast-easy-dvd-cloning-on-windows-11-platforms/"><u>Platinum Series DVD Ripping Tool - Fast, Easy DVD Cloning on Windows 11 Platforms</u></a></li>
-<li><a href="https://windows11.techidaily.com/unveiling-cost-effective-windows-11-keys/"><u>Unveiling Cost-Effective Windows 11 Keys</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhance-listening-pleasure-constructing-a-youtube-playlist/"><u>[New] Enhance Listening Pleasure Constructing a YouTube Playlist</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-avoidance-and-remedy-of-live-video-interruption-issues-fb/"><u>[New] In 2024, Avoidance & Remedy of Live Video Interruption Issues (FB)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-finest-6-video-snaggers-for-mac-users-now/"><u>[New] The Finest 6 Video Snaggers for Mac Users Now</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-top-strategies-for-documenting-youtube-real-time-broadcast/"><u>[New] Top Strategies for Documenting YouTube Real-Time Broadcast</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cloaking-in-content-an-introduction-to-video-smoothing/"><u>[Updated] Cloaking in Content An Introduction to Video Smoothing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-best-facebook-video-downloader-and-addons-for-firefox/"><u>[Updated] In 2024, Best Facebook Video Downloader And Addons for Firefox</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/beats-and-banners-discovering-premium-dj-templates/"><u>Beats & Banners Discovering Premium DJ Templates</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-from-iphone-12-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working From iPhone 12</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-honor-80-pro-straight-screen-edition-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Honor 80 Pro Straight Screen Edition Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-samsung-galaxy-z-flip-5-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Samsung Galaxy Z Flip 5</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-editing-made-easy-youtube-editiontop-10-tips-for-newbies/"><u>In 2024, Editing Made Easy YouTube Edition—Top 10 Tips for Newbies</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-youtube-accessing-video-comments-easily/"><u>In 2024, Mastering YouTube Accessing Video Comments Easily</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-the-art-of-uploading-youtube-videos-on-fb-for-2024/"><u>Mastering the Art of Uploading YouTube Videos on FB for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/social-blade-the-comprehensive-guide-to-youtube-performance-tracking/"><u>Social Blade The Comprehensive Guide to YouTube Performance Tracking</u></a></li>
 </ul></div>
 

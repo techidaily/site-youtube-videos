@@ -1,7 +1,7 @@
 ---
 title: "[New] Ergonomic Hold Techniques for Clarity"
-date: 2024-09-12T19:25:03.103Z
-updated: 2024-09-16T16:54:32.947Z
+date: 2024-09-18T17:43:52.721Z
+updated: 2024-09-21T16:36:46.342Z
 tags:
   - ai video
   - ai youtube
@@ -75,6 +75,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -84,10 +91,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -112,13 +119,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -134,17 +134,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-android-without-a-wire-heres-your-free-games-list/"><u>[New] 2024 Approved Android Without A Wire? Here's Your Free Games List</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-secret-to-understanding-your-youtube-fans/"><u>[New] 2024 Approved The Secret to Understanding Your YouTube Fans</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2023s-premier-ios-solutions-best-psp-game-simulators/"><u>[Updated] 2023'S Premier iOS Solutions Best PSP Game Simulators</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ing-a-course-through-youtubes-copyright-maze-for-2024/"><u>Charting a Course Through YouTube's Copyright Maze for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/elevate-engagement-with-these-10-igtv-branding-techniques-for-2024/"><u>Elevate Engagement with These 10 IGTV Branding Techniques for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-tips-for-smooth-youtube-content-trimming/"><u>Essential Tips for Smooth YouTube Content Trimming</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-zero-to-hero-youtube-intro-wonders-with-imovie/"><u>From Zero to Hero YouTube Intro Wonders with iMovie</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-create-a-playlist-on-youtube/"><u>How to Create a Playlist on YouTube</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/in-2024-3gp-file-trimmer-learn-how-to-cut-and-split-videos/"><u>In 2024, 3GP File Trimmer Learn How to Cut and Split Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-best-in-class-streaming-capture-software-for-youtubers/"><u>In 2024, Best-in-Class Streaming Capture Software For YouTubers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-building-a-billion-view-empire-your-step-by-step-youtube-strategy/"><u>In 2024, Building a Billion-View Empire Your Step-by-Step Youtube Strategy</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1726030505164-aviutl/"><u>ビデオからオーディオの取り外し: AviUtlでの効率的な方法</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-pros-best-top-8-tripods-excelling-at-4k-video-capture/"><u>[New] Pro's Best Top 8 Tripods Excelling at 4K Video Capture</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-essential-collection-top-9-premium-wedding-movies-online/"><u>[Updated] Essential Collection Top 9 Premium Wedding Movies Online</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-navigating-the-riches-of-stardews-ginger-isle-for-2024/"><u>[Updated] Navigating the Riches of Stardew’s Ginger Isle for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-online-stock-market-channels-reviewed/"><u>2024 Approved Best Online Stock Market Channels Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-the-best-apples-ipad-air-4-and-samsungs-galaxy-tab-s7plus/"><u>Comparing the Best: Apple's iPad Air 4 and Samsung's Galaxy Tab S7+</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-interactive-elements-necessity-or-novelty/"><u>Facebook’s Interactive Elements: Necessity or Novelty?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-channel-visualization-selecting-the-ideal-size-and-placement-for-yt/"><u>In 2024, Channel Visualization Selecting the Ideal Size and Placement for YT</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-chuckle-campaign-7-ingenious-ideas-for-funny-youtube-videos/"><u>In 2024, Chuckle Campaign 7 Ingenious Ideas for Funny YouTube Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-motorola-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Motorola Devices</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/installing-updated-geforce-rtx-2070-graphics-card-drivers-on-windows-systems/"><u>Installing Updated GeForce RTX 2070 Graphics Card Drivers on Windows Systems</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/pasos-sencillos-para-activar-movavi-en-tu-computadora-mac-instrucciones-detalladas/"><u>Pasos Sencillos Para Activar Movavi en Tu Computadora Mac: Instrucciones Detalladas</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/quick-ways-to-randomize-youtube-playlist-on-pcphonestvs/"><u>Quick Ways to Randomize YouTube Playlist On PC/Phones/TVs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/uncovering-the-truth-behind-4-second-youtube-subscriptions/"><u>Uncovering the Truth Behind 4-Second YouTube Subscriptions</u></a></li>
 </ul></div>
 

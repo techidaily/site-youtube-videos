@@ -1,7 +1,7 @@
 ---
 title: "\"The Elite 5  YouTube Channel Power Players\""
-date: 2024-09-15T16:25:25.107Z
-updated: 2024-09-16T19:09:37.434Z
+date: 2024-09-19T17:20:43.743Z
+updated: 2024-09-21T18:21:35.858Z
 tags:
   - ai video
   - ai youtube
@@ -79,10 +79,10 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
@@ -91,16 +91,16 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -110,22 +110,16 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -144,16 +138,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-earn-big-on-ig-ranking-the-most-effective-posts/"><u>[New] Earn Big on IG Ranking the Most Effective Posts</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-elevating-video-production-the-advantages-of-bandicams-technology/"><u>[New] In 2024, Elevating Video Production The Advantages of Bandicam's Technology</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-treasure-trove-sifting-through-the-top-10-economical-online-art-hubs-for-2024/"><u>A Treasure Trove Sifting Through the Top 10 Economical Online Art Hubs for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/adding-a-digital-clock-to-your-youtube-video-playback-for-2024/"><u>Adding a Digital Clock to Your YouTube Video Playback for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-asmr-apps-for-android-and-ios-for-2024/"><u>Best ASMR Apps for Android and iOS for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/budget-friendly-webinar-strategies-for-youtube/"><u>Budget-Friendly Webinar Strategies for YouTube</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatxt-influence-on-modern-media-production/"><u>ChaTxt Influence on Modern Media Production</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/download-free-mcb-skin-designs/"><u>Download Free MCB Skin Designs</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-highest-quality-gag-editor/"><u>In 2024, Highest Quality Gag Editor</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastering-mac-setup-for-optimal-switch-gaming/"><u>Mastering Mac Setup for Optimal Switch Gaming</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-convenient-viewing-setting-up-youtube-on-large-tv-panels/"><u>[New] Convenient Viewing Setting Up YouTube on Large TV Panels</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-stream-friendly-free-tunes-vault-fb/"><u>[New] Stream-Friendly Free Tunes Vault (FB)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-accelerate-how-to-swiftly-broadcast-playlists/"><u>[Updated] Accelerate How To Swiftly Broadcast Playlists</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-video-experience-non-youtube-hubs-explained/"><u>[Updated] Elevating Video Experience Non-Youtube Hubs Explained</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-click-attractor-the-title-crafting-kit/"><u>2024 Approved Click Attractor The Title Crafting Kit</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-from-frames-to-fun-youtube-gifs-creation-made-simple/"><u>2024 Approved From Frames to Fun YouTube GIFs Creation Made Simple</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-unlock-animoji-secrets-on-iphone-x-a-step-by-step-guide/"><u>2024 Approved Unlock Animoji Secrets on iPhone X - A Step-by-Step Guide</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/compreeed-software-bundle-officejet-pro-8600-windows-integration/"><u>Compreeed Software Bundle: OfficeJet Pro 8600, Windows Integration</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-compelling-youtube-content-through-split-screens-for-2024/"><u>Crafting Compelling YouTube Content Through Split-Screens for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/earning-potential-unveiled-youtube-adsense-earning-per-thousand-video-observations/"><u>Earning Potential Unveiled YouTube AdSense Earning per Thousand Video Observations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-dream-weavers-the-marvel-interactive-sculptors/"><u>In 2024, Dream Weavers The Marvel Interactive Sculptors</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-exploring-beyond-manycam-enhanced-alternatives/"><u>In 2024, Exploring Beyond ManyCam Enhanced Alternatives?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-11-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone 11 After Forgetting my PIN Code? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/innovating-content-tips-for-facebook-slide-show-makers-for-2024/"><u>Innovating Content Tips for Facebook Slide Show Makers for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/which-large-language-model-reigns-supreme-a-comparison-of-bard-chatgpt-and-offline-alpaca-for-optimal-performance/"><u>Which Large Language Model Reigns Supreme? A Comparison of Bard, ChatGPT, and Offline Alpaca for Optimal Performance</u></a></li>
 </ul></div>
 
