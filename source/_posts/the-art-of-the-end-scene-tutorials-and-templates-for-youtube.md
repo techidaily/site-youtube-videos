@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of the End Scene  Tutorials & Templates for YouTube\""
-date: 2024-09-15T18:58:02.655Z
-updated: 2024-09-21T16:50:11.488Z
+date: 2024-09-25T19:31:39.894Z
+updated: 2024-09-26T19:11:24.828Z
 tags:
   - ai video
   - ai youtube
@@ -85,15 +85,42 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -123,6 +150,13 @@ If you're looking for other options to design your end screen, make sure to also
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -136,12 +170,24 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-screen-recorder-rivalry-unveiling-the-strengths-of-bandicam-and-camtasia/"><u>[New] Screen Recorder Rivalry Unveiling the Strengths of Bandicam & Camtasia</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-apex-design-hub-audit/"><u>[Updated] Apex Design Hub Audit</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-crafting-softer-beats-with-ableton/"><u>[Updated] Crafting Softer Beats with Ableton</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-superior-vr-equipment-for-drone-flight/"><u>[Updated] In 2024, Superior VR Equipment for Drone Flight</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-step-by-step-guide-for-creating-channel-trailers-that-convert-viewers-into-customers/"><u>2024 Approved A Step-by-Step Guide for Creating Channel Trailers that Convert Viewers Into Customers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevating-your-listening-palette-with-youtube-music/"><u>2024 Approved Elevating Your Listening Palette with YouTube Music</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/7-pulse-pounding-workouts-that-gain-traction-on-social-media-for-2024/"><u>7 Pulse-Pounding Workouts That Gain Traction on Social Media for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/digital-dazzle-fine-tuning-video-chrominance-for-beauty/"><u>Digital Dazzle Fine-Tuning Video Chrominance for Beauty</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-privacy-share-exclusive-youtube-clips-through-gmail-for-2024/"><u>Elevating Privacy Share Exclusive YouTube Clips Through Gmail for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-ace-2v-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock OnePlus Ace 2V Phone with Broken Screen</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-achieve-sharpness-camera-tips-without-a-tripod/"><u>In 2024, Achieve Sharpness Camera Tips Without a Tripod</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-brief-beatcasts-role-of-the-melody/"><u>In 2024, Brief Beatcasts Role of the Melody</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-digital-dollar-first-steps-in-youtubers-revenue/"><u>In 2024, Digital Dollar First Steps in YouTubers' Revenue</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-enhance-engagement-top-tools-and-tips-for-properly-tagged-videos/"><u>In 2024, Enhance Engagement Top Tools and Tips for Properly Tagged Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-the-complete-pexels-primer-knowledge-essential-for-graphic-designers-and-marketers-for-2024/"><u>New The Complete Pexels Primer Knowledge Essential for Graphic Designers and Marketers for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-motorola-razr-40-ultra-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Motorola Razr 40 Ultra has been deleted.</u></a></li>
+</ul></div>
 

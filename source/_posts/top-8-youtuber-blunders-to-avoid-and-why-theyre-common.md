@@ -1,7 +1,7 @@
 ---
 title: "Top 8 Youtuber Blunders to Avoid and Why They're Common"
-date: 2024-09-20T19:26:45.491Z
-updated: 2024-09-21T17:17:48.985Z
+date: 2024-09-24T19:08:05.601Z
+updated: 2024-09-26T19:57:18.958Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
@@ -66,18 +73,18 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
 
@@ -86,10 +93,10 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -103,10 +110,10 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -122,5 +129,24 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/updated-5-leading-tools-for-crafting-superior-video-titles-and-tags/"><u>[Updated] 5 Leading Tools for Crafting Superior Video Titles and Tags</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-dish-to-screen-your-recipe-video-blueprint/"><u>[Updated] Dish to Screen Your Recipe Video Blueprint</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-essential-techniques-to-elevate-your-channels-visibility/"><u>[Updated] Essential Techniques to Elevate Your Channel's Visibility</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-5-leading-tools-for-crafting-superior-video-titles-and-tags/"><u>2024 Approved 5 Leading Tools for Crafting Superior Video Titles and Tags</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-audacity-mastery-for-mac-users-audio-recording-essentials/"><u>2024 Approved Audacity Mastery for Mac Users Audio Recording Essentials</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-media-content-via-youtube-studio-editing-skills/"><u>2024 Approved Elevate Your Media Content via YouTube Studio Editing Skills</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-global-mention-feature-in-fb/"><u>Disabling Global Mention Feature in FB</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-brother-dcp-l2540dw-printer-drivers-on-windows-step-by-step-guide/"><u>Download and Install Brother DCP-L2540DW Printer Drivers on Windows: Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-a-world-without-social-media/"><u>Exploring a World Without Social Media</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/gain-ground-by-generating-earnings-on-your-youtube-channel-like-ajay/"><u>Gain Ground by Generating Earnings on Your Youtube Channel Like Ajay</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-aural-ascent-step-by-step-guide-to-audio-submission/"><u>In 2024, Aural Ascent Step-by-Step Guide to Audio Submission</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-filters-for-the-win-maximize-likes-and-comments-effortlessly/"><u>Instagram Filters for the Win Maximize Likes & Comments Effortlessly</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-excel-2016-files-from-virus-infected-pen-drives-for-free-by-stellar-guide/"><u>Recover Excel 2016 Files from Virus-Infected Pen Drives for Free</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-guide-finding-and-using-updated-canon-mp250-printer-drivers/"><u>Step-by-Step Guide: Finding and Using Updated Canon MP250 Printer Drivers</u></a></li>
+<li><a href="https://win-dash.techidaily.com/streamlined-setup-comprehensive-guide-for-usb-to-rs-232-driver-installation-in-windows-os/"><u>Streamlined Setup: Comprehensive Guide for USB to RS-232 Driver Installation in Windows OS</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-oneplus-12r-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/transforming-ordinary-videos-into-viral-hits-with-innovative-thumbnails/"><u>Transforming Ordinary Videos Into Viral Hits with Innovative Thumbnails</u></a></li>
+</ul></div>
 

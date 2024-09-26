@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2024-09-14T18:34:31.420Z
-updated: 2024-09-21T16:11:41.010Z
+date: 2024-09-19T18:09:29.222Z
+updated: 2024-09-26T19:05:45.044Z
 tags:
   - ai video
   - ai youtube
@@ -77,6 +77,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -112,6 +119,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -125,12 +139,19 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-a-viewer-friendly-approach-implementing-commentary-and-alerts-on-youtube/"><u>[New] A Viewer-Friendly Approach Implementing Commentary and Alerts on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-best-of-breed-top-rated-youtubers-streaming-arsenal/"><u>[New] Best of Breed Top-Rated Youtuber's Streaming Arsenal</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-club-craft-how-to-download-best-dj-vids/"><u>[New] Club Craft How to Download Best DJ Vids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-ensuring-authenticity-of-your-youtube-account/"><u>[New] Ensuring Authenticity of Your YouTube Account</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-autoplay-youtube-on-phones-without-interruption/"><u>[Updated] Autoplay YouTube on Phones without Interruption</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagrams-video-opposites-a-tutorial/"><u>[Updated] In 2024, Mastering Instagram's Video Opposites A Tutorial</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-simple-window-recording-on-windows-10/"><u>[Updated] Simple Window Recording on Windows 10</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/comprehensive-guide-to-screen-capturing-in-windows-8-for-2024/"><u>Comprehensive Guide to Screen Capturing in Windows 8 for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-wide-angle-postings-integrating-360-photos-on-mobile-apps/"><u>Mastering Wide Angle Postings Integrating 360 Photos on Mobile Apps</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/next-big-thing-detailed-guide-to-the-forthcoming-google-event-leaks-and-launches/"><u>Next Big Thing: Detailed Guide to the Forthcoming Google Event - Leaks & Launches</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unleashing-potential-build-a-one-of-a-kind-chatgpt/"><u>Unleashing Potential: Build a One-of-a-Kind ChatGPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-hangul-an-accessible-guide-to-asian-languages/"><u>Unlocking Hangul: An Accessible Guide to Asian Languages</u></a></li>
+</ul></div>
 

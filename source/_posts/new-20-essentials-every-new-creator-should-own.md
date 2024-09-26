@@ -1,7 +1,7 @@
 ---
 title: "[New] 20 Essentials Every New Creator Should Own"
-date: 2024-09-17T18:48:05.822Z
-updated: 2024-09-21T16:42:42.921Z
+date: 2024-09-25T17:41:29.399Z
+updated: 2024-09-26T20:00:19.746Z
 tags:
   - ai video
   - ai youtube
@@ -73,10 +73,10 @@ If you have the budget available to get some lighting equipment, you can find so
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tripods and Camera Stands
@@ -94,10 +94,16 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -112,7 +118,27 @@ Another common downside of smartphone cameras is that most of them use digital z
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -127,5 +153,26 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-navigating-through-an-absent-obs-camera-input/"><u>[Updated] 2024 Approved Navigating Through an Absent OBS Camera Input</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-becoming-a-filmora-fcc-the-pathway-explained/"><u>[Updated] Becoming a Filmora FCC The Pathway Explained</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-efficient-broadcast-techniques-incorporating-youtube-loops-on-tv/"><u>[Updated] Efficient Broadcast Techniques Incorporating YouTube Loops on TV</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-picking-the-right-software-bandicam-versus-camtasia-for-2024/"><u>[Updated] Picking the Right Software Bandicam Versus Camtasia for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlock-lunapics-secret-to-stunning-visuals/"><u>[Updated] Unlock LunaPic's Secret to Stunning Visuals</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-diverse-video-realms-sites-outshining-youtube/"><u>2024 Approved Diverse Video Realms Sites Outshining Youtube</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-investigating-the-power-of-4-second-youtube-subscriptions/"><u>2024 Approved Investigating the Power of 4-Second YouTube Subscriptions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-practices-for-adding-content-enhancements-cards-for-2024/"><u>Best Practices for Adding Content Enhancements (Cards) for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dissecting-the-best-youtube-music-troupes-for-2024/"><u>Dissecting the Best YouTube Music Troupes for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhancing-site-personalization-through-advanced-cookiebot-driven-solutions/"><u>Enhancing Site Personalization Through Advanced Cookiebot-Driven Solutions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/fostering-connection-through-respectful-engagement/"><u>Fostering Connection Through Respectful Engagement</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-silent-skype-conversations-effective-strategies-inside/"><u>How to Fix Silent Skype Conversations: Effective Strategies Inside</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-curating-a-musical-portfolio-in-youtube/"><u>In 2024, Curating a Musical Portfolio in Youtube</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-iphone-12-mini-lock-screen-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From iPhone 12 mini Lock Screen</u></a></li>
+<li><a href="https://article-helps.techidaily.com/movavis-latest-video-edition-a-comprehensive-review-for-2024/"><u>Movavi’s Latest Video Edition A Comprehensive Review for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/supercharge-youtube-traffic-with-key-hash-tags/"><u>Supercharge YouTube Traffic with Key Hash Tags</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-best-gopro-for-action-compare-max-and-hero-11/"><u>The Best GoPro for Action Compare Max and Hero 11</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-review-of-lg-bp350-for-home-theaters-for-2024/"><u>Ultimate Review of LG BP350 for Home Theaters for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-video-insights-mastering-youtube-statistics-with-social-blade/"><u>Unlock Video Insights Mastering YouTube Statistics with Social Blade</u></a></li>
+</ul></div>
 
