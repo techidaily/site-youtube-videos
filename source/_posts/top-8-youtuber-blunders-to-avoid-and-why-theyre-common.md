@@ -1,7 +1,7 @@
 ---
 title: "Top 8 Youtuber Blunders to Avoid and Why They're Common"
-date: 2024-09-24T19:08:05.601Z
-updated: 2024-09-26T19:57:18.958Z
+date: 2024-09-27T17:05:28.511Z
+updated: 2024-10-01T22:13:02.886Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,13 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
@@ -51,13 +58,6 @@ Many new YouTubers make the mistake of titling their videos in an ineffective wa
 Big YouTubers can take advantage of non-searched, curiosity evoking titles like “You won’t believe what just happened…” because they already have a huge following. Their channels aren’t depending on getting discovered through search. But yours is. So come up with titles that people are actually searching.
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
 
@@ -74,10 +74,10 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Forgetting to engage with subscribers
@@ -93,10 +93,10 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -110,10 +110,10 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -131,22 +131,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/updated-5-leading-tools-for-crafting-superior-video-titles-and-tags/"><u>[Updated] 5 Leading Tools for Crafting Superior Video Titles and Tags</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-dish-to-screen-your-recipe-video-blueprint/"><u>[Updated] Dish to Screen Your Recipe Video Blueprint</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-techniques-to-elevate-your-channels-visibility/"><u>[Updated] Essential Techniques to Elevate Your Channel's Visibility</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-5-leading-tools-for-crafting-superior-video-titles-and-tags/"><u>2024 Approved 5 Leading Tools for Crafting Superior Video Titles and Tags</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-audacity-mastery-for-mac-users-audio-recording-essentials/"><u>2024 Approved Audacity Mastery for Mac Users Audio Recording Essentials</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-media-content-via-youtube-studio-editing-skills/"><u>2024 Approved Elevate Your Media Content via YouTube Studio Editing Skills</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-global-mention-feature-in-fb/"><u>Disabling Global Mention Feature in FB</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-and-install-brother-dcp-l2540dw-printer-drivers-on-windows-step-by-step-guide/"><u>Download and Install Brother DCP-L2540DW Printer Drivers on Windows: Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-a-world-without-social-media/"><u>Exploring a World Without Social Media</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/gain-ground-by-generating-earnings-on-your-youtube-channel-like-ajay/"><u>Gain Ground by Generating Earnings on Your Youtube Channel Like Ajay</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-aural-ascent-step-by-step-guide-to-audio-submission/"><u>In 2024, Aural Ascent Step-by-Step Guide to Audio Submission</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/instagram-filters-for-the-win-maximize-likes-and-comments-effortlessly/"><u>Instagram Filters for the Win Maximize Likes & Comments Effortlessly</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-excel-2016-files-from-virus-infected-pen-drives-for-free-by-stellar-guide/"><u>Recover Excel 2016 Files from Virus-Infected Pen Drives for Free</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-guide-finding-and-using-updated-canon-mp250-printer-drivers/"><u>Step-by-Step Guide: Finding and Using Updated Canon MP250 Printer Drivers</u></a></li>
-<li><a href="https://win-dash.techidaily.com/streamlined-setup-comprehensive-guide-for-usb-to-rs-232-driver-installation-in-windows-os/"><u>Streamlined Setup: Comprehensive Guide for USB to RS-232 Driver Installation in Windows OS</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-oneplus-12r-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for OnePlus 12R | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/transforming-ordinary-videos-into-viral-hits-with-innovative-thumbnails/"><u>Transforming Ordinary Videos Into Viral Hits with Innovative Thumbnails</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-magic-behind-shooting-images-with-iphones-hdr/"><u>[Updated] Unveiling the Magic Behind Shooting Images with iPhone’s HDR</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-effective-visual-branding-crafting-compelling-youtube-logos/"><u>2024 Approved Effective Visual Branding Crafting Compelling YouTube Logos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-video-apps-review-youtube-iphones-and-androids/"><u>Best Video Apps Review YouTube iPhones & Androids</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-anno-1800-directx-compatibility-issues-for-smooth-gameplay/"><u>How to Fix 'Anno 1800' DirectX Compatibility Issues for Smooth Gameplay</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-infinix-smart-8-hd-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Infinix Smart 8 HD Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-disabled-iphone-x-how-to-unlock-a-disabled-iphone-x-drfone-by-drfone-ios/"><u>In 2024, Disabled iPhone X How to Unlock a Disabled iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-full-spectrum-kinetic-assessment/"><u>In 2024, Full Spectrum Kinetic Assessment</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-clip-connoisseurs-essential-list-of-retro-vhs-effects/"><u>In 2024, The Clip Connoisseur's Essential List of Retro VHS Effects</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/protecting-data-while-transforming-youtube-videos-into-mp3-files/"><u>Protecting Data While Transforming YouTube Videos Into MP3 Files</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/understanding-youtube-shorts-earning-potential/"><u>Understanding YouTube Shorts Earning Potential</u></a></li>
 </ul></div>
 

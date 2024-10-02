@@ -1,7 +1,7 @@
 ---
 title: "[New] Avoid These 8 Steps that Newcomers Often Miss on YouTube"
-date: 2024-09-12T18:15:02.319Z
-updated: 2024-09-16T17:25:04.008Z
+date: 2024-09-26T19:03:47.012Z
+updated: 2024-10-01T17:29:33.531Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,13 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ###  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
@@ -45,10 +52,10 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
@@ -59,18 +66,18 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -103,10 +110,10 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -122,5 +129,26 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-captivating-youtube-thumbnails-a-sizing-guide/"><u>[New] 2024 Approved Crafting Captivating YouTube Thumbnails A Sizing Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-binge-on-christmas-classics-enjoy-9-whole-film-flicks-no-charge/"><u>[New] Binge on Christmas Classics Enjoy 9 Whole-Film Flicks No Charge</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-capture-youtubes-subtitles-on-no-cost-platforms/"><u>[New] Capture YouTube's Subtitles on No-Cost Platforms</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-essential-10-games-comparable-to-grand-theft-auto-v/"><u>[New] In 2024, Essential 10 Games Comparable to Grand Theft Auto V</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-perfecting-your-social-network-mastering-friendly-pins/"><u>[New] Perfecting Your Social Network Mastering Friendly Pins</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-beat-boosting-elevate-your-ig-videos-with-the-right-tune/"><u>[Updated] 2024 Approved Beat Boosting Elevate Your IG Videos with the Right Tune</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-breaking-down-tseries-income-strategy-on-youtube-platform/"><u>[Updated] Breaking Down TSeries' Income Strategy on YouTube Platform</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-captivating-content-the-basics-of-removing-background-from-videos/"><u>[Updated] Captivating Content The Basics of Removing Background From Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-capturing-creativity-android-photography-guide/"><u>[Updated] Capturing Creativity Android Photography Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-subtle-techniques-for-edgenuity-free-study-time/"><u>[Updated] In 2024, Subtle Techniques for Edgenuity-Free Study Time</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-choosing-between-projectors-and-tvs-for-superior-4k-viewing/"><u>2024 Approved Choosing Between Projectors & TVs for Superior 4K Viewing</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-the-pioneers-guide-to-gopro-and-timelapse-magic/"><u>2024 Approved The Pioneer's Guide to GoPro and Timelapse Magic</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boost-length-on-youtube-entry-filming/"><u>Boost Length on YouTube Entry Filming</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-watchlist-experience-with-youtubes-av1-settings/"><u>Elevate Your Watchlist Experience with YouTube's AV1 Settings</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-advice-to-eliminate-the-dark-mode-dilemma-in-rainbow-six-siege-for-pc-gamers/"><u>Expert Advice to Eliminate the Dark Mode Dilemma in Rainbow Six Siege for PC Gamers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-down-clutter-discover-these-7-ultimate-android-app-blockers/"><u>In 2024, Cut Down Clutter Discover These 7 Ultimate Android App Blockers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-enhance-your-online-skills-a-guide-to-youtube-editing-via-sony-vegas/"><u>In 2024, Enhance Your Online Skills A Guide to YouTube Editing via Sony Vegas</u></a></li>
+<li><a href="https://extra-information.techidaily.com/sound-in-sight-mixing-music-into-microsofts-presentation-tool/"><u>Sound in Sight Mixing Music Into Microsoft's Presentation Tool</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-shorts-profitability-secrets/"><u>Youtube Shorts Profitability Secrets</u></a></li>
+</ul></div>
 

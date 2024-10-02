@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2024-09-22T20:01:08.878Z
-updated: 2024-09-26T20:47:49.179Z
+date: 2024-09-27T23:27:42.374Z
+updated: 2024-10-01T22:26:58.824Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ Let the world know who you are and what you do. If you are planning on starting 
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Vlog About Your Day
 
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
@@ -67,13 +74,6 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
@@ -85,6 +85,13 @@ You can do a ‘my 5 favorite songs’ type of video, or talk in detail about ju
 There were over two billion smartphone users worldwide in 2017, and this number is only going to continue rising in the next couple of years. Furthermore, thousands of YouTubers are already producing unimaginable amounts of videos about the latest apps or smartphone devices.
 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
 
@@ -99,10 +106,10 @@ Education is our only hope for a better world so if you know how to do something
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 9\. 10 Things About You
@@ -110,19 +117,6 @@ YouTube channels that feature tutorials often have millions of followers, becaus
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
-
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 10\. Video Rant
 
@@ -138,14 +132,14 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -162,15 +156,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-techniques-to-decrease-film-duration-on-macos-for-insta/"><u>[New] In 2024, Techniques to Decrease Film Duration on macOS for Insta</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-smart-screenshot-assembly-leading-androidiphone-montage-aids/"><u>[Updated] 2024 Approved Smart Screenshot Assembly Leading Android/iPhone Montage Aids</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-avoiding-common-pitfalls-in-rl-gameplay-recordings/"><u>[Updated] Avoiding Common Pitfalls in RL Gameplay Recordings</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-essential-guide-the-best-no-money-recording-software/"><u>[Updated] Essential Guide The Best No-Money Recording Software</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-instrumental-integration-elevating-your-facebook-video-experience/"><u>[Updated] In 2024, Instrumental Integration Elevating Your Facebook Video Experience</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-visualizing-2023-social-medias-next-big-thing/"><u>2024 Approved Visualizing 2023 Social Media's Next Big Thing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-conclusion-mastery-customized-screens-in-focus/"><u>Channel Conclusion Mastery Customized Screens in Focus</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-a-viral-video-journey-6-key-strategies-on-youtube-for-2024/"><u>Crafting a Viral Video Journey 6 Key Strategies on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-content-revenue-route-map-comparing-the-best-streaming-platforms/"><u>In 2024, Content Revenue Route Map Comparing the Best Streaming Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/tagging-techniques-to-skyrocket-your-game-vids/"><u>Tagging Techniques to Skyrocket Your Game Vids</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-definitive-top-ten-nintendo-switch-combat-apps-max-156-for-2024/"><u>[New] Definitive Top Ten Nintendo Switch Combat Apps (Max 156) for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-best-practices-choosing-youtubes-most-popular-video-formats/"><u>[Updated] Best Practices Choosing YouTube's Most Popular Video Formats</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cease-non-filtered-youtube-video-trail/"><u>[Updated] Cease Non-Filtered YouTube Video Trail</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-a-stepwise-approach-to-film-color-grading-with-look-up-tables-luts-from-cg-central/"><u>2024 Approved A Stepwise Approach to Film Color Grading with Look-Up Tables (Luts) From CG Central</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-creative-video-ends-top-6-budget-friendly-options/"><u>2024 Approved Creative Video Ends Top 6 Budget-Friendly Options</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-leaderboard-scratcher-youtube-trending-analysis/"><u>Essential Leaderboard Scratcher YouTube Trending Analysis</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-oneplus-nord-n30-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset OnePlus Nord N30 5G in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-oppo-reno-11f-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Oppo Reno 11F 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-auditing-video-content-monetization-success/"><u>In 2024, Auditing Video Content Monetization Success</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-sony-xperia-5-v-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Sony Xperia 5 V Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/maximize-your-youtube-income-with-effective-mobile-device-strategies/"><u>Maximize Your YouTube Income with Effective Mobile Device Strategies</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/perfect-your-audio-iphone-voice-memo-processing-for-2024/"><u>Perfect Your Audio IPhone Voice Memo Processing for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transforming-single-frames-into-motion-narratives-for-2024/"><u>Transforming Single Frames Into Motion Narratives for 2024</u></a></li>
 </ul></div>
 

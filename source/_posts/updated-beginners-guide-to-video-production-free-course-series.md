@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beginner's Guide to Video Production  Free Course Series\""
-date: 2024-09-21T16:45:18.390Z
-updated: 2024-09-26T16:52:53.716Z
+date: 2024-09-28T21:29:10.858Z
+updated: 2024-10-01T23:37:59.226Z
 tags:
   - ai video
   - ai youtube
@@ -49,18 +49,18 @@ As one of the best video editing software for YouTubers, [Filmora](https://tools
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Amy Landino: [How to Setup a Professional YouTube Channel](https://www.youtube.com/c/AmyTV/featured)
 
 Amy Landino is a YouTuber, author, and keynote speaker. She is an expert on vlogging and video branding. In this course, she will guide you step-by-step in creating your YouTube channel that follows the best practices right out of the gate. Familiarize yourself with all that YouTube has to offer.
 
 To access the video course, you will need to subscribe to her email newsletter or if you would like the guide without receiving future emails, you can send an email to <meg@vlogboss.com>.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2\. [YouTube Creator Academy](https://creatoracademy.youtube.com/page/home)
 
@@ -69,10 +69,10 @@ Once you’ve got your channel setup and you have a feel for YouTube, it’s tim
 Many of the courses featured in YouTube Creator Academy are hosted by well-known YouTube creators, who have built a large following with their content. Some of the courses include: Make money on YouTube, Create great content, Copyright on YouTube, and many more.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Jump Cut: [YouTube Influencer 101 Crash Course](https://jumpcut.com/)
@@ -87,13 +87,6 @@ The principles of good photography are very similar to videography. Understandin
 
 The course features 13 modules, teaching the history, technical elements, and file formats of photography. Following the modules, there is an assessment where you can test all that you have learned.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Hootsuite: [Social Marketing Training](https://education.hootsuite.com/courses/social-marketing-education)
 
 In this free social media course from Hootsuite, you will learn the benefits of spreading your message across multiple social media platforms and increasing the reach of your brand. All you need to do is sign up for a free account to access the material.
@@ -106,24 +99,24 @@ At the start, one of the most effective ways for your videos to get discovered i
 
 Understanding the fundamentals of SEO will put you leaps and bounds ahead of other YouTubers who are merely creating content out of random ideas they pluck from their heads.
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. FutureLearn: [The Secret Power of Brands](https://www.futurelearn.com/courses/the-secret-power-of-brands)
 
 After you have found a comfortable niche for your YouTube channel to flourish in, it’s time to start thinking of your channel and your personality as a brand. What is a brand exactly? This free course from FutureLearn highlights some of the most fundamental aspects of branding and gives you a broad understanding of how to brand your channel and how good branding can make all the difference.
 
 This free course gives you 8-weeks of free access, which includes articles, videos, peer reviews, and quizzes.
-
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. Leadpages: [The Affiliate Marketing System](https://lps.leadpages.net/affiliate-marketing-course/)
 
@@ -134,6 +127,13 @@ Leadpages offers this course in video and audio format, in addition, there are 1
 In this golden age of information, we can learn anything online. Sometimes we have to pay and other times we don’t. Have you discovered any free courses yourself? Share it with the community by leaving a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -150,22 +150,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-defeating-dissidence-a-guide-for-content-makers/"><u>[New] Defeating Dissidence A Guide for Content Makers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-quickened-keys-powerpoint-presentation-capture/"><u>[New] Quickened Keys PowerPoint Presentation Capture</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-soaring-social-success-with-top-10-tiktok-strategies/"><u>[Updated] 2024 Approved Soaring Social Success with Top 10 TikTok Strategies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-evaluating-youtubes-monthly-creator-payments/"><u>[Updated] Evaluating YouTube's Monthly Creator Payments</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boosting-youtube-descriptions-with-expert-templates/"><u>[Updated] In 2024, Boosting YouTube Descriptions with Expert Templates</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-voice-over-basics-from-script-to-screen/"><u>[Updated] In 2024, Voice-Over Basics From Script to Screen</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-comprehensible-approach-to-personal-branding-in-the-youtube-sphere/"><u>2024 Approved A Comprehensible Approach to Personal Branding in the YouTube Sphere</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-capturing-the-essence-of-hits-shortform-music-video-tips/"><u>2024 Approved Capturing the Essence of Hits Shortform Music Video Tips</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enriching-videos-with-no-cost-sounds-legally/"><u>2024 Approved Enriching Videos with No-Cost Sounds Legally</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-quantum-hdr-explained-the-ultimate-resource/"><u>2024 Approved Quantum HDR Explained The Ultimate Resource</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-views-essential-hashtags-for-trending-shorts/"><u>Boosting Views Essential Hashtags for Trending Shorts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-youtube-engagement-top-11-seo-strategies-revealed-for-2024/"><u>Boosting YouTube Engagement Top 11 SEO Strategies Revealed for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/descargar-audio-de-video-flv-como-mp3-sin-coste-guia-web-segura/"><u>Descargar Audio De Vídeo FLV Como MP3 Sin Coste: Guía Web Segura</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-7-comedy-youtube-video-ideas-that-funny-people-can-try/"><u>In 2024, 7 Comedy YouTube Video Ideas That Funny People Can Try</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-the-art-of-b-roll-filming-techniques/"><u>In 2024, Mastering the Art of B Roll Filming Techniques</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mkv-playback-issues-on-u23-pro-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV playback issues on U23 Pro</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/the-ultimate-guide-to-budget-and-high-performance-monitors-with-curved-panels-and-g-sync-compatibility/"><u>The Ultimate Guide to Budget and High-Performance Monitors with Curved Panels & G-Sync Compatibility</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-achieving-youtube-excellence-with-gamers-channel-graphics/"><u>[New] Achieving YouTube Excellence with Gamers' Channel Graphics</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-channel-control-center-creator-studio-essentials/"><u>[New] Channel Control Center Creator Studio Essentials</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-tranquil-tracks-easy-volume-diminution-via-garageband-for-2024/"><u>[New] Tranquil Tracks Easy Volume Diminution via Garageband for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-insider-tips-skyrocketing-your-canva-experience/"><u>[Updated] Insider Tips Skyrocketing Your Canva Experience</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-budget-friendly-webinar-strategies-for-youtube/"><u>2024 Approved Budget-Friendly Webinar Strategies for YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigating-the-google-podcast-submission-guide/"><u>2024 Approved Navigating the Google Podcast Submission Guide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oppo-reno-8t-5g-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Oppo Reno 8T 5G Phone without Any Data Loss</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-navigating-legalities-in-sharing-musical-works/"><u>In 2024, Navigating Legalities in Sharing Musical Works</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unleash-your-youtube-earnings-a-triad-approach-to-financial-examination-and-analysis/"><u>In 2024, Unleash Your YouTube Earnings A Triad Approach to Financial Examination and Analysis</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mobile-savvy-tailoring-youtube-video-thumbnails-with-phones/"><u>Mobile-Savvy Tailoring YouTube Video Thumbnails with Phones</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/swift-comment-removal-on-youtube-a-practical-guide/"><u>Swift Comment Removal on YouTube A Practical Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-complete-guide-to-edit-your-video-with-youtube-studio-editor/"><u>The Complete Guide to Edit Your Video with YouTube Studio Editor</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/the-ultimate-guide-to-compressing-videos-in-final-cut-pro-x-for-2024/"><u>The Ultimate Guide to Compressing Videos in Final Cut Pro X for 2024</u></a></li>
 </ul></div>
 

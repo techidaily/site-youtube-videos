@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2024-09-19T18:09:29.222Z
-updated: 2024-09-26T19:05:45.044Z
+date: 2024-09-25T16:14:07.075Z
+updated: 2024-10-01T21:06:12.132Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,17 +141,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-a-viewer-friendly-approach-implementing-commentary-and-alerts-on-youtube/"><u>[New] A Viewer-Friendly Approach Implementing Commentary and Alerts on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-best-of-breed-top-rated-youtubers-streaming-arsenal/"><u>[New] Best of Breed Top-Rated Youtuber's Streaming Arsenal</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-club-craft-how-to-download-best-dj-vids/"><u>[New] Club Craft How to Download Best DJ Vids</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-ensuring-authenticity-of-your-youtube-account/"><u>[New] Ensuring Authenticity of Your YouTube Account</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-autoplay-youtube-on-phones-without-interruption/"><u>[Updated] Autoplay YouTube on Phones without Interruption</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagrams-video-opposites-a-tutorial/"><u>[Updated] In 2024, Mastering Instagram's Video Opposites A Tutorial</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-simple-window-recording-on-windows-10/"><u>[Updated] Simple Window Recording on Windows 10</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/comprehensive-guide-to-screen-capturing-in-windows-8-for-2024/"><u>Comprehensive Guide to Screen Capturing in Windows 8 for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/mastering-wide-angle-postings-integrating-360-photos-on-mobile-apps/"><u>Mastering Wide Angle Postings Integrating 360 Photos on Mobile Apps</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/next-big-thing-detailed-guide-to-the-forthcoming-google-event-leaks-and-launches/"><u>Next Big Thing: Detailed Guide to the Forthcoming Google Event - Leaks & Launches</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unleashing-potential-build-a-one-of-a-kind-chatgpt/"><u>Unleashing Potential: Build a One-of-a-Kind ChatGPT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-hangul-an-accessible-guide-to-asian-languages/"><u>Unlocking Hangul: An Accessible Guide to Asian Languages</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-discovering-the-secrets-of-snapchats-spotlight/"><u>[Updated] 2024 Approved Discovering the Secrets of Snapchat's Spotlight</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cut-beyond-youtube-unveiling-the-top-5-video-editor-options/"><u>[Updated] Cut Beyond Youtube Unveiling the Top 5 Video Editor Options</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-disrupt-unbidden-youtube-content-feeds/"><u>[Updated] Disrupt Unbidden YouTube Content Feeds</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-insiders-look-at-facebook-video-proportions-and-settings/"><u>2024 Approved The Insider's Look at Facebook Video Proportions and Settings</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/convertissez-gratuitement-un-fichier-mpeg-au-format-aac-sur-ligne-movavi/"><u>Convertissez Gratuitement Un Fichier MPEG Au Format AAC Sur Ligne - Movavi</u></a></li>
+<li><a href="https://win-blog.techidaily.com/correcting-missteps-in-ryzen-master-driver-setup-processes/"><u>Correcting Missteps in Ryzen Master Driver Setup Processes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/double-trouble-replaying-youtube-videos-on-your-set/"><u>Double Trouble Replaying YouTube Videos on Your Set</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-video-clarity-with-expert-tips-for-youtube-editors/"><u>Elevate Video Clarity with Expert Tips for YouTube Editors</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-poco-c50-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-conquer-backward-motion-in-snapchat-videos-quickly/"><u>In 2024, Conquer Backward Motion in Snapchat Videos Quickly</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-viral-visuals-photos-and-their-lives/"><u>In 2024, Viral Visuals Photos and Their Lives</u></a></li>
+<li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-premiere-pairing-programs-ultimate-beat-match-video-editor-companion-2023/"><u>New Premiere Pairing Programs Ultimate Beat Match Video Editor Companion, 2023</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/uncovering-asmr-truths-for-viewers/"><u>Uncovering ASMR Truths for Viewers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/whats-the-best-youtube-thumbnail-size/"><u>What's the Best YouTube Thumbnail Size?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-slow-how-to-slow-down-youtube-videos-3-ways/"><u>YouTube Slow How to Slow Down YouTube Videos [3 Ways]</u></a></li>
 </ul></div>
 

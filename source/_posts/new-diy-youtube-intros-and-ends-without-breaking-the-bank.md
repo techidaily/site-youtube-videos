@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-09-24T17:03:28.374Z
-updated: 2024-09-26T16:30:14.120Z
+date: 2024-09-25T16:36:21.555Z
+updated: 2024-10-01T18:09:35.874Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,20 +141,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-laws-governing-recording-youtube-live-streams/"><u>[New] In 2024, Laws Governing Recording YouTube Live Streams</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unlock-instagram-videos-on-pc-and-mac-with-free-conversion-software/"><u>[Updated] 2024 Approved Unlock Instagram Videos on PC & Mac with Free Conversion Software</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-audio-visual-transcript-maker/"><u>[Updated] Audio Visual Transcript Maker</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-mastering-the-art-with-sony-fdr-x1000v-action-footage/"><u>2024 Approved Mastering the Art with Sony FDR-X1000V Action Footage</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/direct-download-destiny-10-online-tool-reviewers-choice/"><u>Direct Download Destiny #10 Online Tool Reviewers' Choice</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/exploring-the-world-of-aspect-ratios-in-youtube-content/"><u>Exploring the World of ASPECT RATIOS in YOUTUBE Content</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-honor-100-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Honor 100?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-samsung-galaxy-f54-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Samsung Galaxy F54 5G without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-briefvideo-creator/"><u>In 2024, BriefVideo Creator</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/perfecting-sound-levels-in-recordings-step-by-step-guide/"><u>Perfecting Sound Levels in Recordings Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/professional-thumbnails-from-your-phone-for-youtube/"><u>Professional Thumbnails From Your Phone for YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716465083207-quick-and-easy-channels-personalize-your-youtube-url-now/"><u>Quick and Easy Channels Personalize Your YouTube URL Now!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/sites-like-famebit-where-you-can-find-youtube-sponsorships/"><u>Sites Like FameBit Where You Can Find YouTube Sponsorships</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/streamlining-system-resources-how-to-decrease-cpu-usage-in-a-windows-environment/"><u>Streamlining System Resources: How to Decrease CPU Usage in a Windows Environment</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-vivo-y200e-5g-frp-by-drfone-android/"><u>The Updated Method to Bypass Vivo Y200e 5G FRP</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-adobe-audition-101-the-art-of-fading-on-for-2024/"><u>[New] Adobe Audition 101 The Art of Fading On for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-closing-powerhouses-free-top-6-video-closers/"><u>[New] Closing Powerhouses Free Top 6 Video Closers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-fixed-shorts-no-more-hidden-content/"><u>[Updated] Fixed Shorts - No More Hidden Content</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-walking-dead-top-picks-for-horror-gamers-for-2024/"><u>[Updated] Walking Dead Top Picks for Horror Gamers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-cutting-edge-strategies-for-youtube-split-screen-videos/"><u>2024 Approved Cutting-Edge Strategies for YouTube Split-Screen Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-decoding-the-secrets-of-youtubes-content-hub/"><u>2024 Approved Decoding the Secrets of YouTube's Content Hub</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-gaggraphs-craft-your-own-jest/"><u>2024 Approved GagGraphs Craft Your Own Jest</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channel-prodigy-skyrocketing-with-content-innovation-for-2024/"><u>Channel Prodigy Skyrocketing with Content Innovation for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-engaging-extended-videos-a-youtube-experts-guide/"><u>Crafting Engaging, Extended Videos A YouTube Expert's Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-views-a-guide-to-best-youtube-hash-tags-for-2024/"><u>Elevate Views A Guide to Best YouTube Hash Tags for 2024</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-zte-blade-a73-5g-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-quickly-and-easily-share-a-youtube-playlist/"><u>How to Quickly And Easily Share A YouTube Playlist</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-samsung-galaxy-a05-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Samsung Galaxy A05 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-crafting-visual-tales-expertly-warping-and-twisting-in-photoshop/"><u>In 2024, Crafting Visual Tales Expertly Warping & Twisting in Photoshop</u></a></li>
+<li><a href="https://win-blog.techidaily.com/persona-4-golden-ultimate-guide-to-fixing-frequent-freezes-and-crashes/"><u>Persona 4 Golden: Ultimate Guide to Fixing Frequent Freezes and Crashes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/subscribe-bonanza-thousands-acquired-for-just-5/"><u>Subscribe Bonanza Thousands Acquired for Just $5</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-resolving-minecrafts-crossbow-error/"><u>Troubleshooting Guide: Resolving Minecraft's Crossbow Error</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/video-platform-profiles-vimeo-vs-youtube-comparison/"><u>Video Platform Profiles Vimeo vs YouTube Comparison</u></a></li>
 </ul></div>
 
