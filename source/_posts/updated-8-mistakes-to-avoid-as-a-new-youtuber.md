@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 8 Mistakes to Avoid as a New Youtuber"
-date: 2024-09-24T16:26:27.804Z
-updated: 2024-10-01T22:40:47.296Z
+date: 2024-10-02T16:09:28.408Z
+updated: 2024-10-06T16:31:34.050Z
 tags:
   - ai video
   - ai youtube
@@ -33,10 +33,16 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 ###  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
@@ -44,6 +50,13 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
 
@@ -59,13 +72,6 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
@@ -73,10 +79,10 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Making weak intros
@@ -86,6 +92,13 @@ After you’ve managed to get someone to click on your video through your effect
 New YouTubers often make the mistake of having weak intros. Starting at the beginning of a story makes sense, right? The beginning, however, is not always the most exciting. Consequently, new YouTubers lose their audience’s attention too early on.
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Forgetting to engage with subscribers
 
@@ -98,13 +111,6 @@ Connecting with your audience shouldn’t just be limited to YouTube either. Use
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -131,20 +137,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-the-10-best-gba-emulators-for-android/"><u>[New] The 10 Best GBA Emulators for Android</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-confirm-monetization-accuracy-essential-steps-for-your-yt-channels/"><u>[Updated] Confirm Monetization Accuracy Essential Steps for Your YT Channels</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-in-depth-analysis-optimizing-sticker-eradication-on-tiktok/"><u>2024 Approved In-Depth Analysis Optimizing Sticker Eradication on TikTok</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/demystifying-the-powerhouse-behind-youtube-creator-hub-for-2024/"><u>Demystifying the Powerhouse Behind YouTube Creator Hub for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-samsung-galaxy-m34-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Samsung Galaxy M34 5G Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-building-dynamic-youtube-music-chains/"><u>In 2024, Building Dynamic YouTube Music Chains</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-skill-discovering-the-top-10-budget-friendly-video-artists-on-youtube/"><u>In 2024, Elevate Your Skill Discovering the Top 10 Budget-Friendly Video Artists on YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-flashback-filmmaking-top-tricks-from-80s-vhs-to-enhance-todays-edits/"><u>In 2024, Flashback Filmmaking Top Tricks From 80S VHS to Enhance Today’s Edits</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-apple-iphone-13-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Forgot Apple iPhone 13 Backup Password? Heres What to Do | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-how-to-edit-youtube-videos-in-finalcut-pro/"><u>In 2024, How to Edit YouTube Videos in Finalcut Pro</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-oppo-reno-11-5g-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Oppo Reno 11 5G FRP</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/stanza-squadron-vs-artificial-intelligence-offline-alpaca-edition/"><u>Stanza Squadron vs Artificial Intelligence - Offline Alpaca Edition</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/tapping-into-youtubes-creative-commons-for-video-creators/"><u>Tapping Into YouTube's Creative Commons for Video Creators</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-ultimate-guide-to-m4v-file-playback-discover-the-top-5-apple-player-apps/"><u>The Ultimate Guide to M4V File Playback: Discover the Top 5 Apple Player Apps</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/when-worlds-crumble-premium-guide-to-top-zombie-games-for-2024/"><u>When Worlds Crumble Premium Guide to Top Zombie Games for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-the-comprehensive-tutorial-for-gameplay-logging-enthusiasts/"><u>[New] 2024 Approved The Comprehensive Tutorial for Gameplay Logging Enthusiasts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exclusive-insight-into-low-cost-footage-websites/"><u>[New] In 2024, Exclusive Insight Into Low-Cost Footage Websites</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-ultimate-guide-to-viewer-engagement-and-loyalty-6-proven-strategies-for-youtube-success/"><u>[New] The Ultimate Guide to Viewer Engagement and Loyalty 6 Proven Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-craft-a-vibrant-youtube-experience-with-tracks/"><u>[Updated] Craft a Vibrant Youtube Experience with Tracks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channel-cross-promotion-the-art-of-collaborative-co-stars/"><u>Channel Cross-Promotion The Art of Collaborative Co-Stars</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/critical-top-5-minute-tight-video-capturers-guide/"><u>Critical Top 5 Minute-Tight Video Capturers Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-follows-into-genuine-subscriptions-for-2024/"><u>Enhancing Follows Into Genuine Subscriptions for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/gamers-top-picks-1-ranked-4k-laptops/"><u>Gamers' Top Picks #1 Ranked 4K Laptops</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/gratuito-conversor-de-video-em-mp4-para-aac-online-pela-movavi/"><u>Gratuito Conversor De Vídeo Em MP4 Para AAC Online Pela Movavi</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-architects-of-online-marvel-adventures/"><u>In 2024, Architects of Online Marvel Adventures</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-bringing-videos-to-life-using-youtube-in-educational-environments/"><u>In 2024, Bringing Videos to Life Using YouTube in Educational Environments</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-confirm-monetization-accuracy-essential-steps-for-your-yt-channels/"><u>In 2024, Confirm Monetization Accuracy Essential Steps for Your YT Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-earning-strategies-with-youtubes-adsense-payout-per-k-viewers/"><u>In 2024, Earning Strategies with Youtube's AdSense Payout per K Viewers</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Samsung Galaxy S23? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/master-the-future-of-work-6-key-techniques-to-excel-with-artificial-intelligence-integration/"><u>Master the Future of Work: 6 Key Techniques to Excel with Artificial Intelligence Integration</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-aspect-ratios-for-youtube-videos-shorts-and-ads-guide/"><u>Mastering Aspect Ratios for YouTube Videos, Shorts & Ads Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-shockwave-flash-issues-fixed-in-google-chrome/"><u>Resolved: Shockwave Flash Issues Fixed in Google Chrome</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1719205412582-shed-light-on-dark-windows-11-desktops-tips-inside/"><u>Shed Light on Dark Windows 11 Desktops - Tips Inside</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/understanding-youtubers-income-average-ad-revenues-per-play/"><u>Understanding Youtuber's Income Average Ad Revenues per Play?</u></a></li>
 </ul></div>
 

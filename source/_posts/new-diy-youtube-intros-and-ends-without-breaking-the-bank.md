@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-09-25T16:36:21.555Z
-updated: 2024-10-01T18:09:35.874Z
+date: 2024-10-04T06:07:14.268Z
+updated: 2024-10-06T22:53:17.821Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,24 +141,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-adobe-audition-101-the-art-of-fading-on-for-2024/"><u>[New] Adobe Audition 101 The Art of Fading On for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-closing-powerhouses-free-top-6-video-closers/"><u>[New] Closing Powerhouses Free Top 6 Video Closers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-fixed-shorts-no-more-hidden-content/"><u>[Updated] Fixed Shorts - No More Hidden Content</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-walking-dead-top-picks-for-horror-gamers-for-2024/"><u>[Updated] Walking Dead Top Picks for Horror Gamers for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-cutting-edge-strategies-for-youtube-split-screen-videos/"><u>2024 Approved Cutting-Edge Strategies for YouTube Split-Screen Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-decoding-the-secrets-of-youtubes-content-hub/"><u>2024 Approved Decoding the Secrets of YouTube's Content Hub</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-gaggraphs-craft-your-own-jest/"><u>2024 Approved GagGraphs Craft Your Own Jest</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-prodigy-skyrocketing-with-content-innovation-for-2024/"><u>Channel Prodigy Skyrocketing with Content Innovation for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-engaging-extended-videos-a-youtube-experts-guide/"><u>Crafting Engaging, Extended Videos A YouTube Expert's Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-views-a-guide-to-best-youtube-hash-tags-for-2024/"><u>Elevate Views A Guide to Best YouTube Hash Tags for 2024</u></a></li>
-<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-zte-blade-a73-5g-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-quickly-and-easily-share-a-youtube-playlist/"><u>How to Quickly And Easily Share A YouTube Playlist</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-samsung-galaxy-a05-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Samsung Galaxy A05 without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-crafting-visual-tales-expertly-warping-and-twisting-in-photoshop/"><u>In 2024, Crafting Visual Tales Expertly Warping & Twisting in Photoshop</u></a></li>
-<li><a href="https://win-blog.techidaily.com/persona-4-golden-ultimate-guide-to-fixing-frequent-freezes-and-crashes/"><u>Persona 4 Golden: Ultimate Guide to Fixing Frequent Freezes and Crashes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/subscribe-bonanza-thousands-acquired-for-just-5/"><u>Subscribe Bonanza Thousands Acquired for Just $5</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-resolving-minecrafts-crossbow-error/"><u>Troubleshooting Guide: Resolving Minecraft's Crossbow Error</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/video-platform-profiles-vimeo-vs-youtube-comparison/"><u>Video Platform Profiles Vimeo vs YouTube Comparison</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhancing-content-reach-keeping-creative-commons-engagement-high/"><u>[New] Enhancing Content Reach Keeping Creative Commons Engagement High</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-creators-uniting-for-marvels-digital-future/"><u>[Updated] Creators Uniting for Marvel's Digital Future</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-techniques-for-successfully-incorporating-a-streaming-youtube-playlist-for-2024/"><u>[Updated] Techniques for Successfully Incorporating a Streaming YouTube Playlist for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/achieving-studio-quality-with-audacity-for-2024/"><u>Achieving Studio Quality with Audacity for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/decoding-tseries-monetary-strategies-on-youtube-video-platforms/"><u>Decoding TSeries’ Monetary Strategies on YouTube Video Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhance-videos-seamlessly-using-youtube-studio-editor/"><u>Enhance Videos Seamlessly Using YouTube Studio Editor</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-realme-note-50-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Realme Note 50 Phones with/without a PC</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-resolve-crashing-problems-with-madden-nfl-20-on-your-windows-computer/"><u>How to Resolve Crashing Problems with Madden NFL 20 on Your Windows Computer</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-xs-to-other-iphone-12-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone XS To Other iPhone 12 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-honor-x9b-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Honor X9b Through Google Earth?</u></a></li>
+<li><a href="https://win-able.techidaily.com/masterclass-overcoming-frequent-gameplay-interruptions-in-wwe-2k22-for-computer-users/"><u>Masterclass: Overcoming Frequent Gameplay Interruptions in WWE 2K22 for Computer Users</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/tech-titans-select-top-10-video-capture-apps-for-2024/"><u>Tech Titans Select Top 10 Video Capture Apps for 2024</u></a></li>
 </ul></div>
 

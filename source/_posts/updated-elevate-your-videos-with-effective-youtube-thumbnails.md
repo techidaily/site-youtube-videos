@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevate Your Videos with Effective YouTube Thumbnails"
-date: 2024-09-24T17:28:49.180Z
-updated: 2024-10-01T23:24:52.963Z
+date: 2024-10-01T02:44:03.890Z
+updated: 2024-10-06T23:27:38.409Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,13 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -51,10 +58,17 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -64,10 +78,16 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -76,31 +96,11 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
-
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -129,16 +129,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/0-recording-tips-to-record-audio-in-high-quality-for-2024/"><u>[New] 10 Recording Tips to Record Audio in High Quality for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-cutting-edge-video-editing-mastering-green-screen-integration/"><u>[Updated] Cutting Edge Video Editing Mastering Green Screen Integration</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-enhance-youtubes-conversations-with-emojis/"><u>[Updated] Enhance Youtubes' Conversations with Emojis</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-flashback-to-fame-vimeo-glimpse-for-2024/"><u>[Updated] Flashback to Fame Vimeo Glimpse for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/5-tools-for-cutting-edge-video-title-and-tag-generation-for-2024/"><u>5 Tools for Cutting Edge Video Title & Tag Generation for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/comprehensive-list-of-top-9-free-video-channel-branding-aids/"><u>Comprehensive List of Top 9 Free Video Channel Branding Aids</u></a></li>
-<li><a href="https://media-tips.techidaily.com/deteriorating-conditions-how-t-mobiles-included-netflix-faces-setbacks-with-certain-subscribers/"><u>Deteriorating Conditions: How T-Mobile's Included Netflix Faces Setbacks with Certain Subscribers</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversions-with-our-advanced-cookiebot-technology/"><u>Enhanced Conversions with Our Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop My Spouse from Spying on My Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/intel-centrino-n-6205-wifi-adapter-download-the-latest-updated-drivers-here/"><u>Intel Centrino N 6205 WiFi Adapter: Download the Latest Updated Drivers Here</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-guide-for-effortless-youtube-shorts-design/"><u>The Ultimate Guide for Effortless YouTube Shorts Design</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-digital-dominion-rise-as-a-youtube-guru/"><u>[New] Digital Dominion Rise as a YouTube Guru</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-complete-walkthrough-to-grab-youtube-playlists/"><u>[Updated] Complete Walkthrough to Grab YouTube Playlists</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-optimize-gmail-for-video-calls-with-effective-zoom-use/"><u>[Updated] Optimize Gmail for Video Calls with Effective Zoom Use</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premier-vr-movies-for-immersive-viewing/"><u>[Updated] Premier VR Movies for Immersive Viewing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-5-pro-tips-to-perfectly-tag-videos-and-maximize-views/"><u>2024 Approved 5 Pro Tips to Perfectly Tag Videos and Maximize Views</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-decoding-youtubes-mystery-a-sequential-exploration-guide/"><u>2024 Approved Decoding YouTube's Mystery A Sequential Exploration Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-meta-descriptions-top-template-strategies/"><u>2024 Approved Elevate Meta Descriptions Top Template Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/amplify-your-youtubes-interaction-with-emojis/"><u>Amplify Your Youtubes' Interaction with Emojis</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/embark-into-the-best-youtube-vr-content-ever-for-2024/"><u>Embark Into the Best YouTube VR Content Ever for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/how-to-choose-a-camera-gimbal-for-your-drone-for-2024/"><u>How to Choose a Camera Gimbal for Your Drone for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-edit-uploaded-published-youtube-videos/"><u>How to Edit Uploaded/ Published YouTube Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-breaking-boundaries-coordinated-video-watch-across-channels/"><u>In 2024, Breaking Boundaries Coordinated Video Watch Across Channels</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-the-art-of-pairing-b-clips-with-main-shots/"><u>In 2024, The Art of Pairing B-Clips with Main Shots</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ios-175-beta-2-update-allows-eu-apple-device-owners-web-based-app-downloads-detailed-guide/"><u>IOS 17.5 Beta 2 Update Allows EU Apple Device Owners Web-Based App Downloads - Detailed Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/h-in-9-festive-full-length-films-exclusive-youtube-offering-for-2024/"><u>Relish in 9 Festive, Full-Length Films Exclusive YouTube Offering for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-to-downloading-hp-officejet-5740-drivers/"><u>Step-by-Step Guide to Downloading HP OfficeJet 5740 Drivers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/top-ways-to-preserve-and-log-youtube-live-streams/"><u>Top Ways to Preserve and Log YouTube Live Streams</u></a></li>
+<li><a href="https://games-able.techidaily.com/ultimate-performance-gaming-from-logitech-mice/"><u>Ultimate Performance Gaming From Logitech Mice</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor X50i+? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Quick Fixes for HyperX Cloud Alpha Mic Malfunction Problems
-date: 2024-09-30T16:33:07.647Z
-updated: 2024-10-01T21:18:41.839Z
+date: 2024-10-01T20:50:38.396Z
+updated: 2024-10-07T03:40:30.469Z
 tags:
   - win11
   - win10
@@ -37,6 +37,14 @@ thumbnail: https://thmb.techidaily.com/639d037a37b2c4b70f42aebe7df41fe55ddc0ed82
 1. On your desktop,   **right-click**  **the speaker icon**  at the bottom-right corner, and then select **Sounds**  .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap432.jpg)
 2. Click the **Recording**  tab, s  elect the microphone you’re using and click **Set Default** .  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap447.jpg)
 3. While still in the **Recording** tab, try **speaking into your microphone**  to test if it works properly. If it is, you should see some green in the bar on the right:  
 
@@ -44,10 +52,16 @@ thumbnail: https://thmb.techidaily.com/639d037a37b2c4b70f42aebe7df41fe55ddc0ed82
 4. Click **OK** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  See if your Logitech G633 mic works. If not, try the next fix, below.
@@ -60,16 +74,29 @@ thumbnail: https://thmb.techidaily.com/639d037a37b2c4b70f42aebe7df41fe55ddc0ed82
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000087.png)
 2. Click**Microphone** on the left panel. On the right,**if** **microphone access for this device is off** , click**Change** **to** **turn it on** . You should also all apps to access your microphone. If it is turned off, turn it on.  
 
-![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000088.png)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000088.png)
+
  Check if your Logitech G633 mic works. If not, try the next fix below to update your audio driver.
+
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Fix 3: Update your audio driver**
 
@@ -94,23 +121,9 @@ There are two ways to update your sound card driver: **manually**  and **automat
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap0029-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  You can do it for free if you like, but it’s partly manual.
 
  If you need assistance, please contact**Driver Easy’s support team** at[**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Fix 4: Troubleshoot hardware issues**
 
@@ -139,18 +152,17 @@ There are two ways to update your sound card driver: **manually**  and **automat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-master-the-art-of-discussion-in-google-meet-spaces/"><u>[New] 2024 Approved Master the Art of Discussion in Google Meet Spaces</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-explore-the-world-of-fb-live-broadcasting-for-2024/"><u>[New] Explore the World of FB Live Broadcasting for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-quick-steps-to-document-your-youtube-creations/"><u>[New] In 2024, Quick Steps to Document Your YouTube Creations</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-turn-games-into-memories-no-fuss-nvidia-style/"><u>[New] Turn Games Into Memories - No Fuss, NVIDIA Style</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-demystifying-the-instagram-video-constraint/"><u>[Updated] 2024 Approved Demystifying the Instagram Video Constraint</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-xbox-extra-storage-options-best-5-ranked-list/"><u>[Updated] In 2024, Xbox Extra Storage Options Best 5 Ranked List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-apps-best-10-software-to-capture-your-screens/"><u>2024 Approved Essential Apps Best 10 Software to Capture Your Screens</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-how-to-make-asmr-videos-all-you-need-to-know/"><u>2024 Approved How to Make ASMR Videos All You Need to Know</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-how-to-shun-crossplay-in-apex-legends-your-guide-to-platform-choices/"><u>2024 Approved How to Shun Crossplay in Apex Legends - Your Guide to Platform Choices</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/5-leading-3d-video-entrance-design-tools/"><u>5 Leading 3D Video Entrance Design Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/creatives-making-marvel-virtual-worlds-vivid-for-2024/"><u>Creatives Making Marvel Virtual Worlds Vivid for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixing-constant-mordhau-breakdowns-expert-tips-and-tricks-to-enhance-gaming-experience/"><u>Fixing Constant Mordhau Breakdowns: Expert Tips and Tricks to Enhance Gaming Experience</u></a></li>
-<li><a href="https://network-issues.techidaily.com/windows-11-now-packs-enhanced-driver-for-amds-radeon-hd-6950-gpu/"><u>Windows 11 Now Packs Enhanced Driver for AMD's Radeon HD 6950 GPU</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-nine-key-approaches-for-storing-mov-in-windows-environments/"><u>[New] 2024 Approved Nine Key Approaches for Storing .mov in Windows Environments</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-the-best-hashtags-for-youtube-gaming-videos/"><u>[New] The Best Hashtags for YouTube Gaming Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-complete-igtv-user-manual/"><u>[Updated] 2024 Approved The Complete IGTV User Manual</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-a-guide-to-high-quality-slow-motion-images-for-instagram-sharing-for-2024/"><u>[Updated] A Guide to High-Quality Slow Motion Images for Instagram Sharing for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-simple-hdr-photography-methods/"><u>2024 Approved Mastering Simple HDR Photography Methods</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-engagement-customizing-your-shorts-first-impressions-for-2024/"><u>Boosting Engagement Customizing Your Shorts' First Impressions for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-building-buzz-strategies-for-shaping-your-unique-youtubing-image/"><u>In 2024, Building Buzz Strategies for Shaping Your Unique YouTubing Image</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-on-apple-iphone-12-pro-max-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID On Apple iPhone 12 Pro Max without Password?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-shaky-no-more-a-step-by-step-guide-to-video-stabilization/"><u>New 2024 Approved Shaky No More A Step-by-Step Guide to Video Stabilization</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/the-art-of-updating-hardware-drivers-in-windows-xp/"><u>The Art of Updating Hardware Drivers in Windows XP</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/transformative-tactics-for-developing-a-professional-youtubers-sanctuary-on-mobile/"><u>Transformative Tactics for Developing a Professional YouTubers' Sanctuary on Mobile</u></a></li>
 </ul></div>
 

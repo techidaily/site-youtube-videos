@@ -1,7 +1,7 @@
 ---
 title: "Top 8 Youtuber Blunders to Avoid and Why They're Common"
-date: 2024-09-27T17:05:28.511Z
-updated: 2024-10-01T22:13:02.886Z
+date: 2024-10-03T17:03:49.188Z
+updated: 2024-10-07T06:56:40.736Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,13 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ###  
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
@@ -39,10 +46,10 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
@@ -50,6 +57,13 @@ If you can think of the kind of content you’ll love to consistently create and
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -74,10 +88,16 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Forgetting to engage with subscribers
@@ -92,13 +112,6 @@ YouTube isn’t the only social media platform that people are spending their ti
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\. Spamming comments
 
 Commenting on other YouTube videos is another way to get your channel discovered from people reading over comments. If your profile picture and comment appears interesting enough, out of curiosity, people just might click your username to have a look at your channel.
@@ -108,13 +121,6 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -131,15 +137,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-magic-behind-shooting-images-with-iphones-hdr/"><u>[Updated] Unveiling the Magic Behind Shooting Images with iPhone’s HDR</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-effective-visual-branding-crafting-compelling-youtube-logos/"><u>2024 Approved Effective Visual Branding Crafting Compelling YouTube Logos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-video-apps-review-youtube-iphones-and-androids/"><u>Best Video Apps Review YouTube iPhones & Androids</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-fix-anno-1800-directx-compatibility-issues-for-smooth-gameplay/"><u>How to Fix 'Anno 1800' DirectX Compatibility Issues for Smooth Gameplay</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-infinix-smart-8-hd-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Infinix Smart 8 HD Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-disabled-iphone-x-how-to-unlock-a-disabled-iphone-x-drfone-by-drfone-ios/"><u>In 2024, Disabled iPhone X How to Unlock a Disabled iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-full-spectrum-kinetic-assessment/"><u>In 2024, Full Spectrum Kinetic Assessment</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-clip-connoisseurs-essential-list-of-retro-vhs-effects/"><u>In 2024, The Clip Connoisseur's Essential List of Retro VHS Effects</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/protecting-data-while-transforming-youtube-videos-into-mp3-files/"><u>Protecting Data While Transforming YouTube Videos Into MP3 Files</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/understanding-youtube-shorts-earning-potential/"><u>Understanding YouTube Shorts Earning Potential</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-three-secure-approaches-for-youtube-to-mp3-file-conversion/"><u>[New] In 2024, Three Secure Approaches for YouTube-to-MP3 File Conversion</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/avigating-famebit-pathways-to-secure-youtube-partnerships-for-2024/"><u>[New] Navigating FameBit Pathways to Secure YouTube Partnerships for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-step-up-your-gaming-with-advanced-ps4-capture-techniques/"><u>[New] Step Up Your Gaming with Advanced PS4 Capture Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-dominance-in-video-landscape-mirrorless-vs-dslr-cameras/"><u>[Updated] Dominance in Video Landscape Mirrorless vs DSLR Cameras</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-understanding-auto-hdr-and-smart-exposure-techniques-in-photos/"><u>[Updated] Understanding Auto HDR and Smart Exposure Techniques in Photos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-closer-look-at-the-monetization-mechanism-for-video-clips/"><u>2024 Approved A Closer Look at the Monetization Mechanism for Video Clips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-club-anthems-expertly-curated-dj-vids-downloads/"><u>2024 Approved Club Anthems Expertly Curated DJ Vids Downloads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/copyright-concerns-with-recording-youtube-content-for-2024/"><u>Copyright Concerns with Recording YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enabling-earnings-a-step-by-step-approach-for-mobile-youtubers/"><u>Enabling Earnings A Step-by-Step Approach for Mobile YouTubers</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723211569109-fixing-the-dota-2-changing-rendering-api-error-error-id-2024-in-minutes/"><u>Fixing the Dota 2 Changing Rendering API Error (Error ID: 2024) in Minutes</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-honor-x9a-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Honor X9a FRP Bypass Instantly</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-incorporating-sound-effects-into-presentations-with-powerpoint-strategies-for-both-windows-and-apple-systems/"><u>New 2024 Approved Incorporating Sound Effects Into Presentations with PowerPoint Strategies for Both Windows and Apple Systems</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/obtaining-trusty-installer-approval-on-windows-11-a-step-by-step-guide/"><u>Obtaining Trusty Installer Approval on Windows 11: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/transfer-tactics-for-seamless-online-video-sharing/"><u>Transfer Tactics for Seamless Online Video Sharing</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Ultimate guide to get the meltan box pokemon go For Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-cash-flow-8-simple-money-making-tips/"><u>YouTube Cash Flow 8 Simple Money-Making Tips</u></a></li>
 </ul></div>
 

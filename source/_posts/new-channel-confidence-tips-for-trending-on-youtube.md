@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Confidence  Tips for Trending on YouTube\""
-date: 2024-09-29T18:58:14.488Z
-updated: 2024-10-01T18:02:46.440Z
+date: 2024-09-29T19:51:15.708Z
+updated: 2024-10-06T19:01:36.997Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,10 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -72,13 +72,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -93,10 +86,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -144,13 +137,20 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -167,21 +167,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-breakdown-of-steps-perfecting-idevice-video-features-on-youtube/"><u>[New] Breakdown of Steps Perfecting iDevice Video Features on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-effortless-spotify-to-youtube-playlist-conversion-5-must-have-apps/"><u>[New] Effortless Spotify-to-YouTube Playlist Conversion 5 Must-Have Apps</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-brief-scene-structure-summary/"><u>[Updated] Brief Scene Structure Summary</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-electorate-engagement-experience-top-gaming-selections-for-2024/"><u>[Updated] Electorate Engagement Experience Top Gaming Selections for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-embrace-artistic-expression-incorporating-anime-into-snapchat-for-2024/"><u>[Updated] Embrace Artistic Expression Incorporating Anime Into Snapchat for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unlock-streamlabs-potential-with-your-mac-and-obs/"><u>[Updated] Unlock Streamlabs' Potential with Your Mac & OBS</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-decoding-youtubes-earning-rules-update/"><u>2024 Approved Decoding YouTube's Earning Rules Update</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-direct-twitch-stream-transfer-to-youtube-playback/"><u>2024 Approved Direct Twitch Stream Transfer to YouTube Playback</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-editing-workshop-portal/"><u>2024 Approved Editing Workshop Portal</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-science-behind-effective-instagram-puzzle-posts/"><u>2024 Approved The Science Behind Effective Instagram Puzzle Posts</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-vero-authors-spotlight-at-snapchat/"><u>2024 Approved Vero Authors Spotlight at Snapchat</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-your-youtube-legacy-a-deep-dive-into-creator-studio-mastery-for-2024/"><u>Crafting Your YouTube Legacy A Deep Dive Into Creator Studio Mastery for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-export-troubleshooting-saving-your-premieres-srt-data/"><u>In 2024, Export Troubleshooting Saving Your Premiere's SRT Data</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Watch Hulu Outside US On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-optimal-techniques-recording-console-games-via-pc/"><u>In 2024, Optimal Techniques Recording Console Games via PC</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/methodically-uncovering-hidden-video-wonders-on-youtube/"><u>Methodically Uncovering Hidden Video Wonders on YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-image-alchemy-converting-ordinary-into-extraordinary/"><u>[New] Image Alchemy Converting Ordinary Into Extraordinary</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-definitive-io-screen-recorder-guidebook-for-2024/"><u>[New] The Definitive IO Screen Recorder Guidebook for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-diy-youtube-thumbnails-made-simple/"><u>2024 Approved DIY YouTube Thumbnails Made Simple</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-eco-effect-filmmaking-youtubes-guide-to-green-magic/"><u>2024 Approved Eco-Effect Filmmaking YouTube's Guide to Green Magic</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-the-art-of-youtube-music-reactions-essential-tips/"><u>2024 Approved Mastering the Art of YouTube Music Reactions - Essential Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-comprehensive-walkthrough-for-imovie-and-youtube-collaboration-for-2024/"><u>A Comprehensive Walkthrough for iMovie and YouTube Collaboration for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-views-not-video-length-expert-guide-to-yt-desc-templates/"><u>Elevate Views, Not Video Length Expert Guide to YT Desc Templates</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-online-presence-secrets-of-youtube-live-with-wirecast/"><u>Elevate Your Online Presence Secrets of Youtube Live with WireCast</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/graphicgenius-suite/"><u>GraphicGenius Suite</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-lava-agni-2-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Lava Agni 2 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-seamless-integration-of-moviemaker-6-into-your-device/"><u>In 2024, Seamless Integration of Moviemaker 6 Into Your Device</u></a></li>
+<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-tecno-pop-7-pro-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Tecno Pop 7 Pro</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unraveling-the-itunes-radio-download-process-for-2024/"><u>Unraveling the iTunes Radio Download Process for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/why-choose-an-ev-unpacking-the-improved-performance-over-gasoline-cars/"><u>Why Choose an EV? Unpacking the Improved Performance over Gasoline Cars</u></a></li>
 </ul></div>
 

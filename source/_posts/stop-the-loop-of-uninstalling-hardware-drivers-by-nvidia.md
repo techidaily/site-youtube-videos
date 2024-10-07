@@ -1,7 +1,7 @@
 ---
 title: Stop the Loop of Uninstalling Hardware Drivers by Nvidia
-date: 2024-09-28T21:20:12.534Z
-updated: 2024-10-01T19:08:50.796Z
+date: 2024-10-01T19:09:39.753Z
+updated: 2024-10-06T20:15:50.095Z
 tags:
   - win11
   - win10
@@ -33,14 +33,21 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 1. On your keyboard, press the**Windows logo** ![](https://images.drivereasy.com/wp-content/uploads/2018/07/img_5b4ecde832800.png) key and**R** at the same time to invoke the Run box.
 2. Type**control** and press**Enter** to go to Control Panel.  
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59b08cdf4e.png)
 3. Click**System and Security** .  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59ba063ed0.jpg)
@@ -54,31 +61,24 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59cb552443.jpg)
 7. Select**No** , and click**Save changes** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5a1202b9e9.jpg)
 8. Click**OK** .  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5a2a572543.jpg)
 9. Go to the**NVIDIA Driver Downloads** page to download the needed driver for your Nvidia graphics card.  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5994c83f8c.jpg)
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 2: Delete the logging file in your Windows Registry
@@ -137,20 +137,14 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc58e7b30171.jpg)
 4. Restart your computer and check if your Nvidia driver now works properly. If it doesn’t, contact Driver Easy’s support team at**<support@drivereasy.com>** for further assistance. They’d be happy to help you. Or you can move on to Fix 4, below.
 
----
-
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+---
 
 ### Fix 4: Reinstall your Nvidia driver
 
@@ -160,26 +154,20 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 3. Delete all Nvidia programs.  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5b6e7f170d.jpg)
 4. Restart your computer.
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5. When you’re back in Windows, repeat the steps in [**Fix** **2**](https://propmoneyinc.pxf.io/q4jzdy) above.
@@ -205,18 +193,21 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-elevating-your-youtube-experience-tips-on-channel-art-and-sizes/"><u>[New] Elevating Your YouTube Experience Tips on Channel Art and Sizes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevating-your-streaming-experience-switching-between-spotify-and-youtube-music/"><u>2024 Approved Elevating Your Streaming Experience Switching Between Spotify & YouTube Music</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-live-streaming-platforms-analyzing-obs-and-twitch-studio/"><u>2024 Approved Live Streaming Platforms Analyzing OBS and Twitch Studio</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-edit-youtube-videos-in-finalcut-pro-for-2024/"><u>How to Edit YouTube Videos in Finalcut Pro for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-photographers-route-to-perfectly-trimmed-web-pics/"><u>In 2024, The Photographer's Route to Perfectly Trimmed Web Pics</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-why-apple-account-disabled-on-your-apple-iphone-6s-how-to-fix-by-drfone-ios/"><u>In 2024, Why Apple Account Disabled On your Apple iPhone 6s? How to Fix</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/magix-beatstrip-harmonizing-your-beats-easily/"><u>Magix Beatstrip Harmonizing Your Beats Easily</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-your-way-to-youtubes-leading-10-news-platforms/"><u>Navigating Your Way to YouTube's Leading 10 News Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/optimizing-youtube-content-with-social-blade-a-stats-journey/"><u>Optimizing YouTube Content With Social Blade - A Stats Journey</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-nokia-c12-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Nokia C12 Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-leading-10-online-history-educators-on-youtube/"><u>The Leading 10 Online History Educators on Youtube</u></a></li>
-<li><a href="https://video-capture.techidaily.com/tune-tracker-next-gen-audio-for-2024/"><u>Tune Tracker Next-Gen Audio for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-woes-8-strategies-for-neutralizing-pink-displays/"><u>Windows Woes: 8 Strategies for Neutralizing Pink Displays</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-conquering-peaks-comparing-gopro-hero5-black-and-session/"><u>[New] Conquering Peaks Comparing GoPro Hero5 Black and Session</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-integrating-words-in-tiktok-videos-made-simple/"><u>[New] In 2024, Integrating Words in TikTok Videos Made Simple</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-channel-success-strategies-a-comprehensive-guide-to-spotlighting/"><u>[Updated] Channel Success Strategies A Comprehensive Guide to Spotlighting</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-tools-for-transforming-your-spotify-mixes-into-youtube-channels/"><u>2024 Approved Best Tools for Transforming Your Spotify Mixes Into YouTube Channels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-insights-the-best-apps-to-supercharge-your-profile/"><u>2024 Approved Instagram Insights The Best Apps to Supercharge Your Profile</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-master-your-stream-best-cameras-to-capture-every-moment-on-twitch/"><u>2024 Approved Master Your Stream Best Cameras to Capture Every Moment on Twitch</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/audio-visual-synopsis-creator-for-2024/"><u>Audio Visual Synopsis Creator for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/cd-pc/"><u>CD情報をスマートフォンに転送する新手法: PC必須なし、アプリ使用可能！</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/confronting-ai-titans-advanced-gemini-vs-plush-gpt/"><u>Confronting AI Titans: Advanced Gemini Vs. Plush GPT</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-techniques-for-enhanced-youtube-long-form-videos-for-2024/"><u>Essential Techniques for Enhanced YouTube Long-Form Videos for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-casual-follower-to-dedicated-subscriber-inspirational-journey/"><u>From Casual Follower to Dedicated Subscriber Inspirational Journey</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-boosting-engagement-with-effective-youtube-banners-and-thumbnails/"><u>In 2024, Boosting Engagement with Effective YouTube Banners & Thumbnails</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unleashing-creativity-in-drone-video-post-production/"><u>In 2024, Unleashing Creativity in Drone Video Post-Production</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mline-your-experience-with-these-top-7-mobile-adblockers-for-2024/"><u>Streamline Your Experience with These Top 7 Mobile AdBlockers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-significance-of-analytics-in-youtube-rank-enhancement/"><u>The Significance of Analytics in YouTube Rank Enhancement</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Subscriber Supremacy  YouTube's Front-Runners\""
-date: 2024-09-26T21:22:42.642Z
-updated: 2024-10-01T16:48:56.290Z
+date: 2024-10-02T19:53:57.715Z
+updated: 2024-10-07T00:35:18.739Z
 tags:
   - ai video
   - ai youtube
@@ -63,10 +63,10 @@ The most common videos on Felix's channel are gaming videos in which he comments
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
@@ -77,22 +77,16 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
-
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ###  4\.  Smosh
 
@@ -105,22 +99,15 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -133,6 +120,13 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -151,22 +145,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-cutting-edge-methods-to-record-and-save-lectures-on-imac/"><u>[New] Cutting-Edge Methods to Record and Save Lectures on iMac</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-bring-your-youtube-vision-to-life-with-free-banner-resources/"><u>[Updated] Bring Your YouTube Vision to Life with FREE Banner Resources</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-free-mindfulness-melodies/"><u>[Updated] In 2024, Free Mindfulness Melodies</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-oppo-reno-8t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Oppo Reno 8T | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-motorola-defy-2-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Motorola Defy 2</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/ai-powered-character-building-for-roleplayers-leveraging-chatgpt-and-dall-e-in-dungeons-and-dragons/"><u>AI-Powered Character Building for Roleplayers: Leveraging ChatGPT & DALL-E in Dungeons & Dragons</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/creating-a-singular-stream-from-diverse-youtube-videos-for-2024/"><u>Creating a Singular Stream From Diverse YouTube Videos for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/digital-distortion-techniques-and-applications/"><u>Digital Distortion Techniques and Applications</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-tips-for-crafting-youtube-shorts-templates-for-2024/"><u>Essential Tips for Crafting YouTube Shorts Templates for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/find-your-digital-companion-the-top-6-youtube-personality-puzzles/"><u>Find Your Digital Companion The Top 6 YouTube Personality Puzzles</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-oneplus-12r-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from OnePlus 12R to New Phone | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/mastering-smooth-playback-addressing-delay-concerns-in-obs-recordingstreaming/"><u>Mastering Smooth Playback: Addressing Delay Concerns in OBS Recording/Streaming</u></a></li>
-<li><a href="https://program-issues.techidaily.com/slime-rancher-2-performance-problems-heres-how-to-address-pc-crashes-and-freezing-issues-effectively/"><u>Slime Rancher 2 Performance Problems? Here's How to Address PC Crashes & Freezing Issues Effectively!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/stand-alone-hold-tight-camera-stability-techniques/"><u>Stand Alone, Hold Tight Camera Stability Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/stay-controlled-online-guide-to-blocking-distracting-youtube-channels/"><u>Stay Controlled Online Guide to Blocking Distracting YouTube Channels</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/swift-rescaling-perfect-mac-pixels-with-youtube/"><u>Swift Rescaling Perfect Mac Pixels with YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-essential-manual-to-creating-youtube-playlists/"><u>The Essential Manual to Creating YouTube Playlists</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/0plus-top-free-youtube-image-extractors/"><u>[New] 10+ Top FREE YouTube Image Extractors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-cutting-edge-8-content-creators-skyrocketing-growth/"><u>[New] Cutting-Edge 8 Content Creators Skyrocketing Growth</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-transform-your-work-from-home-experience-with-skype-screen-sharing-techniques-for-2024/"><u>[New] Transform Your Work-From-Home Experience with Skype Screen Sharing Techniques for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-adepts-compendium-of-fullscreen-insights-in-premiere-pro/"><u>2024 Approved Adept's Compendium of Fullscreen Insights in Premiere Pro</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-affordable-online-education-hosting-on-youtube/"><u>2024 Approved Affordable Online Education Hosting on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-channel-command-center-masterminding-visionary-content/"><u>2024 Approved Channel Command Center Masterminding Visionary Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-free-game-themes-and-melodies-10-best-websites/"><u>2024 Approved Free Game Themes & Melodies – 10 Best Websites</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/1715860255016-2024-approved-no-money-down-best-free-video-chat-platforms/"><u>2024 Approved No Money Down? Best Free Video Chat Platforms!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/adventure-videography-supplies-for-travelers-for-2024/"><u>Adventure Videography Supplies for Travelers for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/effective-methods-for-downloading-and-preserving-videos-from-threads/"><u>Effective Methods for Downloading & Preserving Videos From Threads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/evaluating-mr-beasts-monetary-world-for-2024/"><u>Evaluating Mr. Beast's Monetary World for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-enjoy-unrestricted-chatgpt-service-anytime-everywhere-discover-the-chatgpt-everywhere-solution/"><u>How to Enjoy Unrestricted ChatGPT Service Anytime, Everywhere - Discover the 'ChatGPT Everywhere' Solution</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-converting-your-favourite-tracks-bridging-spotify-with-youtube-music/"><u>In 2024, Converting Your Favourite Tracks Bridging Spotify with YouTube Music</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-compliance-rules-for-thriving-on-youtube/"><u>In 2024, Essential Compliance Rules for Thriving on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-channel-lockdowns-device-specific-tips/"><u>Mastering YouTube Channel Lockdowns Device-Specific Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/professional-3d-design-apps-top-5-for-youtubers/"><u>Professional 3D Design Apps - Top 5 for Youtubers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-tutorial-on-crafting-seamless-slideshows-via-videolan-client-vlc/"><u>Step-by-Step Tutorial on Crafting Seamless Slideshows via VideoLAN Client (VLC)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-xiaomi-redmi-13c-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Xiaomi Redmi 13C</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ultra-brief-on-achieving-clear-background-effects/"><u>Ultra-Brief on Achieving Clear Background Effects</u></a></li>
 </ul></div>
 

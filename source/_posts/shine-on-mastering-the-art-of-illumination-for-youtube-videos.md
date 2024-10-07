@@ -1,7 +1,7 @@
 ---
 title: "\"Shine On  Mastering the Art of Illumination for YouTube Videos\""
-date: 2024-09-25T00:23:00.627Z
-updated: 2024-10-01T20:08:05.830Z
+date: 2024-10-03T05:32:05.395Z
+updated: 2024-10-07T04:41:45.978Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,10 @@ Window lighting for me was especially difficult to work with because I live in a
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Home Lighting
@@ -62,19 +62,6 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
@@ -82,15 +69,28 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1. Light Control
 
@@ -109,10 +109,16 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
@@ -146,17 +152,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-a-step-by-step-approach-to-youtube-gold-music-reaction-magic/"><u>[New] A Step-by-Step Approach to YouTube Gold Music Reaction Magic</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-in-depth-analysis-of-vlc-recorder-app/"><u>[Updated] 2024 Approved In-Depth Analysis of VLC Recorder App</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-can-a-brief-subscribe-boost-your-content-viewing/"><u>[Updated] Can a Brief Subscribe Boost Your Content Viewing?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-how-to-maximize-your-youtube-shorts-earnings/"><u>[Updated] In 2024, How to Maximize Your YouTube Shorts Earnings</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-xiaomi-mix-fold-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-on-iphone-15-pro-max-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud On iPhone 15 Pro Max Smoothly</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/revolutionize-your-setup-achieving-batch-software-updates-with-winstall-in-windows-11/"><u>Revolutionize Your Setup: Achieving Batch Software Updates with Winstall in Windows 11</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-breakdown-how-your-earnings-are-divided-in-youtube-shorts/"><u>The Breakdown How Your Earnings Are Divided in YouTube Shorts</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-ultimate-list-of-8-chatgpt-extensions-for-health-and-wellness-management/"><u>The Ultimate List of 8 ChatGPT Extensions for Health & Wellness Management</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/thriving-in-digital-realms-the-power-of-well-planned-backlinks/"><u>Thriving in Digital Realms The Power of Well-Planned Backlinks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/tinyvid-masterpiece/"><u>TinyVid Masterpiece</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/webex-virtual-conferencing-benefits-and-drawbacks/"><u>WebEx Virtual Conferencing: Benefits and Drawbacks</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-design-humor-in-frames-picgenius/"><u>[New] 2024 Approved Design Humor in Frames PicGenius</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-master-browser-fb-vid-extractor-kit/"><u>[New] Master Browser FB Vid Extractor Kit</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unboxing-the-next-big-thing-in-action-cameras-with-camplus-cubeplus/"><u>[New] Unboxing the Next Big Thing in Action Cameras with Cam+ Cube+</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solved-headphones-not-detecting-working-on-laptop-windows-11/"><u>[SOLVED] Headphones Not Detecting/ Working on Laptop Windows 11</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-erase-unwanted-boards-from-old-youtube-videos-for-clearer-viewing/"><u>[Updated] Erase Unwanted Boards From Old YouTube Videos for Clearer Viewing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-discover-the-7-most-wanted-apps-to-boost-your-youtube-live-quality/"><u>2024 Approved Discover the 7 Most Wanted Apps to Boost Your YouTube LIVE Quality</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-google-pixel-8-pro-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Google Pixel 8 Pro</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/choose-from-the-finest-7-android-browsers-without-ads-for-2024/"><u>Choose From the Finest 7 Android Browsers Without Ads for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cut-down-clutter-how-to-efficiently-handle-unwanted-youtube-content-pcmobile/"><u>Cut Down Clutter How to Efficiently Handle Unwanted YouTube Content (PC/Mobile)</u></a></li>
+<li><a href="https://techidaily.com/drive-traffic-with-cutting-edge-automated-tracking-the-power-of-cookiebot/"><u>Drive Traffic with Cutting-Edge Automated Tracking: The Power of Cookiebot</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/gain-unlimited-stock-videos-through-essential-4-youtube-sources/"><u>Gain Unlimited Stock Videos Through Essential 4 YouTube Sources</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-confirmation-techniques-for-youtube-accounts/"><u>In 2024, Confirmation Techniques for Youtube Accounts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-info-on-crafting-engaging-yt-shorts/"><u>In 2024, Essential Info on Crafting Engaging YT Shorts</u></a></li>
+<li><a href="https://win-answers.techidaily.com/leading-free-tools-for-seamless-3d-video-extraction-and-download/"><u>Leading Free Tools for Seamless 3D Video Extraction and Download</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/potplayer-plus-windows-media-counterpart/"><u>PotPlayer Plus Windows Media Counterpart</u></a></li>
 </ul></div>
 

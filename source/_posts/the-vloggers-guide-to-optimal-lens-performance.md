@@ -1,7 +1,7 @@
 ---
 title: "The Vlogger's Guide to Optimal Lens Performance"
-date: 2024-09-30T16:18:20.868Z
-updated: 2024-10-01T17:15:09.274Z
+date: 2024-10-04T22:50:23.969Z
+updated: 2024-10-07T04:17:54.827Z
 tags:
   - ai video
   - ai youtube
@@ -56,13 +56,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -85,6 +78,13 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -92,13 +92,6 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -115,9 +108,23 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -128,13 +135,6 @@ This table shows you the focal lengths needed to achieve the same shot between c
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -150,13 +150,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -170,6 +163,13 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -186,22 +186,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-detailed-analysis-of-youtubes-versus-dailymentions/"><u>[New] Detailed Analysis of YouTubes Versus DailyMentions</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-unlock-creative-potential-10-premium-android-and-pc-editors-for-2024/"><u>[New] Unlock Creative Potential 10 Premium Android and PC Editors for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-amplify-your-vlog-presence-with-tubebuddys-tools/"><u>[Updated] Amplify Your Vlog Presence with TubeBuddy's Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/become-a-youtube-earning-expert-universal-device-strategies/"><u>Become a YouTube Earning Expert Universal Device Strategies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/craft-visionary-videos-from-start-to-finish-using-youtube-studio-editor/"><u>Craft Visionary Videos From Start to Finish Using YouTube Studio Editor</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cutting-edge-guide-to-youtube-audio-editing/"><u>Cutting-Edge Guide to YouTube Audio Editing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/guide-eradicating-pending-videos-on-your-youtube-queue/"><u>Guide Eradicating Pending Videos on Your YouTube Queue</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-samsung-galaxy-f34-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Samsung Galaxy F34 5G For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On ZTE Blade A73 5G? | Dr.fone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-whatsapp-messages-on-apple-iphone-14-pro-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>How to Track WhatsApp Messages on Apple iPhone 14 Pro Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>How to use Pokemon Go Joystick on Apple iPhone 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevating-user-experience-with-personalized-youtube-card-implementation/"><u>In 2024, Elevating User Experience with Personalized YouTube Card Implementation</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-spark-go-2023-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Tecno Spark Go (2023) Phone without Google Account?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-xiaomi-redmi-a2-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Xiaomi Redmi A2? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/official-driver-downloads-for-hp-officejet-pro-8715-compatible-with-windows-operating-systems-windows-11-10-and-8/"><u>Official Driver Downloads for HP OfficeJet Pro 8715 – Compatible with Windows Operating Systems [Windows 11, 10, and 8]</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-art-of-auditory-identity-crafting-your-own-ringtones-and-sounds-for-android-for-2024/"><u>The Art of Auditory Identity Crafting Your Own Ringtones & Sounds for Android for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-complete-playbook-for-broadcasting-spherical-content-on-youtube/"><u>The Complete Playbook for Broadcasting Spherical Content on Youtube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-captivating-yt-cover-art-for-maximum-traffic/"><u>[New] Captivating YT Cover Art for Maximum Traffic</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-depth-look-screen-capture-tools-for-mac/"><u>[New] In-Depth Look Screen Capture Tools for Mac</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-social-scrutiny-who-felt-the-glance-on-your-insta-image-for-2024/"><u>[New] Social Scrutiny Who Felt the Glance on Your Insta Image for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-essential-choice-10-budget-friendly-caption-tools/"><u>[Updated] Essential Choice 10 Budget-Friendly Caption Tools</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-full-breakdown-razers-hd-webcam-experience-for-2024/"><u>[Updated] Full Breakdown Razer's HD Webcam Experience for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-3d-software-for-dynamic-youtube-intros/"><u>2024 Approved Best 3D Software for Dynamic YouTube Intros</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-creating-compelling-content-with-powerful-youtube-titles/"><u>2024 Approved Creating Compelling Content with Powerful YouTube Titles</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-end-screen-elegance-free-guides-to-upgrade-your-videos/"><u>2024 Approved End-Screen Elegance - Free Guides to Upgrade Your Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/achieving-comprehensive-participant-visualization-on-meet/"><u>Achieving Comprehensive Participant Visualization on Meet</u></a></li>
+<li><a href="https://driver-install.techidaily.com/essential-tips-for-drivers-upgrade-on-windows-881/"><u>Essential Tips for Drivers Upgrade on Windows 8/8.1</u></a></li>
+<li><a href="https://windows11.techidaily.com/guide-to-adjust-inaccurate-task-manager-cpu-indicators/"><u>Guide to Adjust Inaccurate Task Manager CPU Indicators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-youtube-video-trailers-with-filmoras-guide/"><u>In 2024, Crafting YouTube Video Trailers with Filmora's Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-rivian-r1t-unveiled-transforming-the-electric-pickup-market-with-style-and-functionality/"><u>The Rivian R1T Unveiled: Transforming the Electric Pickup Market with Style and Functionality</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/the-soundscape-mac-studios-explained/"><u>The Soundscape Mac Studios Explained</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/understanding-the-inner-workings-of-youtube-post-upload/"><u>Understanding the Inner Workings of YouTube Post-Upload</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unified-youtube-behavior-manual/"><u>Unified YouTube Behavior Manual</u></a></li>
+<li><a href="https://win11.techidaily.com/unraveling-e84-errors-in-windows-based-steam-clients/"><u>Unraveling E84 Errors in Windows-Based Steam Clients</u></a></li>
 </ul></div>
 

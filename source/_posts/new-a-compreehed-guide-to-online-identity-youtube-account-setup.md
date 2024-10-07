@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Compreehed Guide to Online Identity  YouTube Account Setup\""
-date: 2024-08-10T05:50:41.784Z
-updated: 2024-08-11T05:50:41.784Z
+date: 2024-10-04T03:22:55.054Z
+updated: 2024-10-06T20:54:04.133Z
 tags:
   - ai video
   - ai youtube
@@ -28,31 +28,18 @@ People create YouTube accounts for a lot of different reasons. Some YouTubers ju
 
 Once you know for sure that you want to create a YouTube account, and also know why you want to do it, you have already started building your channel. There are still a few important things to consider, though. This article will walk you through signing up for a YouTube account, and give you some tips about starting your channel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Creating Your YouTube Account in 6 Steps
 
 1\. Go to YouTube.com and look at the top right corner of your screen. There will either be a blue Sign In button, or an icon representing you. YouTube accounts and Google accounts are the same, so if you are signed into your Gmail account you are already signed into YouTube as well.
 
 2\. If you see a Sign In button, click it. If you see your icon click on that, and in the window that pops up select Add Account. Either way, you will be taken into a sign in screen. Under where it asks for your email address it will say Create Account. Click on Create Account.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ![account sign in screen](https://images.wondershare.com/filmora/article-images/account-sign-in-screen.JPG)
 
 3\. In the sign up page you will need to put in your name, email address, and mobile phone number as well as some other personal information. Do not enter your current Gmail address. Enter an alternate email you have created for your vlog, or click on I would like a new Gmail address. This will change your page slightly so that the email field becomes Choose a Username.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![account new gmail](https://images.wondershare.com/filmora/article-images/account-new-gmail.JPG)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![account after new gmail](https://images.wondershare.com/filmora/article-images/account-after-new-gmail.JPG)
 
 You will probably need to try a few different usernames before you find one that is not taken.
@@ -64,8 +51,12 @@ You will probably need to try a few different usernames before you find one that
 6\. After you finish the form click Next Step and, in the next screen, Continue to YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tips on Starting a YouTube Channel
 
 #### 1\. Choose a Topic you Love
@@ -100,10 +91,14 @@ Think about what equipment you have that you can use for your YouTube channel. T
 
  **Read More to Get :** [Best Video Websites Like YouTube >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -111,11 +106,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-360-video-editors-how-to-upload-360-video-to-youtube/"><u>[New] 360 Video Editors How to Upload 360 Video to YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-born-to-create-video-magic-mac-basics-for-beginners-on-youtube/"><u>[New] Born to Create Video Magic Mac Basics for Beginners on YouTube</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-tailor-fb-videos-for-maximum-full-screen-effect/"><u>[New] In 2024, Tailor FB Videos for Maximum Full-Screen Effect</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-protect-your-privacy-top-webcam-shields-ranked-for-2024/"><u>[New] Protect Your Privacy - Top Webcam Shields Ranked for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-quick-easy-fun-4-steps-to-showcasing-your-favorite-gifs-on-instagram/"><u>[New] Quick, Easy, Fun 4 Steps to Showcasing Your Favorite GIFs on Instagram</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-five-star-sierra-video-processing-tools/"><u>[Updated] 2024 Approved Five-Star Sierra Video Processing Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-integrated-capture-camera-and-desktop-together/"><u>[Updated] 2024 Approved Integrated Capture Camera and Desktop Together</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-saving-powerpoint-presentation-to-video/"><u>[Updated] 2024 Approved Saving PowerPoint Presentation to Video</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-detailed-guide-crafting-powerful-video-thumbnails-for-content-marketing/"><u>[Updated] Detailed Guide Crafting Powerful Video Thumbnails for Content Marketing</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-8-innovative-tablets-changing-the-face-of-photo-editing-landscape/"><u>2024 Approved 8 Innovative Tablets Changing the Face of Photo Editing Landscape</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-for-the-ordinary-person-claude-versus-gpt-analysis/"><u>AI for the Ordinary Person: Claude Versus GPT Analysis</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-your-unique-fashion-voice/"><u>Mastering Your Unique Fashion Voice</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/navigating-safely-in-a-world-of-artificebotica-the-hidden-dangers-of-ai-production/"><u>Navigating Safely in a World of Artificebotica: The Hidden Dangers of AI Production</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-backstage-pass-creating-content-that-works/"><u>The Backstage Pass Creating Content That Works</u></a></li>
+</ul></div>
+

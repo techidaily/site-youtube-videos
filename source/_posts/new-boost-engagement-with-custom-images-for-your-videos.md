@@ -1,7 +1,7 @@
 ---
 title: "[New] Boost Engagement with Custom Images for Your Videos"
-date: 2024-09-30T00:15:18.238Z
-updated: 2024-10-01T22:28:07.258Z
+date: 2024-10-05T02:15:36.971Z
+updated: 2024-10-06T17:27:54.887Z
 tags:
   - ai video
   - ai youtube
@@ -51,19 +51,33 @@ In Thumbnail Editor, you can use the still images in the video as a thumbnail, c
 
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-video-still.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. And now, you can **add text, image and shape overlays to the thumbnail.** You can change the text font, size, opacity and more.
 
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-editor-edit.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. Click **Next** to save the thumbnail and you will see how the thumbnail displays on different platforms such as YouTube, Facebook and Twitter. Click **Save** to save the video thumbnail.
 
 In this way, you can add a custom thumbnail to the new videos and change the video thumbnail of the previously uploaded videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Part 2: Thumbnail Makers to Create Custom YouTube Thumbnails
@@ -96,6 +110,13 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 ![ YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
 ![Change YouTube Video Info](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-from-video-details.jpg)
@@ -106,26 +127,13 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 ![Change YouTube Video Thumbnail](https://images.wondershare.com/filmora/article-images/change-thumbnail-on-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you don't have an image to upload but you want to check out some online resources to make your own, check out our [Top YouTube Thumbnail Makers](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Things You Need to Know Before Making a Custom Thumbnail
 
@@ -171,10 +179,10 @@ Sometimes big channels can get away with stuff like this, because large portions
 ![ YouTube Thumbnail:  Don’t Be Mysterious ](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _If this came up in a search for ‘smoky eye tutorial’, would you click it?_
@@ -215,13 +223,6 @@ Usually, you’ll want to use a bit of text in your thumbnail. It might be the f
 
 The reason you should use huge text is so that people can read it. Remember that when people see your thumbnail in their search results, it will be much smaller than it will look while you are creating it. Text that looks big enough while you are creating your thumbnail will be much smaller when people are actually trying to read it, and that goes double for viewers watching on their small smartphone screens.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Frequently Asked Questions about YouTube Thumbnail
 
 #### 1\. What is YouTube Thumbnail?
@@ -242,13 +243,6 @@ When you get more people watching your video for longer, it increases your watch
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -264,20 +258,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-bridging-the-gap-youtube-editing-mastered-in-imovie-workflows/"><u>[New] Bridging the Gap YouTube Editing Mastered in iMovie Workflows</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-channel-expansion-at-wallet-friendly-costs/"><u>[New] Channel Expansion at Wallet-Friendly Costs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-discovering-youtubes-green-magic-for-effective-filming/"><u>[New] Discovering Youtube's Green Magic for Effective Filming</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-low-end-devices-high-outputs-streamline-with-obs-for-2024/"><u>[New] Low-End Devices, High Outputs Streamline with OBS for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-gamers-eden-record-without-paying-in-24/"><u>[Updated] 2024 Approved Gamers' Eden Record Without Paying in '24</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-making-every-game-a-masterpiece-proven-methods-to-record-and-relish-your-sims-experiences-for-2024/"><u>[Updated] Making Every Game a Masterpiece Proven Methods to Record and Relish Your Sims’ Experiences for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/counteracting-bot-influence-for-higher-traffic-for-2024/"><u>Counteracting Bot Influence for Higher Traffic for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-latest-epson-wf-7710-printer-drivers-for-windows-11-81-8-and-7/"><u>Download Latest Epson WF-7710 Printer Drivers for Windows 11, 8.1, 8 & 7</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/essential-srt-knowledge-for-all-levels/"><u>Essential SRT Knowledge for All Levels</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-thumbnails-fantasy-elements-added/"><u>In 2024, Elevate Thumbnails Fantasy Elements Added</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-details-on-creating-effective-yt-shorts/"><u>In 2024, Essential Details on Creating Effective YT Shorts</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/premier-video-breakdown-fifa-analysis-graphs/"><u>Premier Video Breakdown FIFA Analysis Graphs</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-call-of-duty-wwii-display-problems-in-windows-a-complete-fix-guide/"><u>Troubleshooting Call of Duty: WWII Display Problems in Windows - A Complete Fix Guide</u></a></li>
-<li><a href="https://extra-information.techidaily.com/voice-alteration-excellence-with-morphvox/"><u>Voice Alteration Excellence with MorphVOX</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-2023s-premier-action-cameras-on-motorcycle-gear-guide/"><u>[New] 2024 Approved 2023'S Premier Action Cameras on Motorcycle Gear Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-earning-strategies-for-successful-youtube-shorts-must-haves-earnings-prospects/"><u>[New] Earning Strategies for Successful Youtube Shorts Must-Haves, Earnings Prospects</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-video-production-a-compreey-guide-to-powerdirector/"><u>[New] Mastering Video Production A Compreey Guide to PowerDirector</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-diy-dynamics-unlock-creative-animation-potential/"><u>[Updated] DIY Dynamics Unlock Creative Animation Potential</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enhancing-viewers-interest-with-innovative-valorant-thumbnail-ideas/"><u>[Updated] Enhancing Viewers' Interest with Innovative Valorant Thumbnail Ideas</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/broadview-networks-navigating-mcn-choices-for-2024/"><u>Broadview Networks Navigating MCN Choices for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/cutting-costs-sapphires-latest-pcie-gen-4-mini-itx-am5-board-arrives-in-the-chinese-market/"><u>Cutting Costs: Sapphire's Latest PCIe Gen 4 Mini ITX AM5 Board Arrives in the Chinese Market</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/enhance-compatibility-boosting-mf4770n-performance-in-win11win8w7/"><u>Enhance Compatibility: Boosting MF4770n Performance in Win11/Win8/W7</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/exploring-technology-with-toms-hardware-review-site/"><u>Exploring Technology with Tom's Hardware Review Site</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Lava Blaze 2? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/savvy-sponsorship-strategies-for-small-scale-sites/"><u>Savvy Sponsorship Strategies for Small-Scale Sites</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Polishing Resilience for Online Criticism"
-date: 2024-08-10T05:47:17.622Z
-updated: 2024-08-11T05:47:17.622Z
+date: 2024-10-01T07:20:03.583Z
+updated: 2024-10-06T16:28:13.940Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -69,11 +60,32 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-master-the-art-of-transferring-fb-vids-to-mp3-files/"><u>[Updated] 2024 Approved Master the Art of Transferring Fb Vids to MP3 Files</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-engineering-endgame-echoes/"><u>[Updated] Engineering Endgame Echoes</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-advanced-palette-tweaks-by-professionals/"><u>2024 Approved Advanced Palette Tweaks by Professionals</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-bite-sized-video-knowledge-now/"><u>2024 Approved Bite-Sized Video Knowledge Now</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-editors-workshop-enhancing-your-youtube-video-visibility/"><u>2024 Approved Editor's Workshop Enhancing Your Youtube Video Visibility</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-3d-to-immersive-understanding-virtual-realitys-evolution/"><u>2024 Approved From 3D to Immersive Understanding Virtual Reality's Evolution</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-find-a-niche-market-on-youtube/"><u>How to Find A Niche Market on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-build-stellar-youtube-beginnings-on-a-shoestring-budget/"><u>In 2024, Build Stellar YouTube Beginnings on a Shoestring Budget</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/innovate-on-screen-imagery-with-youtubes-green-screens-edge/"><u>Innovate On-Screen Imagery with YouTube’s Green Screens Edge</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-13-free-dvd-player-software-compatible-with-windows-10-and-11-enhance-your-media-experience/"><u>Top 13 Free DVD Player Software Compatible with Windows 10 & 11: Enhance Your Media Experience</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-y100-5g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y100 5G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

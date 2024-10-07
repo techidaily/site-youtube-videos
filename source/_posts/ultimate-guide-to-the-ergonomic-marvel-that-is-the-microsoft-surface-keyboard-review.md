@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to the Ergonomic Marvel That Is The Microsoft Surface Keyboard Review
-date: 2024-09-28T20:21:15.448Z
-updated: 2024-10-01T22:04:40.011Z
+date: 2024-10-03T02:46:57.239Z
+updated: 2024-10-06T18:21:48.911Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Guide to the Ergonomic Marvel That Is The Microsoft Surface Keyboard Review
@@ -46,10 +46,10 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -78,13 +78,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -99,9 +92,23 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -120,10 +127,10 @@ Lifewire / Emily Isaacs
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
@@ -149,13 +156,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -187,21 +187,20 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snap-into-style-expert-tips-to-outshine-the-competition/"><u>[New] 2024 Approved Snap Into Style Expert Tips to Outshine the Competition</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-customize-video-speed-to-match-your-desired-watch-time/"><u>[New] Customize Video Speed to Match Your Desired Watch Time</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-unmatched-clarity-in-filming-top-rated-camera-stabilizers-guide/"><u>[New] Unmatched Clarity in Filming Top-Rated Camera Stabilizers Guide</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-simple-steps-to-modify-screen-capture-on-macos/"><u>[Updated] 2024 Approved Simple Steps to Modify Screen Capture on macOS</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-fundamental-filters-for-facial-concealment-in-images/"><u>2024 Approved Fundamental Filters for Facial Concealment in Images</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-quick-guide-to-xiaomi-redmi-k70e-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Xiaomi Redmi K70E FRP Bypass Instantly</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-tale-of-two-approaches-polite-vs-aggressive-asking/"><u>A Tale of Two Approaches Polite vs Aggressive Asking</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/comparative-review-smartphone-usage-of-the-leading-video-apps/"><u>Comparative Review Smartphone Usage of the Leading Video Apps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/experts-choice-top-10-low-cost-sbd-applications/"><u>Expert's Choice Top 10 Low-Cost SBD Applications</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-vivo-s17e-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Vivo S17e to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-channel-connectivity-made-simple-easy-to-use-youtube-buttons/"><u>In 2024, Channel Connectivity Made Simple Easy-to-Use YouTube Buttons</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-insights-into-youtube-live-image-crafting/"><u>In 2024, Essential Insights Into YouTube Live Image Crafting</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-navigating-legal-aspects-of-recording-whatsapp-talks/"><u>In 2024, Navigating Legal Aspects of Recording WhatsApp Talks</u></a></li>
-<li><a href="https://techtrends.techidaily.com/pc-and-portable-speaker-connection-a-simple-guide-to-using-bluetooth-technology/"><u>PC and Portable Speaker Connection: A Simple Guide to Using Bluetooth Technology</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/superb-phone-video-and-photo-capturing-with-best-apps-list/"><u>Superb Phone Video & Photo Capturing with Best Apps List</u></a></li>
-<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-tecno-camon-30-pro-5g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Tecno Camon 30 Pro 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-engagement-strategic-use-of-youtube-titles/"><u>[Updated] Elevating Engagement Strategic Use of Youtube Titles</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-prolific-strategies-for-broadcasting-fb-videos-on-whatsapp/"><u>[Updated] Prolific Strategies for Broadcasting FB Videos on WhatsApp</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-engage-entertain-enlighten-crafting-compelling-live-thumbnails/"><u>2024 Approved Engage, Entertain, Enlighten Crafting Compelling Live Thumbnails</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/balancing-consistency-and-quality-a-key-to-increasing-youtube-viewership-for-2024/"><u>Balancing Consistency & Quality A Key to Increasing YouTube Viewership for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/controlling-clock-display-in-windows-11-taskbar/"><u>Controlling Clock Display in Windows 11 Taskbar</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/editprime-vision/"><u>EditPrime Vision</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-user-experience-a-quick-how-to-for-youtube-cc-and-subtitles/"><u>Enhancing User Experience A Quick How-To for YouTube CC & Subtitles</u></a></li>
+<li><a href="https://games-able.techidaily.com/evaluating-if-ea-play-merits-your-cash/"><u>Evaluating if EA Play Merits Your Cash</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723013143649-expert-tips-for-fixing-swtor-initialization-challenges-no-more-frustrating-waits/"><u>Expert Tips for Fixing SWTOR Initialization Challenges – No More Frustrating Waits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/iconic-youtube-recognition-click-counter-awards/"><u>Iconic YouTube Recognition - Click Counter Awards</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-oppo-reno-10-proplus-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Oppo Reno 10 Pro+ 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Samsung Galaxy S24? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/maximizing-your-youtube-investments-through-famebit-networking-tactics/"><u>Maximizing Your YouTube Investments Through FameBit Networking Tactics</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/secrets-of-hosting-no-cost-seminars-on-the-worlds-largest-video-platform/"><u>Secrets of Hosting No-Cost Seminars on the World’s Largest Video Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamlining-your-gaming-playback-for-2024/"><u>Streamlining Your Gaming Playback for 2024</u></a></li>
 </ul></div>
 

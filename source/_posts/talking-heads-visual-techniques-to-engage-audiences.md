@@ -1,7 +1,7 @@
 ---
 title: "\"Talking Heads  Visual Techniques to Engage Audiences\""
-date: 2024-08-16T08:50:29.554Z
-updated: 2024-08-17T08:50:29.554Z
+date: 2024-09-30T02:50:36.193Z
+updated: 2024-10-07T00:46:13.019Z
 tags:
   - ai video
   - ai youtube
@@ -37,14 +37,8 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -74,8 +68,12 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -85,8 +83,12 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -103,20 +105,27 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -124,11 +133,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/he-financial-scale-one-million-youtube-viewers-pay/"><u>[New] The Financial Scale One Million YouTube Viewers' Pay</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-dispelling-dark-pixels-youtube-solution-guide/"><u>2024 Approved Dispelling Dark Pixels YouTube Solution Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-channels-popularity-with-12-key-growth-techniques/"><u>2024 Approved Elevate Your Channel's Popularity with 12 Key Growth Techniques</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-blueprint-for-success-livestreaming-ultra-wide-video-content-on-youtube/"><u>2024 Approved The Blueprint for Success Livestreaming Ultra-Wide Video Content on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-step-by-step-approach-to-crafting-customized-youtube-alerts-and-notifications/"><u>A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/balancing-creativity-and-monetization-in-youtube-shorts/"><u>Balancing Creativity and Monetization in YouTube Shorts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/conversion-sin-coste-entre-archivos-gif-y-png-con-herramienta-online-gratuita/"><u>Conversión Sin Coste Entre Archivos GIF Y PNG Con Herramienta Online Gratuita</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cutting-edge-techniques-for-youtube-video-production-with-sony-vegas-for-2024/"><u>Cutting-Edge Techniques for YouTube Video Production with Sony Vegas for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discovering-the-top-tools-for-engaging-video-beginnings/"><u>Discovering the Top Tools for Engaging Video Beginnings</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/echoes-unleashed-mac-studio-techniques/"><u>Echoes Unleashed Mac Studio Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-engagement-discover-these-top-12-techniques-for-video-success-for-2024/"><u>Elevate Engagement - Discover These Top 12 Techniques for Video Success for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-your-watch-experience-youtube-list-shuffle/"><u>Elevating Your Watch Experience YouTube List Shuffle</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-concluding-an-online-journey-in-a-discord-server/"><u>In 2024, Concluding an Online Journey in a Discord Server</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/pcwebex/"><u>PC用Webex会議終了後にどうやって自動録画するか「非主催者も可能」</u></a></li>
+<li><a href="https://techidaily.com/remove-tecno-spark-10-4g-unlock-screen-by-drfone-android-unlock-android-unlock/"><u>Remove Tecno Spark 10 4G unlock screen</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-guide-to-fix-a-crashing-discord-interface/"><u>Step-by-Step Guide to Fix a Crashing Discord Interface</u></a></li>
+<li><a href="https://fox-that.techidaily.com/there-are-different-types-of-noise-associated-with-jfets-such-as-thermal-noise-johnson-nyquist-noise-flicker-noise-also-known-as-1f-noise-and-shot-noise/"><u>There Are Different Types of Noise Associated with JFETs, Such as Thermal Noise (Johnson-Nyquist Noise), Flicker Noise (Also Known as 1/F Noise), and Shot Noise</u></a></li>
+</ul></div>
+

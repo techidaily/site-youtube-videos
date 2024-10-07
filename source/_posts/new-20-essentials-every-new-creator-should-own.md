@@ -1,7 +1,7 @@
 ---
 title: "[New] 20 Essentials Every New Creator Should Own"
-date: 2024-09-25T20:25:43.420Z
-updated: 2024-10-01T19:40:22.393Z
+date: 2024-10-05T01:19:24.361Z
+updated: 2024-10-07T06:52:10.050Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -59,13 +66,6 @@ If you already have a DSLR camera then it’s a good idea to familiarize yoursel
 Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Lights for YouTube
 
@@ -89,22 +89,22 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -119,19 +119,19 @@ Another common downside of smartphone cameras is that most of them use digital z
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -149,22 +149,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-rapid-routines-to-rearrange-youtube-playlists-effectively/"><u>[New] 2024 Approved Rapid Routines to Rearrange YouTube Playlists Effectively</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-disable-unsolicited-youtube-video-listings-for-2024/"><u>[New] Disable Unsolicited YouTube Video Listings for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-decoding-youtubes-top-mp3-conversion-apps/"><u>[Updated] Decoding YouTube's Top MP3 Conversion Apps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-audio-transforming-software-for-streamers/"><u>[Updated] Essential Audio Transforming Software for Streamers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-connecting-for-content-roku-and-facebook-live/"><u>2024 Approved Connecting for Content Roku and Facebook LIVE</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-comprehensive-look-at-editing-and-uploading-virtual-reality-videos-to-youtube/"><u>A Comprehensive Look at Editing and Uploading Virtual Reality Videos to YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-income-through-effective-video-marketing/"><u>Boosting Income Through Effective Video Marketing</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/comprehensive-guide-to-digiarty-software-deciphering-the-winxdvd-licensing-agreement/"><u>Comprehensive Guide to Digiarty Software - Deciphering the WinXDVD Licensing Agreement</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cool-climates-with-a-warm-twist-selecting-video-bgs-for-2024/"><u>Cool Climates with a Warm Twist Selecting Video Bg's for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-dailymotion-vs-youtube-monetization-which-is-more-profitable/"><u>In 2024, Dailymotion vs YouTube Monetization Which Is More Profitable?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-honor-x50-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Honor X50 Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/overcoming-shyness-in-the-spotlight-top-video-blogger-fears/"><u>Overcoming Shyness in the Spotlight Top Video Blogger Fears</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-swift-and-straightforward-update-of-nvidia-graphics-for-windows-7/"><u>Step-by-Step: Swift & Straightforward Update of NVIDIA Graphics for Windows 7</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-to-prevent-youtube-channels-mobile-and-desktop-methods/"><u>Steps to Prevent Youtube Channels Mobile and Desktop Methods</u></a></li>
-<li><a href="https://win-answers.techidaily.com/the-future-of-gaming-embracing-the-destiny-2-broccoli-clash-patch-of-2024/"><u>The Future of Gaming: Embracing the Destiny 2 - Broccoli Clash Patch of 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-hidden-prowess-in-locating-elusive-youtube-videos/"><u>The Hidden Prowess in Locating Elusive YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/web-integration-adding-youtube-playlists-easily/"><u>Web Integration Adding YouTube Playlists Easily</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-audiovisual-power-evaluating-mirrorless-vs-dslr-cameras/"><u>[New] Audiovisual Power Evaluating Mirrorless vs DSLR Cameras</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-flawless-frame-capturer-kit-for-2024/"><u>[New] Flawless Frame Capturer Kit for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/deciphering-the-language-of-youtube-live-images-for-2024/"><u>Deciphering the Language of YouTube Live Images for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/earning-streaming-strategies-8-beginners-tips/"><u>Earning Streaming Strategies - 8 Beginners' Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-a-journey-beyond-top-10-global-explorer-channels/"><u>In 2024, A Journey Beyond Top 10 Global Explorer Channels</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-perfect-your-skype-interviews-with-professional-recording-tactics/"><u>In 2024, Perfect Your Skype Interviews with Professional Recording Tactics</u></a></li>
+<li><a href="https://extra-information.techidaily.com/leading-lists-premium-bdr-software-on-windows-macos/"><u>Leading Lists Premium BDR Software on Windows, macOS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-with-youtube-avg-revenue-from-an-ad-in-2024/"><u>Monetizing with Youtube Avg Revenue From An Ad, In 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/streamline-your-instagram-top-8-planning-apps-for-iosandroid-devices/"><u>Streamline Your Instagram Top 8 Planning Apps for iOS/Android Devices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-blueprint-for-successful-biographies-top-tips-and-techniques-from-experts-for-2024/"><u>The Blueprint for Successful Biographies Top Tips & Techniques From Experts for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/the-insiders-guide-to-maximizing-ez-grabber-for-2024/"><u>The Insider’s Guide to Maximizing EZ Grabber for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-path-to-profitable-partnership-with-your-audience/"><u>The Path to Profitable Partnership with Your Audience</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-android-audio-experts/"><u>Top Android Audio Experts</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-top-rated-hand-drawing-animation-tools-for-whiteboard-explainers-for-2024/"><u>Updated Top-Rated Hand Drawing Animation Tools for Whiteboard Explainers for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Ergonomic Hold Techniques for Clarity"
-date: 2024-09-26T19:15:10.507Z
-updated: 2024-10-01T18:11:27.553Z
+date: 2024-10-01T01:12:30.825Z
+updated: 2024-10-07T02:45:05.547Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -54,28 +61,15 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -95,6 +89,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -104,10 +105,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -132,13 +133,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -154,24 +148,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-best-9-free-youtube-logo-makers/"><u>[New] Best 9 Free YouTube Logo Makers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-top-ten-recommendations-for-dynamic-instagram-grid-crafting-for-2024/"><u>[New] Top Ten Recommendations for Dynamic Instagram Grid Crafting for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-audiovisual-alchemy-formulating-your-youtube-playlist/"><u>[Updated] Audiovisual Alchemy Formulating Your YouTube Playlist</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-no-cash-to-youtube-wealth-unlocking-earnings-at-the-500-subs-level/"><u>[Updated] In 2024, From No Cash to YouTube Wealth Unlocking Earnings at the 500 Subs Level</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-discover-the-power-of-youtube-editing-a-compre-written-in-code-the-intricacies-of-javascript-functions/"><u>2024 Approved Discover the Power of YouTube Editing A Compre Written in Code The Intricacies of JavaScript Functions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-your-channels-free-tips-for-youtube-video-popularity-for-2024/"><u>Boosting Your Channels Free Tips for YouTube Video Popularity for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cutting-edge-computers-optimal-machines-for-media-creation/"><u>Cutting-Edge Computers Optimal Machines for Media Creation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dive-into-filmoras-certified-creative-program-for-2024/"><u>Dive Into Filmora’s Certified Creative Program for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-xbox-wireless-controller-drivers-fast-step-by-step-guide/"><u>Download Xbox Wireless Controller Drivers Fast: Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/downloading-standardized-youtube-images-with-ease-and-precision/"><u>Downloading Standardized Youtube Images with Ease & Precision</u></a></li>
-<li><a href="https://win-blog.techidaily.com/expert-tips-for-overcoming-launch-problems-in-resident-evil-5-for-windows-users/"><u>Expert Tips for Overcoming Launch Problems in Resident Evil #5 for Windows Users</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-steps-for-chromakey-magic/"><u>In 2024, Essential Steps for Chromakey Magic</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-supernatural-video-slowdown-handbook/"><u>In 2024, Supernatural Video Slowdown Handbook</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-the-ultimate-guide-to-improving-chromebook-tone-with-top-voice-extensions/"><u>In 2024, The Ultimate Guide to Improving Chromebook Tone with Top Voice Extensions</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/screen-with-televisions-how-to-for-perfect-mirroring-results/"><u>Screen with Televisions: How-To for Perfect Mirroring Results</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Honor 100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/ultimate-simplicity-guide-to-iphone-screen-recordings/"><u>Ultimate Simplicity Guide to iPhone Screen Recordings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unveiling-the-perfect-thumbnail-formula-for-youtube-success/"><u>Unveiling The Perfect Thumbnail Formula for YouTube Success</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/watch-dvds-on-windows-10-top-10-free-player-software/"><u>Watch DVDs on Windows 10 Top 10 Free Player Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-crafting-intriguing-youtube-intros-without-spending/"><u>[New] 2024 Approved Crafting Intriguing YouTube Intros Without Spending</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-top-tweets-review-the-full-year-in-videos/"><u>[New] 2024 Approved Top Tweets Review The Full Year in Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-beyond-youtube-elite-video-sharing-hubs-revealed/"><u>[Updated] Beyond YouTube Elite Video Sharing Hubs Revealed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/20-essential-youtube-groups-navigating-stocks/"><u>20 Essential YouTube Groups Navigating Stocks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-guide-to-writing-click-worthy-youtube-titles/"><u>2024 Approved Essential Guide to Writing Click-Worthy Youtube Titles</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/analyzing-the-goofy-journey-vhs-review-insights/"><u>Analyzing 'The Goofy Journey' VHS Review Insights</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-early-stage-youtube-wisdom-sidestep-these-8-common-mistakes/"><u>In 2024, Early-Stage YouTube Wisdom Sidestep These 8 Common Mistakes</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/innovative-ways-to-decrease-audio-levels/"><u>Innovative Ways to Decrease Audio Levels</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/revolutionize-earning-with-youtube-short-tactics/"><u>Revolutionize Earning with Youtube Short Tactics</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-xiaomi-redmi-a2plus-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Xiaomi Redmi A2+? Here is How | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-tecno-camon-30-pro-5g-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Tecno Camon 30 Pro 5G Phones</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/whos-at-the-apex-youtube-subscribers-ranking/"><u>Who's at the Apex? YouTube Subscribers Ranking</u></a></li>
 </ul></div>
 

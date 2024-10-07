@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Boosting Views Through Imaginative Video Thumbnails"
-date: 2024-09-24T22:26:00.358Z
-updated: 2024-10-01T16:26:36.792Z
+date: 2024-10-03T16:39:14.465Z
+updated: 2024-10-06T23:59:46.510Z
 tags:
   - ai video
   - ai youtube
@@ -43,10 +43,10 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -58,17 +58,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -77,18 +70,18 @@ People feel automatically connected and drawn into images that make eye contact.
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
 
 Make sure the images you choose are relevant to the topic of your video.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
 
@@ -108,6 +101,13 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -123,20 +123,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-beginners-guide-to-choosing-lenses-and-cameras-for-youtube-vloggers/"><u>[New] Beginner's Guide to Choosing Lenses and Cameras for YouTube Vloggers</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-remedy-screen-disruptions-during-live-streams/"><u>[New] Remedy Screen Disruptions During Live Streams</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-crafting-a-profitable-channel-in-your-first-youtube-steps/"><u>[Updated] Crafting a Profitable Channel in Your First Youtube Steps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-embracing-constructive-feedback-ignoring-the-rest/"><u>[Updated] Embracing Constructive Feedback, Ignoring the Rest</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-quick-clip-art-creator-seamless-image-to-cartoon-conversion/"><u>[Updated] Quick Clip-Art Creator Seamless Image-to-Cartoon Conversion</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-vidcapture-fb-videos-on-the-go-for-2024/"><u>[Updated] VidCapture Fb Videos on the Go for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-itel-a60s-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Itel A60s</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-microsofts-print-to-pdf-issue-on-windows-11-a-step-by-step-guide/"><u>Fixing Microsoft's Print to PDF Issue on Windows 11: A Step-by-Step Guide</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/high-end-uavs-purchase-without-delay/"><u>High-End UAVs Purchase Without Delay</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-samsung-galaxy-s23plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Samsung Galaxy S23+ | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-depth-analysis-of-green-screen-technology-in-kinemaster-for-2024/"><u>In-Depth Analysis of Green Screen Technology in Kinemaster for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/investing-5-yields-hundreds-of-new-viewers-now/"><u>Investing $5 Yields Hundreds of New Viewers Now</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/meeting-mastery-streaming-google-meet-directly-to-youtube/"><u>Meeting Mastery Streaming Google Meet Directly to YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/resolving-the-mystery-of-missing-shorts-thumbnails-on-youtube/"><u>Resolving the Mystery of Missing Shorts Thumbnails on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/op-10-capture-cards-for-youtube-for-2024/"><u>The Top 10 Capture Cards for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-viral-videos-on-youtube-a-strategic-plan-for-2024/"><u>[New] Crafting Viral Videos on YouTube A Strategic Plan for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dismantling-youtube-ranks-factors-and-their-effects/"><u>[New] Dismantling YouTube Ranks Factors and Their Effects</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-time-saving-ways-to-log-vimeo-media/"><u>[New] Time-Saving Ways to Log Vimeo Media</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-digital-dazzle-fine-tuning-video-chrominance-for-beauty/"><u>2024 Approved Digital Dazzle Fine-Tuning Video Chrominance for Beauty</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/expand-your-viewership-horizon-on-youtube/"><u>Expand Your Viewership Horizon on Youtube</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/guide-setting-customized-finder-preferences-for-main-and-nested-folders/"><u>Guide: Setting Customized Finder Preferences for Main & Nested Folders</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-itel-p55t-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Itel P55T Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-iphone-12-mini-screen-lock-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock iPhone 12 mini screen lock?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-s18-pro-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo S18 Pro</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-clear-shots-for-youtube-filmmakers/"><u>In 2024, Clear Shots for YouTube Filmmakers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-distinguishing-between-youtube-policies-and-cc-clauses/"><u>In 2024, Distinguishing Between YouTube Policies and CC Clauses</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-best-free-video-rotation-apps-for-android-iphone-windows-and-mac/"><u>New Best Free Video Rotation Apps for Android, iPhone, Windows, and Mac</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-realme-narzo-60-pro-5g-by-fonelab-android-recover-data/"><u>Recover lost data from Realme Narzo 60 Pro 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-languages-in-macau-cantonese-and-more/"><u>Unraveling Languages in Macau: Cantonese & More</u></a></li>
 </ul></div>
 

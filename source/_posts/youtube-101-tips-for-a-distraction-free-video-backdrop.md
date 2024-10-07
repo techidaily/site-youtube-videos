@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube 101  Tips for a Distraction-Free Video Backdrop\""
-date: 2024-09-24T20:48:11.518Z
-updated: 2024-10-02T00:04:32.242Z
+date: 2024-09-30T18:44:09.177Z
+updated: 2024-10-07T00:54:00.902Z
 tags:
   - ai video
   - ai youtube
@@ -60,13 +60,6 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -82,10 +75,10 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
@@ -99,10 +92,10 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
@@ -114,13 +107,20 @@ You see, the video background is blurred, and the people are highlighted. Now it
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -137,22 +137,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/rom-budget-channels-to-big-brands-youtube-sponsorships-demystified-for-2024/"><u>[New] From Budget Channels to Big Brands YouTube Sponsorships Demystified for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-kids-car-clubbing-capers/"><u>[Updated] 2024 Approved Kids' Car Clubbing Capers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-steps-to-create-youtube-beginnings-and-ends-on-a-budget/"><u>[Updated] Essential Steps to Create YouTube Beginnings & Ends on a Budget</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-exploring-the-latest-in-art-software-comprehensive-picsart-review-and-guide-2024-edition/"><u>[Updated] Exploring the Latest in Art Software - Comprehensive PicsArt Review and Guide 2024 Edition</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-twisting-the-tale-a-comprehensively-dual-angled-approach-for-insta-posts/"><u>[Updated] Twisting the Tale A Comprehensively Dual-Angled Approach for Insta Posts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-circulating-content-the-art-of-playlist-sharing/"><u>2024 Approved Circulating Content The Art of Playlist Sharing</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-tripod-triumphs-unbeatable-stability-for-phones/"><u>2024 Approved Tripod Triumphs Unbeatable Stability for Phones</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/404-error-page-missing-digital-artistry-solutions/"><u>404 Error: Page Missing - Digital Artistry Solutions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/deconstructing-the-legal-framework-of-youtube-and-cc-licenses-for-2024/"><u>Deconstructing the Legal Framework of Youtube & CC Licenses for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-dive-into-ios-screenshots-a-comprehensive-youtube-guide/"><u>In 2024, Dive Into iOS Screenshots A Comprehensive YouTube Guide</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-pexels-a-photographers-toolkit/"><u>In 2024, Mastering Pexels A Photographer's Toolkit</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-navigating-network-growth-strategies-for-instagram-success/"><u>In 2024, Navigating Network Growth Strategies for Instagram Success</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Xiaomi Redmi K70E | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-tags-on-youtube-tips-and-tricks/"><u>Navigating Tags on YouTube - Tips and Tricks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/streamline-your-social-media-youtube-to-fb-guide-2024/"><u>Streamline Your Social Media YouTube to FB Guide 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-pinnacle-of-amusement-select-15-laughing-out-loud-channels/"><u>The Pinnacle of Amusement Select 15 Laughing-Out-Loud Channels</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unveiling-the-mystery-of-proper-lighting-in-youtube-vids/"><u>Unveiling the Mystery of Proper Lighting in YouTube Vids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-decoding-aspect-ratios-for-effective-youtube-videos/"><u>[Updated] Decoding Aspect Ratios for Effective YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-navigating-multi-platform-engagement-for-content-creators-for-2024/"><u>[Updated] Navigating Multi-Platform Engagement for Content Creators for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/best-mac-mp4-cutter-apps-enhance-video-editing/"><u>Best Mac MP4 Cutter Apps Enhance Video Editing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cutting-edge-templates-unlocking-your-videos-potential/"><u>Cutting-Edge Templates Unlocking Your Video's Potential</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dissecting-your-profit-share-in-youtube-short-creation/"><u>Dissecting Your Profit Share in YouTube Short Creation</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-samsung-galaxy-a23-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Samsung Galaxy A23 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/explore-endless-connectivity-t-mobile-and-metro-wireless-roaming-agreement-explained/"><u>Explore Endless Connectivity: T-Mobile & Metro Wireless Roaming Agreement Explained</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-realme-narzo-60-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Realme Narzo 60 5G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/license-free-mcb-video-backgrounds/"><u>License-Free MCB Video Backgrounds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quietly-stream-youtube-on-iphone-and-android-for-2024/"><u>Quietly Stream YouTube on iPhone & Android for 2024</u></a></li>
 </ul></div>
 

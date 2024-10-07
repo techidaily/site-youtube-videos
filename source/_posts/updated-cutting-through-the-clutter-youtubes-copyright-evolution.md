@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cutting Through the Clutter  YouTube's Copyright Evolution\""
-date: 2024-09-25T20:25:38.476Z
-updated: 2024-10-01T19:12:34.901Z
+date: 2024-10-03T16:19:49.517Z
+updated: 2024-10-07T01:47:59.549Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,13 @@ Without fair use, there wouldn’t be any flexibility for creators. There wouldn
 
 Think of fair use as exceptions to copyright rules.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: What YouTube Considers Fair Use
 
 There are a few aspects YouTube looks at when it comes to determining whether creators are using copyrighted content that meets the fair use exceptions.
@@ -53,6 +60,13 @@ There are a few aspects YouTube looks at when it comes to determining whether cr
 1. Is the copyrighted content being creatively or purposefully used?
 2. Are there more original content used than copyrighted content in the video?
 3. Will your video benefit the original copyrighted content?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Types of Content That Meet Fair Use
 
@@ -69,13 +83,6 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 **Parody:** Imitation for comedic or dramatic effect is an artistic pursuit as long as it is done in a transformative manner. What does transformative mean? It means in some way, the original is being examined.
 
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
@@ -95,13 +102,6 @@ So what should you do? Here are the steps to take after you receive a copyright 
 
 ![YouTube Copyright notice](https://images.wondershare.com/filmora/article-images/youtube-copyright-notice.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Click on the “Copyright Strike” link beside the flagged video to see details
 2. Decide how to respond to the strike:  
    1. Allow the strike to expire after 90 days and complete the [YouTube’s copyright school](https://www.youtube.com/copyright%5Fschool)  
@@ -111,17 +111,10 @@ So what should you do? Here are the steps to take after you receive a copyright 
 ![Dispute YouTube Copyright Claims](https://images.wondershare.com/filmora/article-images/dispute-youtube-copyright-claim.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: 5 Ways to Avoid Copyright Strike
@@ -160,6 +153,13 @@ If you ever notice that your content is being copied without your approval — i
 1. Select “Infringes my rights” in the pop up window and click “infringes my copyright” in the dropdown options.
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/infringe-my-copyright-report.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
 2. Submit report and wait for an email confirmation that the infringing content has been removed.
@@ -209,16 +209,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/-taste-of-film-home-cooks-visual-journey/"><u>[New] A Taste of Film Home Cook's Visual Journey</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-crafting-striking-instagram-profile-overviews/"><u>[New] In 2024, Crafting Striking Instagram Profile Overviews</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-a-comprehensive-overview-of-youtube-standards-for-content-creators/"><u>[Updated] A Comprehensive Overview of YouTube Standards for Content Creators</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-enriching-youtube-content-with-improved-sound-quality/"><u>[Updated] Enriching YouTube Content with Improved Sound Quality</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-insightful-steps-to-identify-your-viewers/"><u>[Updated] Insightful Steps to Identify Your Viewers</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-iphone-photo-angles-flip-and-tilt-with-skill/"><u>2024 Approved Mastering iPhone Photo Angles Flip & Tilt with Skill</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-breakdown-why-the-samsung-qn55q6f-is-a-game-changer-in-the-world-of-hdr-and-4k-television-technology/"><u>Comprehensive Breakdown: Why the Samsung QN55Q6F Is a Game-Changer in the World of HDR and 4K Television Technology</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-creating-compelling-channel-names-simplified/"><u>In 2024, Creating Compelling Channel Names Simplified</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/inside-the-art-of-youtube-video-earnings/"><u>Inside the Art of YouTube Video Earnings</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/tech-driven-pleasure-exploring-vr-in-media/"><u>Tech-Driven Pleasure Exploring VR in Media</u></a></li>
-<li><a href="https://driver-install.techidaily.com/unlocking-windows-10-deskjet-driver-challenges/"><u>Unlocking Windows 10 Deskjet Driver Challenges</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-elevate-your-gameplay-records-with-advanced-methods-on-w11/"><u>[Updated] 2024 Approved Elevate Your Gameplay Records with Advanced Methods on W11</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-cool-climates-cozy-cinematics-selecting-winter-backgrounds/"><u>2024 Approved Cool Climates, Cozy Cinematics Selecting Winter Backgrounds</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/beat-bringers-sourcing-premium-dj-visuals-for-2024/"><u>Beat Bringers Sourcing Premium DJ Visuals for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/comedy-central-the-best-laughter-inducing-channels-online/"><u>Comedy Central The Best Laughter-Inducing Channels Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/copyright-laws-and-screencasting-of-online-video-platforms-youtube/"><u>Copyright Laws and Screencasting of Online Video Platforms (YouTube)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-capturing-life-in-motion-top-9-smartphone-props-for-dynamic-cinematography/"><u>In 2024, Capturing Life in Motion Top 9 Smartphone Props for Dynamic Cinematography</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-motorola-moto-g04-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Motorola Moto G04 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Phone FRP Lock</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/photobooth-hiccups-resolving-frozen-playback-issues-for-2024/"><u>Photobooth Hiccups Resolving Frozen Playback Issues for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/reviving-your-system-ultimate-guide-to-quickening-downloading-slow-pcs-on-windows-11-or-10/"><u>Reviving Your System: Ultimate Guide to Quickening Downloading Slow PCs on Windows 11 or 10</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/unlimited-video-editing-top-10-free-online-tools-with-no-watermark-for-2024/"><u>Unlimited Video Editing Top 10 Free Online Tools with No Watermark for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Staying Positive in the Face of Internet Skeptics"
-date: 2024-08-10T05:49:54.291Z
-updated: 2024-08-11T05:49:54.291Z
+date: 2024-10-01T06:03:32.750Z
+updated: 2024-10-07T05:59:14.708Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/e8bfc69e4cfa6c5e7699d7a6d6fe4dbd7b3f6ecf3
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/e8bfc69e4cfa6c5e7699d7a6d6fe4dbd7b3f6ecf3
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/e8bfc69e4cfa6c5e7699d7a6d6fe4dbd7b3f6ecf3
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -69,11 +60,40 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-crafting-a-stellar-visual-identity-the-ultimate-guide-to-yt-design/"><u>[New] Crafting a Stellar Visual Identity The Ultimate Guide to YT Design</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-capture-calls-iphones-vision/"><u>[New] In 2024, Capture Calls IPhone's Vision</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-revolutionize-your-creation-process-canvas-secret-edits/"><u>[Updated] 2024 Approved Revolutionize Your Creation Process Canva's Secret Edits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-chart-your-course-to-youtube-riches-the-essential-500-threshold/"><u>[Updated] Chart Your Course to Youtube Riches The Essential 500 Threshold</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-complete-insight-into-sierras-icloud-file-management/"><u>[Updated] Complete Insight Into Sierra’s iCloud File Management</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-constructing-coherent-youtube-video-sequences/"><u>[Updated] Constructing Coherent YouTube Video Sequences</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>[Updated] Enhance Your Presence Best Free Tools for Intriguing Openings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-ethical-download-strategies-for-youtube-to-mp4-files/"><u>[Updated] Ethical Download Strategies for YouTube to MP4 Files</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unleash-zooms-full-potential-with-essential-3-methods/"><u>2024 Approved Unleash Zoom's Full Potential with Essential 3 Methods</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/clearing-up-not-valid-user-error-in-win11-environment/"><u>Clearing Up 'Not Valid User' Error in Win11 Environment</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-achieving-professional-results-video-recordingediting-on-adobe-connect/"><u>In 2024, Achieving Professional Results Video Recording/Editing on Adobe Connect</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-nokia-c110-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Nokia C110 for Streaming | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/reach-new-heights-boosting-youtube-viewership/"><u>Reach New Heights Boosting YouTube Viewership</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/surging-upstream-in-the-youtube-subscriber-pool/"><u>Surging Upstream in the YouTube Subscriber Pool</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/techniques-for-unlinking-youtube-videos-from-devices/"><u>Techniques for Unlinking YouTube Videos From Devices</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/ultimate-guide-how-to-transfer-music-from-apple-iphone-se-2020-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>Ultimate Guide, How to Transfer Music From Apple iPhone SE (2020) to iPhone | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-latest-in-technology-with-toms-gear-guide/"><u>Unveiling the Latest in Technology with Tom's Gear Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/what-makes-a-youtube-short-go-viral/"><u>What Makes a YouTube Short Go Viral?</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

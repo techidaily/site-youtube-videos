@@ -1,7 +1,7 @@
 ---
 title: "\"Step Into the Spotlight  Learning YouTube Vlogger Etiquette\""
-date: 2024-09-30T22:20:04.584Z
-updated: 2024-10-01T23:26:37.551Z
+date: 2024-10-06T00:53:10.232Z
+updated: 2024-10-06T18:01:38.067Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,13 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -49,19 +56,6 @@ When you are casually telling a story to a friend, you are not thinking about th
 Once all the pieces of the story are captured — including your storytelling, b-roll, and other supportive footage — you must now cut out all the irrelevant or repetitive parts and edit it so it can be enjoyed as one cohesive tale.
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **3\. Surprise and Delight Your Audience**
 
@@ -92,16 +86,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -123,13 +111,6 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -155,13 +136,20 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -179,22 +167,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/updated-boosting-your-content-reach-with-eye-catching-youtube-video-thumbnails/"><u>[Updated] Boosting Your Content Reach with Eye-Catching YouTube Video Thumbnails</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-what-is-the-meaning-and-functionality-of-a-blue-emoji-in-messenger-in-2024/"><u>[Updated] What Is the Meaning and Functionality of a Blue Emoji in Messenger, In 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-deciphering-how-to-spot-your-video-enthusiasts/"><u>2024 Approved Deciphering How to Spot Your Video Enthusiasts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-educators-guide-to-thriving-youtube-channels-10-must-know-secrets/"><u>2024 Approved Educators' Guide to Thriving YouTube Channels – 10 Must-Know Secrets</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/bringing-your-vision-alive-transferring-vids-from-premiere-for-2024/"><u>Bringing Your Vision Alive Transferring Vids From Premiere for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/comparing-nikon-d7500-and-mirrorless-rivals-for-2024/"><u>Comparing Nikon D7500 and Mirrorless Rivals for 2024</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/create-professional-pc-video-clips-for-free-master-these-10-techniques-using-movavi/"><u>Create Professional PC Video Clips for Free? Master These 10 Techniques Using Movavi!</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1723808229768-effortlessly-block-incoming-calls-tips-for-both-iphone-and-android-users/"><u>Effortlessly Block Incoming Calls: Tips for Both iPhone and Android Users</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Samsung Galaxy A14 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-from-apple-iphone-12-pro-max-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock From Apple iPhone 12 Pro Max?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-endless-entertainment-loop-youtube-content-on-tv/"><u>In 2024, Endless Entertainment Loop YouTube Content on TV</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-apple-iphone-13-pro-without-passcode-easily-drfone-by-drfone-ios/"><u>In 2024, Unlock Apple iPhone 13 Pro Without Passcode Easily | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/maximize-writing-efficiency-discover-the-8-best-ai-applications-for-authors/"><u>Maximize Writing Efficiency: Discover the 8 Best AI Applications for Authors</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-roblox-error-277-for-pc-users-insights-and-strategies/"><u>Overcoming Roblox Error 277 for PC Users: Insights and Strategies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/rhythm-rendezvous-optimal-dj-video-selections/"><u>Rhythm Rendezvous Optimal DJ Video Selections</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/understanding-youtubes-monetization-schedule/"><u>Understanding YouTube's Monetization Schedule</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlock-higher-engagement-the-power-of-precise-timestamping/"><u>Unlock Higher Engagement The Power of Precise Timestamping</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-capture-quality-in-nintendo-switch-life-for-2024/"><u>[New] Capture Quality in Nintendo Switch Life for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-edu-stream-100-cutting-edge-learning-yt/"><u>[New] Edu-Stream 100 Cutting-Edge Learning YT</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-expert-guide-to-snagging-twitter-gifs-pc/"><u>[Updated] In 2024, Expert Guide to Snagging Twitter GIFs (PC)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-unveiling-the-mysteries-of-io-video-capture/"><u>[Updated] Unveiling the Mysteries of IO Video Capture</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-beyond-youtube-3-pioneering-online-video-platforms/"><u>2024 Approved Beyond YouTube 3 Pioneering Online Video Platforms</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/creative-composition-concepts-fostering-joyful-spaces-for-2024/"><u>Creative Composition Concepts Fostering Joyful Spaces for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/script-to-screen-crafting-your-unique-youtube-tale-for-2024/"><u>From Script to Screen Crafting Your Unique YouTube Tale for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/techniques-for-emptying-youtubes-keep-queue/"><u>Techniques for Emptying YouTube's Keep Queue</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unveiling-strategies-for-building-impressive-youtube-teaser-vids/"><u>Unveiling Strategies for Building Impressive YouTube Teaser Vids</u></a></li>
 </ul></div>
 
