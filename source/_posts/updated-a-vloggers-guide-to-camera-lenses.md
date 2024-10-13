@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Vlogger's Guide To Camera Lenses"
-date: 2024-09-24T16:20:06.946Z
-updated: 2024-10-02T00:26:21.536Z
+date: 2024-10-10T17:51:46.037Z
+updated: 2024-10-12T23:20:37.925Z
 tags:
   - ai video
   - ai youtube
@@ -79,10 +79,10 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Crop Factor
@@ -109,10 +109,10 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aperture
@@ -120,28 +120,28 @@ This table shows you the focal lengths needed to achieve the same shot between c
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -186,24 +186,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-crafting-compelling-youtube-content-through-split-screens/"><u>[New] Crafting Compelling YouTube Content Through Split-Screens</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-digital-dollars-in-motion-a-side-by-side-of-vids-vs-videos/"><u>[New] Digital Dollars in Motion A Side-by-Side of Vids Vs. Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-fast-track-to-facebooks-latest-viewing-history-2e23/"><u>[New] Fast Track to Facebook’s Latest Viewing History (2E23)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-discovering-the-unique-benefits-of-youtube-tv/"><u>[Updated] Discovering the Unique Benefits of YouTube TV</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-ditch-dullness-boosting-speed-in-android-videos-for-2024/"><u>[Updated] Ditch Dullness Boosting Speed in Android Videos for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/5-winter-youtube-background-ideas-to-warm-up-your-videos/"><u>5 Winter YouTube Background Ideas to Warm Up Your Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/accelerating-engagement-with-optimized-youtube-video-speeds/"><u>Accelerating Engagement with Optimized YouTube Video Speeds</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/breaking-through-youtubes-walls-using-advanced-creator-studio-skills/"><u>Breaking Through YouTube's Walls Using Advanced Creator Studio Skills</u></a></li>
-<li><a href="https://program-issues.techidaily.com/effective-fixes-for-phasmophobia-vr-gaming-errors-and-glitches/"><u>Effective Fixes for Phasmophobia VR Gaming Errors and Glitches</u></a></li>
-<li><a href="https://blog-min.techidaily.com/gratuite-convertisseur-video-pour-dts-en-format-mp4-effet-de-la-boutique-de-movavi/"><u>Gratuité: Convertisseur Vidéo Pour DTS en Format MP4 - Effet De La Boutique De Movavi</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716465784482-green-screen-journey-begins-on-yt-ideas-take-flight/"><u>Green Screen Journey Begins on YT, Ideas Take Flight!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-tecno-pova-6-pro-5g-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Tecno Pova 6 Pro 5G Phone When You Forget the Password</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Honor X7b | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-chart-a-course-to-6-figure-growth-with-powerful-tags/"><u>In 2024, Chart a Course to 6-Figure Growth with Powerful #Tags</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-demystifying-income-for-t-series-on-youtube/"><u>In 2024, Demystifying Income for T-Series on YouTube</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-tecno-camon-30-pro-5g-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Tecno Camon 30 Pro 5G Device</u></a></li>
-<li><a href="https://article-tips.techidaily.com/maximizing-meeting-efficiency-using-zoom-in-your-email-routine-with-gmail/"><u>Maximizing Meeting Efficiency Using Zoom in Your Email Routine with Gmail</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-should-you-buy-videopad-an-honest-review-and-recommendation-for-2024/"><u>New Should You Buy Videopad? An Honest Review and Recommendation for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/warning-signs-of-sham-chatgpt-portals-protecting-your-information/"><u>Warning Signs of Sham ChatGPT Portals: Protecting Your Information</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-easytech-snapshot-quick-rundown/"><u>[Updated] In 2024, EasyTech Snapshot Quick Rundown</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-iphone-cinematography-guide-8-insider-secrets-to-professional-video-creation/"><u>[Updated] In 2024, IPhone Cinematography Guide 8 Insider Secrets to Professional Video Creation</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-seamless-facial-smoothing-motion-blur-techniques-in-picsart/"><u>[Updated] Seamless Facial Smoothing Motion Blur Techniques in Picsart</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/embrace-the-pause-button-3-techniques-for-decelerating-youtube-video-playback-59-chars-slight-overage-with-rich-content-justification/"><u>Embrace the Pause Button 3 Techniques for Decelerating YouTube Video Playback (59 Chars, Slight Overage with Rich Content Justification)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-audiovisual-power-evaluating-mirrorless-vs-dslr-cameras/"><u>In 2024, Audiovisual Power Evaluating Mirrorless vs DSLR Cameras</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-becoming-a-pro-at-using-a-tripod-for-clear-high-quality-vlogs/"><u>In 2024, Becoming a Pro at Using a Tripod for Clear, High-Quality Vlogs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-compelling-narratives-with-strategic-youtube-banners/"><u>In 2024, Crafting Compelling Narratives with Strategic YouTube Banners</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-discover-top-8-budget-friendly-screen-capture-apps-for-android/"><u>In 2024, Discover Top 8 Budget-Friendly Screen Capture Apps for Android</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-content-with-these-10-reaction-wonders/"><u>In 2024, Elevate Your Content with These 10 Reaction Wonders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevating-your-video-brand-tips-for-great-youtube-banners/"><u>In 2024, Elevating Your Video Brand Tips for Great YouTube Banners</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/infiltrating-the-top-channels-in-youtube-space/"><u>Infiltrating the Top Channels in YouTube Space</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolve-pc-playthroughs-stop-halo-3-from-unexpectedly-crashing/"><u>Resolve PC Playthroughs: Stop Halo 3 From Unexpectedly Crashing</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-samsung-galaxy-a05-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Samsung Galaxy A05 to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/top-2-strategie-efficienti-per-gestire-le-pagine-bianche-in-windows-11/"><u>Top 2 Strategie Efficienti per Gestire Le Pagine Bianche in Windows 11</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-another-users-ms-error-on-pc/"><u>Troubleshooting: Another User's MS Error on PC</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/1728509510781-windows-11/"><u>Windows 11 を修復するためのプログラム作成法と利用方法</u></a></li>
 </ul></div>
 

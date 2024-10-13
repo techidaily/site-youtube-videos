@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Advanced Filmmaking Techniques  Selecting Top-Notch Lenses\""
-date: 2024-10-04T06:33:08.691Z
-updated: 2024-10-07T07:26:22.585Z
+date: 2024-10-07T20:03:58.922Z
+updated: 2024-10-12T17:56:59.943Z
 tags:
   - ai video
   - ai youtube
@@ -34,13 +34,6 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 
 Before we get into the recommendations here is a little background information on lenses in general:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Beginner's Guide to Aperture and F-Stops
 
 In order to be able to select the lens you'll be using to record your YouTube videos, you first need to understand a few very basic concepts, such as aperture or f-stops.
@@ -58,6 +51,13 @@ Light passes through your lens’s aperture on its way to your camera’s sensor
 F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more information on f-stops and blurring your background read “The Best Bokeh Lens - How to Get the Blurred Background for YouTube Videos” and watch Tasha’s video.
 
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
 
@@ -84,10 +84,10 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
@@ -116,10 +116,10 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
@@ -134,13 +134,6 @@ Recording **moving objects** from a distance requires you to have a lens that al
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
 A lot of zoom lenses do not have wide enough apertures to create blurred backgrounds, but this Tamron lens is an exception at f/2.8\. This low f-stop also means that it performs better in poor lighting conditions than a lot of other zoom lenses. If your shooting conditions change a lot – if you often change locations, for example – then it will be good to have a sturdy, well-built, zoom lens like the AF 17-mm that can be quickly adapted to new angles and distances.
@@ -152,6 +145,13 @@ All Sony's APS-C format E mount cameras are compatible with this multi-purpose l
 If you are using a 4k camera to shoot your YouTube video, check out [best camera lens for 4k professional production.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -168,17 +168,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-superior-2-written-by-robert-littell-for-2024/"><u>[New] Superior 2 Written by Robert Littell for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-champion-of-chiseled-cheeks-starting-your-youtube-aesthetic-venture/"><u>[Updated] Champion of Chiseled Cheeks Starting Your YouTube Aesthetic Venture</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-craft-your-story-aspect-ratios-for-powerful-yt-thumbnails/"><u>[Updated] Craft Your Story Aspect Ratios for Powerful YT Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-digital-cash-creation-a-closer-look-at-vids-vs-videos/"><u>2024 Approved Digital Cash Creation A Closer Look at Vids Vs. Videos</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1722994018039-borderlands-3-stuck-easy-fixes-to-revive-your-epic-gaming-experience/"><u>Borderlands 3 Stuck? Easy Fixes to Revive Your Epic Gaming Experience!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/el-boost-achieve-youtube-affiliate-milestone-with-10k-vistas/"><u>Channel Boost Achieve YouTube Affiliate Milestone with 10K Vistas</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/download-the-complete-deadpool-film-as-mp4-for-free-ultimate-torrent-and-mirror-sites/"><u>Download the Complete Deadpool Film as MP4 for Free - Ultimate Torrent & Mirror Sites</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-tecno-spark-20-proplus-device-sim-by-drfone-android/"><u>Easily Unlock Your Tecno Spark 20 Pro+ Device SIM</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/efficiently-incorporate-youtube-playlists-for-engaging-pages/"><u>Efficiently Incorporate YouTube Playlists for Engaging Pages</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-edit-youtube-videos-in-imovie-for-2024/"><u>How to Edit YouTube Videos in iMovie for 2024</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-data-from-apple-iphone-14-to-zte-phones-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Data from Apple iPhone 14 to ZTE Phones | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ate-guide-igniting-video-visionaries-in-your-channel/"><u>Ultimate Guide Igniting Video Visionaries in Your Channel</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-from-beginner-to-pro-the-essential-guide-to-capturing-your-mac-display/"><u>[New] 2024 Approved From Beginner to Pro The Essential Guide to Capturing Your Mac Display</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-quick-and-simple-free-fb-video-to-mp4-hd-conversion-tutorial-online-for-2024/"><u>[New] Quick and Simple Free FB Video to MP4 (HD) Conversion Tutorial Online for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-checklist-for-fpv-drone-propeller-selection/"><u>[New] The Ultimate Checklist for FPV Drone Propeller Selection</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-top-ios-pro-and-plus-free-film-apps-unveiled/"><u>[New] Top iOS Pro & Plus-Free Film Apps - Unveiled</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-ending-invisible-gaming-captures-in-software-for-2024/"><u>[Updated] Ending Invisible Gaming Captures in Software for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-boost-channels-to-partner-status-in-under-90-days-start-now/"><u>2024 Approved Boost Channels to Partner Status in Under 90 Days, Start Now</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-curating-a-musical-portfolio-in-youtube/"><u>2024 Approved Curating a Musical Portfolio in Youtube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-video-storytelling-with-smart-chapter-insertion-techniques-on-youtube/"><u>2024 Approved Enhance Video Storytelling with Smart Chapter Insertion Techniques on YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-ultimate-selection-of-superior-hexadrones/"><u>2024 Approved Ultimate Selection of Superior HexaDrones</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/android-audio-alchemy-selecting-the-top-free-downloader-apps-from-youtube/"><u>Android Audio Alchemy Selecting the Top Free Downloader Apps From YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/break-down-barriers-with-cost-free-vob-player-for-2024/"><u>Break Down Barriers with Cost-Free VOB Player for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cultivate-creativity-best-video-concepts-for-viewers/"><u>Cultivate Creativity Best Video Concepts for Viewers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dynamic-duo-display-youtubes-way-of-creative-splitting/"><u>Dynamic Duo Display YouTube’s Way of Creative Splitting</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-brand-with-ai-enhanced-naming-solutions/"><u>Elevate Your Brand with AI-Enhanced Naming Solutions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-success-channel-ideas-to-spark-momentum-for-2024/"><u>Elevating Success Channel Ideas to Spark Momentum for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/navigating-cyberspace-the-titans-of-the-internet-a-look-at-the-top-10-sites-you-cant-miss/"><u>Navigating Cyberspace: The Titans of the Internet - A Look at the Top 10 Sites You Can’t Miss</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-oppo-a58-4g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Oppo A58 4G FRP Bypass</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2024-10-05T20:18:05.543Z
-updated: 2024-10-06T20:07:06.731Z
+date: 2024-10-11T21:10:14.053Z
+updated: 2024-10-12T21:11:42.351Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,16 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -147,22 +141,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-a-step-by-step-guide-to-edit-youtube-videos-in-finalcut/"><u>[New] 2024 Approved A Step-by-Step Guide to Edit YouTube Videos in FinalCut</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-dive-into-filmoras-certified-creative-program/"><u>[New] 2024 Approved Dive Into Filmora’s Certified Creative Program</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-glow-up-guide-for-the-social-savvy-top-three-highlighters-on-instagram/"><u>[New] Glow-Up Guide for the Social Savvy Top Three Highlighters on Instagram</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-elevate-your-content-premier-youtube-rank-tracker-apps/"><u>[Updated] Elevate Your Content Premier YouTube Rank Tracker Apps</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-instantaneous-gif-transformation-leading-online-platforms-ranked/"><u>[Updated] Instantaneous GIF Transformation Leading Online Platforms Ranked</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-efficiently-incorporate-youtube-playlists-for-engaging-pages/"><u>2024 Approved Efficiently Incorporate YouTube Playlists for Engaging Pages</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/average-payout-for-a-million-view-youtube-video/"><u>Average Payout for a Million-View YouTube Video</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/costly-convenience-with-airpods-max-investment/"><u>Costly Convenience with AirPods Max Investment</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/discovering-youtubes-finest-storyweavers/"><u>Discovering YouTube's Finest Storyweavers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/ensuring-profit-tracking-on-your-channel-for-2024/"><u>Ensuring Profit Tracking on Your Channel for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-dazzling-dynamics-the-essence-of-grading-aesthetics/"><u>In 2024, Dazzling Dynamics The Essence of Grading Aesthetics</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-ownership-deciphering-in-instasongs/"><u>In 2024, Ownership Deciphering in InstaSongs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-customization-seamlessly-embedding-text-and-links-in-youtube-videos/"><u>Mastering Customization Seamlessly Embedding Text & Links in Youtube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/professional-recordings-at-home-10-key-strategies-for-excellence/"><u>Professional Recordings at Home 10 Key Strategies for Excellence</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-art-of-youtube-management-by-studio-techniques/"><u>The Art of YouTube Management by Studio Techniques</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-poco-f5-pro-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Poco F5 Pro 5G FRP Bypass</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/your-guide-to-instantaneously-add-closed-captions-to-youtube-clips/"><u>Your Guide to Instantaneously Add Closed Captions to YouTube Clips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/llusions-unveiled-discerning-genuine-supporters-in-digital-platforms-for-2024/"><u>[New] Illusions Unveiled Discerning Genuine Supporters in Digital Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-expert-tips-for-removing-persistent-youtube-channels-mobilepc/"><u>[New] In 2024, Expert Tips for Removing Persistent Youtube Channels (Mobile/PC)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-professional-setup-ranking-the-leading-9-online-microphone-tools/"><u>[New] In 2024, Professional Setup Ranking the Leading 9 Online Microphone Tools</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-alternatives-to-xsplit-for-digital-media-masters/"><u>[Updated] Alternatives to Xsplit for Digital Media Masters</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-can-instant-subscription-lead-to-higher-watch-time/"><u>[Updated] Can Instant Subscription Lead to Higher Watch Time?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-turn-your-youtube-snippets-into-memorable-gifs-for-2024/"><u>[Updated] Turn Your YouTube Snippets Into Memorable GIFs for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-accelerate-with-these-key-windows-10-tricks/"><u>2024 Approved Accelerate with These Key Windows 10 Tricks</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/a-critical-look-at-irecorders-screenshot-tech/"><u>A Critical Look at iRecorder's Screenshot Tech</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-the-course-from-adsense-income-to-savings-for-2024/"><u>Charting the Course From AdSense Income to Savings for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/conexao-direta-com-a-movavi-ferramenta-de-conversao-video-gratuita-f4v-para-flv-na-web/"><u>Conexão Direta Com a Movavi: Ferramenta De Conversão Vídeo Gratuita – F4V Para FLV Na Web</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>Enhance Your Presence Best Free Tools for Intriguing Openings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/event-ready-top-dj-templates-download-guide/"><u>Event-Ready Top DJ Templates Download Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/get-free-stock-footage-from-these-4-youtube-channels/"><u>Get Free Stock Footage From These 4 YouTube Channels</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723006033424-how-to-fix-mass-effect-legendary-edition-crashing-pc-and-xbox/"><u>How to Fix Mass Effect Legendary Edition Crashing – PC & Xbox</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-depth-guide-to-video-money-making-across-platforms/"><u>In-Depth Guide to Video Money-Making Across Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pixelperfect-editor/"><u>PixelPerfect Editor</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1716465777166-transform-spaceships-into-trees-youtubes-green-secrets-revealed/"><u>Transform Spaceships Into Trees – Youtube’s Green Secrets Revealed!</u></a></li>
 </ul></div>
 

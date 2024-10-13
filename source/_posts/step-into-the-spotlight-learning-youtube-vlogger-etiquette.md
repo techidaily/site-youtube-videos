@@ -1,7 +1,7 @@
 ---
 title: "\"Step Into the Spotlight  Learning YouTube Vlogger Etiquette\""
-date: 2024-10-06T00:53:10.232Z
-updated: 2024-10-06T18:01:38.067Z
+date: 2024-10-05T19:04:58.253Z
+updated: 2024-10-12T21:42:02.383Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,10 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
@@ -57,6 +57,13 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -65,6 +72,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -72,6 +86,13 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -84,13 +105,6 @@ The great thing about vlogging is that you will get a lot of practice framing sh
 Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UCjwmbv6NE4mOh8Z8VhPUx1Q), where she gives a tour of her bedroom.
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
 
@@ -136,21 +150,7 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -167,14 +167,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-capture-quality-in-nintendo-switch-life-for-2024/"><u>[New] Capture Quality in Nintendo Switch Life for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-edu-stream-100-cutting-edge-learning-yt/"><u>[New] Edu-Stream 100 Cutting-Edge Learning YT</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-expert-guide-to-snagging-twitter-gifs-pc/"><u>[Updated] In 2024, Expert Guide to Snagging Twitter GIFs (PC)</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-unveiling-the-mysteries-of-io-video-capture/"><u>[Updated] Unveiling the Mysteries of IO Video Capture</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-beyond-youtube-3-pioneering-online-video-platforms/"><u>2024 Approved Beyond YouTube 3 Pioneering Online Video Platforms</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/creative-composition-concepts-fostering-joyful-spaces-for-2024/"><u>Creative Composition Concepts Fostering Joyful Spaces for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/script-to-screen-crafting-your-unique-youtube-tale-for-2024/"><u>From Script to Screen Crafting Your Unique YouTube Tale for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/techniques-for-emptying-youtubes-keep-queue/"><u>Techniques for Emptying YouTube's Keep Queue</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unveiling-strategies-for-building-impressive-youtube-teaser-vids/"><u>Unveiling Strategies for Building Impressive YouTube Teaser Vids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-achieving-excellence-in-work-and-online-content/"><u>[Updated] Achieving Excellence in Work and Online Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enhancing-youtube-content-with-text-overlays/"><u>[Updated] Enhancing YouTube Content with Text Overlays</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-deciphering-content-control-youtube-vs-creative-commons-license/"><u>2024 Approved Deciphering Content Control YouTube Vs. Creative Commons License</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-home-cinema-mastery-top-10-hd-players-list/"><u>2024 Approved Home Cinema Mastery Top 10 HD Players' List</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-noteworthy-14-dynamic-text-artworks/"><u>2024 Approved Noteworthy 14 Dynamic Text Artworks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-why-trust-matters-more-than-just-numbers-on-feeds/"><u>2024 Approved Why Trust Matters More Than Just Numbers on Feeds</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/comparing-dailymovements-and-youtubes-income-models-for-2024/"><u>Comparing DailyMovement's and Youtube's Income Models for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/discover-the-art-of-tracking-network-activity-via-netstat-in-win11/"><u>Discover the Art of Tracking Network Activity via Netstat in Win11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-samsung-galaxy-watch-merging-elegance-in-style-with-high-tech-capabilities/"><u>Expert Insights on the Samsung Galaxy Watch – Merging Elegance in Style With High-Tech Capabilities</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-free-best-youtube-video-editor-apps-for-android/"><u>In 2024, FREE Best YouTube Video Editor Apps for Android</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-live-thumbnails-for-effective-branding/"><u>Mastering Live Thumbnails for Effective Branding</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-poco-c55-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Poco C55 Phone Now with These Tips</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/through-virtual-lenses-exploring-vr-ar-and-mixed-reality/"><u>Through Virtual Lenses Exploring VR, AR, and Mixed Reality</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-secure-video-sharing-youtube-to-gmail-with-google-access/"><u>Unlocking Secure Video Sharing YouTube to Gmail with Google Access</u></a></li>
 </ul></div>
 

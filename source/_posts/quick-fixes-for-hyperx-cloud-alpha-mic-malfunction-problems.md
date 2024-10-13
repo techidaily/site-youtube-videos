@@ -1,7 +1,7 @@
 ---
 title: Quick Fixes for HyperX Cloud Alpha Mic Malfunction Problems
-date: 2024-10-01T20:50:38.396Z
-updated: 2024-10-07T03:40:30.469Z
+date: 2024-10-05T20:05:01.474Z
+updated: 2024-10-12T22:43:16.064Z
 tags:
   - win11
   - win10
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/639d037a37b2c4b70f42aebe7df41fe55ddc0ed82
 2. Click the **Recording**  tab, s  elect the microphone you’re using and click **Set Default** .  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap447.jpg)
@@ -51,20 +51,14 @@ thumbnail: https://thmb.techidaily.com/639d037a37b2c4b70f42aebe7df41fe55ddc0ed82
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap443.jpg)
 4. Click **OK** .
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  See if your Logitech G633 mic works. If not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Fix 2: Allow access to your headset microphone (for Windows 10 users)**
 
@@ -75,28 +69,15 @@ thumbnail: https://thmb.techidaily.com/639d037a37b2c4b70f42aebe7df41fe55ddc0ed82
 2. Click**Microphone** on the left panel. On the right,**if** **microphone access for this device is off** , click**Change** **to** **turn it on** . You should also all apps to access your microphone. If it is turned off, turn it on.  
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000088.png)
 
  Check if your Logitech G633 mic works. If not, try the next fix below to update your audio driver.
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Fix 3: Update your audio driver**
 
@@ -120,6 +101,13 @@ There are two ways to update your sound card driver: **manually**  and **automat
 3. Click **Update**  next to your sound card to automatically download the correct version of its driver, then you can install it manually. Or click **Update All**  to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get**full support** and a**30-day money back** guarantee  ).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap0029-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can do it for free if you like, but it’s partly manual.
 
@@ -152,17 +140,20 @@ There are two ways to update your sound card driver: **manually**  and **automat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-nine-key-approaches-for-storing-mov-in-windows-environments/"><u>[New] 2024 Approved Nine Key Approaches for Storing .mov in Windows Environments</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-the-best-hashtags-for-youtube-gaming-videos/"><u>[New] The Best Hashtags for YouTube Gaming Videos</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-complete-igtv-user-manual/"><u>[Updated] 2024 Approved The Complete IGTV User Manual</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-a-guide-to-high-quality-slow-motion-images-for-instagram-sharing-for-2024/"><u>[Updated] A Guide to High-Quality Slow Motion Images for Instagram Sharing for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-simple-hdr-photography-methods/"><u>2024 Approved Mastering Simple HDR Photography Methods</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-engagement-customizing-your-shorts-first-impressions-for-2024/"><u>Boosting Engagement Customizing Your Shorts' First Impressions for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-building-buzz-strategies-for-shaping-your-unique-youtubing-image/"><u>In 2024, Building Buzz Strategies for Shaping Your Unique YouTubing Image</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-on-apple-iphone-12-pro-max-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID On Apple iPhone 12 Pro Max without Password?</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-shaky-no-more-a-step-by-step-guide-to-video-stabilization/"><u>New 2024 Approved Shaky No More A Step-by-Step Guide to Video Stabilization</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Vivo S18 Pro | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/the-art-of-updating-hardware-drivers-in-windows-xp/"><u>The Art of Updating Hardware Drivers in Windows XP</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/transformative-tactics-for-developing-a-professional-youtubers-sanctuary-on-mobile/"><u>Transformative Tactics for Developing a Professional YouTubers' Sanctuary on Mobile</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-webinars-in-written-form/"><u>[New] 2024 Approved Webinars in Written Form</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-access-your-favorites-anytime-the-leading-6-free-video-downloaders/"><u>2024 Approved Access Your Favorites Anytime The Leading 6 Free Video Downloaders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-curtail-unexpected-youtube-recommendations/"><u>2024 Approved Curtail Unexpected YouTube Recommendations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-viewer-interest-with-optimal-video-thumbnail-sizes-for-2024/"><u>Boosting Viewer Interest with Optimal Video Thumbnail Sizes for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/compact-beasts-discover-leading-mini-pcs-for-gamers/"><u>Compact Beasts: Discover Leading Mini PCs for Gamers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/deciphering-the-differences-between-youtubes-and-dailymentions-for-2024/"><u>Deciphering the Differences Between YouTubes & DailyMentions for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-video-experience-best-youtube-to-avi-companions/"><u>Elevating Video Experience Best YouTube-to-AVI Companions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-your-videos-status-on-youtube-for-2024/"><u>Elevating Your Video's Status on YouTube for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-15-plus-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 15 Plus without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-synching-melodies-to-photos-virtually/"><u>In 2024, Synching Melodies to Photos Virtually</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-tecno-spark-10c-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Tecno Spark 10C Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovative-viture-pro-xr-eyewear-analysis-revolutionizing-personal-cinematic-and-gaming-escapades/"><u>Innovative VITURE Pro XR Eyewear Analysis: Revolutionizing Personal Cinematic and Gaming Escapades</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-streamline-your-workflow-6-productivity-boosting-adobe-premiere-pro-tips/"><u>New 2024 Approved Streamline Your Workflow 6 Productivity-Boosting Adobe Premiere Pro Tips</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/powerhouse-performance-assessment-of-alienware-aurora-r7-a-high-cost-high-value-gaming-pc/"><u>Powerhouse Performance Assessment of Alienware Aurora R7: A High-Cost, High-Value Gaming PC</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-9-solutions-for-correcting-yellow-discoloration-on-iphone-display/"><u>Top 9 Solutions for Correcting Yellow Discoloration on iPhone Display</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "YouTube Introduction Design Made Simple and Inexpensive"
-date: 2024-08-10T05:45:40.398Z
-updated: 2024-08-11T05:45:40.398Z
+date: 2024-10-10T19:36:26.195Z
+updated: 2024-10-12T16:36:10.216Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://www.lifewire.com/thmb/vRf_tq78SoHoiOdF0Zy0gmv1R2k=/400x300/fi
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -43,9 +40,6 @@ thumbnail: https://www.lifewire.com/thmb/vRf_tq78SoHoiOdF0Zy0gmv1R2k=/400x300/fi
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,9 +66,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -87,8 +78,12 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,10 +117,20 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -133,11 +138,28 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-elevate-your-channel-hit-the-10000-view-mark-fast/"><u>[New] In 2024, Elevate Your Channel Hit the 10,000 View Mark Fast!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-charting-new-territory-youtubes-revised-policies/"><u>2024 Approved Charting New Territory YouTube's Revised Policies</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-incremental-movie-moment/"><u>2024 Approved Incremental Movie Moment</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-updated-amd-graphics-driver-for-rx-cuyo-modelo-es-6700-xt-windows-11107-supported/"><u>Download Updated AMD Graphics Driver for RX Cuyo Modelo Es 6700 XT: Windows 11/10/7 Supported</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/erasing-extra-borders-for-smooth-youtube-playback-for-2024/"><u>Erasing Extra Borders for Smooth YouTube Playback for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-oppo-reno-11-5g-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Oppo Reno 11 5G</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-game-14-must-see-vids-for-youtube-gaming-success/"><u>In 2024, Elevate Your Game 14 Must-See Vids for YouTube Gaming Success</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-infinix-smart-8-pro-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Infinix Smart 8 Pro Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/nail-the-next-best-thing-youtube-studio-editing-mastery/"><u>Nail the Next Best Thing YouTube Studio Editing Mastery</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/restore-deletion-proof-files-from-windows-781011-systems-effectively/"><u>Restore Deletion-Proof Files From Windows 7/8/10/11 Systems Effectively</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/save-your-android-and-mac-snapchat-footage-effectively/"><u>Save Your Android & Mac Snapchat Footage Effectively</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/scaling-success-the-tactics-for-increasing-youtube-audiences/"><u>Scaling Success The Tactics for Increasing YouTube Audiences</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-8-proven-video-growth-enhancers/"><u>Top 8 Proven Video Growth Enhancers</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/unlocking-audio-potential-a-user-friendly-approach-to-track-combining-in-premiere-pro-for-2024/"><u>Unlocking Audio Potential A User-Friendly Approach to Track Combining in Premiere Pro for 2024</u></a></li>
+</ul></div>
+

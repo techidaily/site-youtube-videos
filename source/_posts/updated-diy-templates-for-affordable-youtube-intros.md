@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY Templates for Affordable YouTube Intros"
-date: 2024-09-28T16:36:56.174Z
-updated: 2024-10-01T19:31:46.621Z
+date: 2024-10-10T19:51:38.675Z
+updated: 2024-10-12T22:40:50.483Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ There are certain creators that divide the intro into different sections.
 
 Making an intro has never been as easy as it is now. Kudos to the programs that are available online as well as offline.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why You Need a YouTube Intro?
 
 There are many reasons for which you need YouTube intro. Some reasons are mentioned as under for you better understanding.
@@ -85,10 +92,10 @@ You need not be a tech-savvy person to operate the program as it is self-explana
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### The Process to create your own YouTube intro by Filmora?
@@ -99,18 +106,18 @@ If you want to make intro using Filmora then it is advised to follow the steps a
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-import-media-interface.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Head over to “Title” and you can add them to you YouTube intro with ease:
 
 **Step 3:** To add opener you need to head to “Opener” under Titles and right-click the one you want to select. Click apply and it will be added to the timeline.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-openers.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** You can also change the duration of the title effects. Drag its edge on the timeline you can also click the clock icon and enter new duration.
 
@@ -119,16 +126,10 @@ If you want to make intro using Filmora then it is advised to follow the steps a
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-text.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 6:** To edit the intro, even more, click the “Advanced” button to access the advanced editing panel. Add text boxes, shapes and other effects from here.
@@ -147,22 +148,22 @@ Step 8: The default length of the filter is 5 seconds that can be extended by dr
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-export-mp4.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 It's very easy right? Download Filmora and make a click-driven intro now!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Key Takeaways to Create Great Attractive YouTube Intro
 
@@ -244,13 +245,6 @@ The program is known for the awesome workability as well as viability kudos to t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -266,19 +260,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-profit-from-youtube-monetize-youtube-shorts-and-boost-your-income/"><u>[New] 2024 Approved Profit From YouTube Monetize YouTube Shorts and Boost Your Income</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-comprehensive-guide-your-shorts-hidden-thumbnails/"><u>[New] Comprehensive Guide Your Shorts' Hidden Thumbnails</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-expert-approach-to-negative-picture-tones/"><u>[New] The Expert Approach to Negative Picture Tones</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-visual-strategy-for-podcast-branding/"><u>[New] The Ultimate Visual Strategy for Podcast Branding</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-deciphering-content-control-youtube-vs-creative-commons-license-for-2024/"><u>[Updated] Deciphering Content Control YouTube Vs. Creative Commons License for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/avchd-mts-converter-for-sony-xperia-1-v-by-aiseesoft-video-converter-play-mts-on-android/"><u>AVCHD MTS Converter for Sony Xperia 1 V</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/comprehensively-reviewing-youtubes-restrictions-vs-cc-flexibility-for-2024/"><u>Comprehensively Reviewing YouTube's Restrictions Vs. CC Flexibility for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/earning-streaming-strategies-8-beginners-tips-for-2024/"><u>Earning Streaming Strategies - 8 Beginners' Tips for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fix-why-shadowplay-stops-capturing-video-in-windows-solutions-unveiled/"><u>Fix: Why Shadowplay Stops Capturing Video in Windows - Solutions Unveiled</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-address-a-non-detectable-hard-drive-problem-a-comprehensive-solution/"><u>How to Address a Non-Detectable Hard Drive Problem - A Comprehensive Solution</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-oppo-find-x7-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Oppo Find X7 Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-boundless-creativity-fantasy-backdrops-on-thumbnails/"><u>In 2024, Boundless Creativity Fantasy Backdrops on Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/standard-youtube-licenses-versus-cc/"><u>Standard Youtube Licenses Versus CC</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/transform-your-vision-youtubes-innovative-green-screen-solutions/"><u>Transform Your Vision – YouTube's Innovative Green Screen Solutions</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-crafting-the-perfect-tone-accessible-software-for-effortless-vocal-transformation/"><u>[New] Crafting the Perfect Tone Accessible Software for Effortless Vocal Transformation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-step-by-step-fbx-capture-for-gamers-for-2024/"><u>[New] Step-by-Step FBX Capture For Gamers for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-essential-guide-to-mac-based-lecture-recording-for-2024/"><u>[New] The Essential Guide to Mac-Based Lecture Recording for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-sony-xperia-xz-premium-high-res-video-capabilities-analyzed/"><u>[Updated] Sony Xperia XZ Premium High-Res Video Capabilities Analyzed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-steps-to-designing-exceptional-youtube-thumbnails/"><u>2024 Approved Essential Steps to Designing Exceptional YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtubes-short-form-videos-10-tactics-for-dominance-in-views/"><u>2024 Approved Youtube's Short-Form Videos - 10 Tactics for Dominance in Views</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-step-by-step-guide-to-dominating-the-youtube-viewership-game-for-2024/"><u>A Step-by-Step Guide to Dominating the YouTube Viewership Game for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/brand-battlegrounds-mastery-of-marketing-metrics-on-youtube-for-2024/"><u>Brand Battlegrounds Mastery of Marketing Metrics on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-your-brand-with-a-sports-youtube-chain-on-macos-for-2024/"><u>Building Your Brand with a Sports YouTube Chain on macOS for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/complete-mp4-recovery-solution-eradicate-errors-and-rejuvenate-broken-video-clips/"><u>Complete MP4 Recovery Solution: Eradicate Errors & Rejuvenate Broken Video Clips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cost-effective-growth-tactic-for-youtube-fanbases/"><u>Cost-Effective Growth Tactic for YouTube Fanbases</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1720600616314-data-rescue-express-unlock-lost-information-today/"><u>Data Rescue Express - Unlock Lost Information Today!</u></a></li>
+<li><a href="https://program-issues.techidaily.com/escape-the-halted-load-essential-troubleshooting-tips-for-fixing-forza-horizon-5-issues/"><u>Escape the Halted Load: Essential Troubleshooting Tips for Fixing Forza Horizon 5 Issues</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-locked-realme-narzo-60-5g-phone-by-drfone-android/"><u>How to Reset a Locked Realme Narzo 60 5G Phone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-compelling-videos-youtubes-best-thumbnail-practices/"><u>In 2024, Crafting Compelling Videos YouTube's Best Thumbnail Practices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-asus-x441ba-balancing-extraordinary-size-with-performance-compromises/"><u>In-Depth Look at Asus X441BA: Balancing Extraordinary Size with Performance Compromises</u></a></li>
+<li><a href="https://extra-support.techidaily.com/optimize-your-gaming-with-kinemaster-usage-tips-and-comparisons-with-best-online-games-for-2024/"><u>Optimize Your Gaming with KineMaster Usage Tips & Comparisons with Best Online Games for 2024</u></a></li>
 </ul></div>
 

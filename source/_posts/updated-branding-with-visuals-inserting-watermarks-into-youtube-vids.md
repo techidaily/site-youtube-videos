@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Branding with Visuals  Inserting Watermarks Into YouTube Vids\""
-date: 2024-08-10T05:44:21.707Z
-updated: 2024-08-11T05:44:21.707Z
+date: 2024-10-05T19:19:15.051Z
+updated: 2024-10-13T00:16:49.428Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/94266fd2abffa49379e11298094d126f869b761ce
 
 # How to Add Logo or Watermark to YouTube Video
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -45,35 +42,30 @@ A [watermark](https://en.wikipedia.org/wiki/Watermark) is a still image that is 
 * [**Part 1: How to add logo or watermark to in existing YouTube videos**](#part1)
 * [**Part 2: Add logos or watermarks to your videos before uploading**](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: How to add logo or watermark to in existing YouTube videos
 
 To add a watermark to your previously uploaded videos you will need to have created and saved your watermark outside of your video editing program.
 
 * Sign in to your YouTube account. Click on the thumbnail image of your account at the top right corner. This will give you a drop down menu. Then Click on the small gear (indicating settings)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube watermark](https://images.wondershare.com/filmora/article-images/youtube-watermark-setting.JPG)
 
 * This will lead you to setting center. Click on "view additional features"
 
 ![youtube watermark view additional features](https://images.wondershare.com/filmora/article-images/view-additional-features.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To the left of the window, Click the third option of "branding"
 * Click on "add watermark". Then you can choose an image from your computer. After your image is uploaded, click save.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add watermark to youtube](https://images.wondershare.com/filmora/article-images/add-watermark.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ### Notes
 
 **YouTube watermark size**: Your watermark should be transparent, square, and larger than 50x50 pixels, which is the size it will be shrunk down to when it appears in the corner of your videos.
@@ -84,10 +76,6 @@ To add a watermark to your previously uploaded videos you will need to have crea
 
 Here is a tutorial video for how to add watermark to Your YouTube videos:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Part 2: Add logos or watermarks to your videos before uploading
 
 #### 1\. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -95,6 +83,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 Wondershare Filmora which is one of the ideal video editing tools especially when it comes to [watermarking your videos](https://tools.techidaily.com/wondershare/filmora/download/). It helps you in adding static and video watermarks over the video. The basic theme of the video watermarking is the concept of [picture-in-picture](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![youtube watermark on filmora](https://images.wondershare.com/filmora/article-images/youtube-logo-on-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The following steps have to be taken to add a watermark:
 
@@ -104,10 +99,14 @@ The following steps have to be taken to add a watermark:
 * Mask the watermark in the shape you like
 * Save the video
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. [Windows movie maker](https://windows-movie-maker.en.softonic.com/)
 
@@ -142,21 +141,29 @@ The image should be in .PNG or .GIF format.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Create a Transparent logo for Youtube Channel
 
 Do you want to make a transparent image as logo for your YouTube? If you want to brand your YouTube channel, we believe it is a must to add transparent logo for YouTube branding. Actually, you can do this in Filmora just with a green screen image. Check the steps below to know the secret.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 1: Import video and image to Filmora
 
 Open Filmora. Choose **Create New Project**. Click import media files here in Media library. Select your video and a green screen image. In fact, a green screen video is also accessable, but usually brand logo is image. Now drag them onto timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![import video and image](https://images.wondershare.com/filmora/article-images/import-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 2: Import video and image to Filmora
 
@@ -168,15 +175,14 @@ Right click on the image clip in the timeline. Choose **Green Screen**. You will
 
 You can clip the image clip first and go to preview window to scale it down or up by dragging the green dot. You can put the YouTube logo at corner.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![transparent youtube logo for branding](https://images.wondershare.com/filmora/article-images/transparent-logo-for-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -186,11 +192,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-6-ways-to-increase-audience-retention-on-youtube/"><u>[New] 6 Ways To Increase Audience Retention on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-crafting-stories-essential-tips-for-youtube-video-editors/"><u>[New] Crafting Stories Essential Tips for YouTube Video Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-captivate-audiences-with-effective-and-appealing-video-previews/"><u>[Updated] 2024 Approved Captivate Audiences with Effective and Appealing Video Previews</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-budget-savvy-shoppers-best-cameras/"><u>[Updated] Budget-Savvy Shoppers' Best Cameras</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-cognitive-clash-ultimate-gk-video-quizzes/"><u>[Updated] In 2024, Cognitive Clash - Ultimate GK Video Quizzes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-a-step-by-step-premiere-pro-for-softening-soundtracks/"><u>2024 Approved A Step-by-Step Premiere Pro for Softening Soundtracks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-ricoh-theta-s-uncovered-a-complete-audit/"><u>2024 Approved Ricoh Theta S Uncovered A Complete Audit</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/demystifying-the-money-behind-1m-on-youtube/"><u>Demystifying the Money Behind 1M on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-privacy-share-exclusive-youtube-clips-through-gmail/"><u>Elevating Privacy Share Exclusive YouTube Clips Through Gmail</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhance-branding-the-ultimate-guide-to-custom-urls-for-youtube/"><u>Enhance Branding The Ultimate Guide to Custom URLs for YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-authenticate-your-yt-account-a-hint-list/"><u>How to Authenticate Your YT Account? A Hint List</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-fix-acer-device-drivers-on-windows-ultimate-guide/"><u>How to Fix Acer Device Drivers on Windows: Ultimate Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-how-to-detect-if-someone-has-muted-or-blocked-you-on-snapchat/"><u>In 2024, How to Detect If Someone Has Muted or Blocked You on Snapchat</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/master-techniques-to-dodge-edgenuity-videos-swiftly-for-2024/"><u>Master Techniques to Dodge Edgenuity Videos Swiftly for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/sparkle-with-screenshots-vlogging-for-value-creation/"><u>Sparkle with Screenshots Vlogging for Value Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-truth-of-the-tale-dispelling-common-social-media-misconceptions/"><u>The Truth of the Tale: Dispelling Common Social Media Misconceptions</u></a></li>
+</ul></div>
+

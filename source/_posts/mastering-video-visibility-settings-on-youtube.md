@@ -1,7 +1,7 @@
 ---
 title: "Mastering Video Visibility Settings on YouTube"
-date: 2024-10-03T23:36:33.572Z
-updated: 2024-10-07T03:33:11.288Z
+date: 2024-10-07T18:35:04.381Z
+updated: 2024-10-12T21:20:13.887Z
 tags:
   - ai video
   - ai youtube
@@ -71,10 +71,10 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Method 2:**
@@ -84,32 +84,26 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
-
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -118,10 +112,10 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -141,17 +135,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/updated-channel-branding-made-simple-and-free/"><u>[Updated] Channel Branding Made Simple & Free</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-transforming-hidden-content-fb-video-strategies/"><u>[Updated] Transforming Hidden Content FB Video Strategies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-achieving-excellence-in-work-and-online-content/"><u>2024 Approved Achieving Excellence in Work and Online Content</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-fb-live-tv-broadcast-4-innovative-methods/"><u>2024 Approved FB Live TV Broadcast 4 Innovative Methods</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/examining-the-perks-and-pitfalls-of-vr/"><u>Examining the Perks and Pitfalls of VR</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-diy-unleashing-creative-power-in-animation-effects/"><u>In 2024, DIY Unleashing Creative Power in Animation Effects</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-expert-strategies-for-developing-captivating-audio-visual-teasers/"><u>In 2024, Expert Strategies for Developing Captivating Audio-Visual Teasers</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-tecno-phantom-v-flip-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Tecno Phantom V Flip Phone Screen?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-navigating-iphone-the-ringtone-alteration-process/"><u>In 2024, Navigating iPhone The Ringtone Alteration Process</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-chroma-key-techniques-for-professional-videos/"><u>Mastering Chroma Key Techniques for Professional Videos</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/optimizing-facebook-search-efficiency-101/"><u>Optimizing Facebook Search Efficiency 101</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-tips-resolving-star-wars-battlefront-iis-persistent-black-screen-issue/"><u>Troubleshooting Tips: Resolving Star Wars Battlefront II's Persistent Black Screen Issue</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>[New] Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utting-edge-capture-tips-for-professional-sound-recording/"><u>[New] Cutting Edge Capture Tips for Professional Sound Recording</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-secureyourcam-top-10-reviews-for-protected-shopping/"><u>[New] In 2024, SecureYourCam Top 10 Reviews for Protected Shopping</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-top-8-tools-for-efficiently-planning-instagram-content/"><u>[New] Top 8 Tools for Efficiently Planning Instagram Content</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolved-unresponsive-keys-in-windows-11-system/"><u>[Resolved] Unresponsive Keys in Windows 11 System</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-capturing-coziness-ideal-winter-scenes-for-yt-video/"><u>[Updated] Capturing Coziness Ideal Winter Scenes for YT Video</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-discovering-the-best-mac-cam-tech-without-bandicam-for-2024/"><u>[Updated] Discovering the Best Mac Cam Tech Without Bandicam for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pros-in-the-field-pick-their-favorite-asmr-mics/"><u>[Updated] Pros in the Field Pick Their Favorite ASMR Mics</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-guide-to-essential-asmr-video-facts/"><u>2024 Approved A Guide to Essential ASMR Video Facts</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-meizu-21-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Meizu 21 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-business-via-beauty-vlogs-for-2024/"><u>Building Business via Beauty Vlogs for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-quick-cut-channel-sequences-for-2024/"><u>Crafting Quick-Cut Channel Sequences for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-your-game-time-with-youtube-live-broadcasts-for-2024/"><u>Enhancing Your Game Time with YouTube Live Broadcasts for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/filmmaking-made-simple-crafting-an-impactful-youtube-subscribe-button/"><u>Filmmaking Made Simple Crafting an Impactful YouTube Subscribe Button</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/first-steps-launching-a-youtube-channel-for-profit/"><u>First Steps Launching a YouTube Channel for Profit</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-vivo-v29e-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo V29e in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-pick-win-friendly-video-coders-wisely/"><u>How to Pick Win-Friendly Video Coders Wisely</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-clubbing-essentials-top-rated-dj-template-vids/"><u>In 2024, Clubbing Essentials Top-Rated DJ Template Vids</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-narrative-skies-and-landscapes-in-a-snapshot/"><u>In 2024, Narrative Skies and Landscapes in a Snapshot</u></a></li>
 </ul></div>
 

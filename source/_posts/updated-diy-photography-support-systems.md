@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY Photography Support Systems"
-date: 2024-09-24T19:25:23.649Z
-updated: 2024-10-01T17:31:04.668Z
+date: 2024-10-10T17:21:28.714Z
+updated: 2024-10-12T17:03:33.362Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -50,22 +57,15 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -73,10 +73,10 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -97,10 +97,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -148,18 +148,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-advanced-techniques-for-gradual-volume-change/"><u>[New] Advanced Techniques for Gradual Volume Change</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-audioarchitects-building-without-dacast-for-2024/"><u>[New] AudioArchitects Building Without DaCast for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-choosing-prime-top-8-budget-friendly-srt-translator-tools/"><u>[New] Choosing Prime Top 8 Budget-Friendly SRT Translator Tools</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-streamline-your-soundtrack-exchanging-playlists-seamlessly/"><u>2024 Approved Streamline Your Soundtrack Exchanging Playlists Seamlessly</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-streamline-for-success-understanding-youtube-membership/"><u>2024 Streamline for Success Understanding YouTube Membership</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-activities-post-uploading-videos/"><u>Dissecting YouTube's Activities Post-Uploading Videos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/first-steps-in-virtual-conferencing-with-zoom/"><u>First Steps in Virtual Conferencing with Zoom</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/gratuit-les-top-15-utilitaires-video-4k-pour-pcmac-convertir-facilement-entre-4k-et-full-hd/"><u>Gratuit : Les Top 15 Utilitaires Vidéo 4K Pour PC/Mac - Convertir Facilement Entre 4K Et Full HD</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-how-to-embed-a-youtube-video-in-powerpoint-4-methods/"><u>In 2024, How to Embed a YouTube Video in PowerPoint [4 Methods]</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/the-top-stop-motion-animation-solutions-for-mac-and-pc/"><u>The Top Stop Motion Animation Solutions for Mac and PC</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Poco X5 Pro | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlocking-secrets-efficient-qr-codes-on-windows-systems/"><u>Unlocking Secrets: Efficient QR Codes on Windows Systems</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unveiling-the-mysteries-accessing-secretive-youtube-content/"><u>Unveiling the Mysteries Accessing Secretive YouTube Content</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-rapid-pause-video-snapshot-manual/"><u>[New] In 2024, Rapid Pause Video Snapshot Manual</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-how-to-become-a-youtube-partner-you-need-10000-views-now/"><u>[Updated] 2024 Approved How to Become a YouTube Partner - You Need 10,000 Views Now</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/click-worthy-chronicles-shaping-successful-meme-videos-for-instafb/"><u>Click-Worthy Chronicles Shaping Successful Meme Videos for Insta/FB</u></a></li>
+<li><a href="https://extra-information.techidaily.com/craft-individual-humor-masterpieces-online/"><u>Craft Individual Humor Masterpieces Online</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/decoding-sudden-pc-crashes-a-comprehensive-guide/"><u>Decoding Sudden PC Crashes: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/exploring-new-horizons-video-resources-for-dynamic-learning-spaces/"><u>Exploring New Horizons Video Resources for Dynamic Learning Spaces</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-11-useful-youtube-seo-tips-to-help-rank-your-video-high/"><u>In 2024, 11 Useful YouTube SEO Tips to Help Rank Your Video High</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-ace-the-art-of-youtube-reactions-3-innovative-approaches-unveiled/"><u>In 2024, Ace the Art of YouTube Reactions - 3 Innovative Approaches Unveiled</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-best-5-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod/"><u>In 2024, Best 5 Camera Apps to Shoot and Record Videos on iPhone and Andriod</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-boldly-step-up-claim-your-set-of-50-exquisite-cost-free-youtube-promo-materials/"><u>In 2024, Boldly Step Up Claim Your Set of 50 Exquisite, Cost-Free YouTube Promo Materials</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-comedic-content-concepts-7-hilarious-vlog-ideas-for-laughter-lovers/"><u>In 2024, Comedic Content Concepts 7 Hilarious Vlog Ideas for Laughter Lovers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-discover-the-7-most-popular-video-apps-for-iphones-and-android-live-streaming/"><u>In 2024, Discover The 7 Most Popular Video Apps for iPhones & Android Live Streaming</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-earning-expertise-short-video-revenue-boosting/"><u>In 2024, Earning Expertise Short Video Revenue Boosting</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-tutorial-for-posting-pics-on-ig/"><u>In 2024, The Ultimate Tutorial for Posting Pics on IG</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/initiate-your-video-journey-establishing-a-youtube-account/"><u>Initiate Your Video Journey Establishing a YouTube Account</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/inside-look-at-vimeo-and-youtubes-market-strategies/"><u>Inside Look at Vimeo and YouTube’s Market Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/starlinks-satellite-edge-weighing-in-on-a-technology-shift/"><u>Starlink's Satellite Edge: Weighing In on a Technology Shift</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/m4aflac-movavi/"><u>オンラインでも簡単! M4AからFLACに自由に変換可能 - Movavi</u></a></li>
 </ul></div>
 

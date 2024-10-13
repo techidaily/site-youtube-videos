@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Confidence  Tips for Trending on YouTube\""
-date: 2024-09-29T19:51:15.708Z
-updated: 2024-10-06T19:01:36.997Z
+date: 2024-10-06T18:42:02.617Z
+updated: 2024-10-12T20:54:43.561Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -57,13 +64,6 @@ There is a saying that a great ending to a story is that it is [surprising, yet 
 The ending needs to be justified even if there is a twist. Everything before that had worked to build up the tension and when it concludes it needs to be logical. However, the ending cannot be something that the audience can guess. Remember those mystery movies where you know who the murderer is after the first few scenes? Yeah… those aren’t satisfying. A good story ends with a surprise, and with everything prior leading up to it.
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
 
@@ -85,13 +85,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -102,6 +95,13 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -111,6 +111,13 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -137,20 +144,13 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -167,19 +167,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-image-alchemy-converting-ordinary-into-extraordinary/"><u>[New] Image Alchemy Converting Ordinary Into Extraordinary</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-the-definitive-io-screen-recorder-guidebook-for-2024/"><u>[New] The Definitive IO Screen Recorder Guidebook for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-diy-youtube-thumbnails-made-simple/"><u>2024 Approved DIY YouTube Thumbnails Made Simple</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-eco-effect-filmmaking-youtubes-guide-to-green-magic/"><u>2024 Approved Eco-Effect Filmmaking YouTube's Guide to Green Magic</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-the-art-of-youtube-music-reactions-essential-tips/"><u>2024 Approved Mastering the Art of YouTube Music Reactions - Essential Tips</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-comprehensive-walkthrough-for-imovie-and-youtube-collaboration-for-2024/"><u>A Comprehensive Walkthrough for iMovie and YouTube Collaboration for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-views-not-video-length-expert-guide-to-yt-desc-templates/"><u>Elevate Views, Not Video Length Expert Guide to YT Desc Templates</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-your-online-presence-secrets-of-youtube-live-with-wirecast/"><u>Elevate Your Online Presence Secrets of Youtube Live with WireCast</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/graphicgenius-suite/"><u>GraphicGenius Suite</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-lava-agni-2-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Lava Agni 2 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-seamless-integration-of-moviemaker-6-into-your-device/"><u>In 2024, Seamless Integration of Moviemaker 6 Into Your Device</u></a></li>
-<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-tecno-pop-7-pro-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Tecno Pop 7 Pro</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unraveling-the-itunes-radio-download-process-for-2024/"><u>Unraveling the iTunes Radio Download Process for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/why-choose-an-ev-unpacking-the-improved-performance-over-gasoline-cars/"><u>Why Choose an EV? Unpacking the Improved Performance over Gasoline Cars</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-charting-out-your-audience-youtubes-blueprint-for-2024/"><u>[New] Charting Out Your Audience YouTube's Blueprint for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-single-shots-to-unified-visions-a-mosaic-story/"><u>[New] From Single Shots to Unified Visions A Mosaic Story</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-diy-tips-for-affordable-youtube-introend-videos/"><u>[Updated] DIY Tips for Affordable YouTube Intro/End Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-a-stellar-visual-identity-the-ultimate-guide-to-yt-design/"><u>2024 Approved Crafting a Stellar Visual Identity The Ultimate Guide to YT Design</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpt-usage-balancing-progress-and-security/"><u>ChatGPT Usage: Balancing Progress and Security</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/hide-and-view-fb-snapshot-tool-for-2024/"><u>Hide-and-View FB Snapshot Tool for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-stabilize-your-camera-without-buying-a-tripod/"><u>How to Stabilize Your Camera without Buying a Tripod?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-detailed-instructions-for-embedding-and-displaying-youtube-playlists-online/"><u>In 2024, Detailed Instructions for Embedding and Displaying YouTube Playlists Online</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/transformacion-libre-de-wav-a-mp4-en-linea-un-proceso-rapidisimo-y-sencillo/"><u>Transformación Libre De WAV a MP4 En Línea - Un Proceso Rapidísimo Y Sencillo</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/winxvideo-ai-transformez-votre-cinema-avec-la-superposition-declaircissement-de-niveaux-et-de-retouche-automatique/"><u>Winxvideo AI – Transformez Votre Cinéma Avec La Superposition D’Éclaircissement, De Niveaux Et De Rétouche Automatique</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtubes-best-music-video-reactions-2023-list/"><u>YouTube's Best Music Video Reactions, 2023 List</u></a></li>
 </ul></div>
 

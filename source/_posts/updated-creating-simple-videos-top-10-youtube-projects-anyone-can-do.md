@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2024-10-01T05:06:05.462Z
-updated: 2024-10-07T03:01:16.547Z
+date: 2024-10-05T16:27:50.568Z
+updated: 2024-10-12T19:11:56.829Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,19 @@ Anything that happens during your day can become a topic for your YouTube vlog. 
 
 Strive to make visually dynamic videos, because just sitting or standing and talking in front of a camera for a few minutes isn't going to create much on-screen action.
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Express An Opinion
 
 Social media culture has enabled us to receive news instantly and react to it in any way we want. If you didn't like the latest update of your favorite video game, or if you’re excited about a line of makeup that’s coming out soon, make a video about it and share your opinion with the community that follows you on YouTube.
@@ -67,25 +80,11 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. What’s on Your Phone?
 
@@ -93,24 +92,31 @@ There were over two billion smartphone users worldwide in 2017, and this number 
 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. Make a Slideshow
 
 There's no need to constantly produce new videos because you can just take some royalty-free music and create a slideshow from your old or new photos. The slideshow format will certainly allow you to try something different on your YouTube channel, while the photos you use in the slideshow can create a clear picture of who you are and what you do for your viewers.
 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 8\. Make a Tutorial
 
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. 10 Things About You
 
@@ -119,10 +125,10 @@ Being open is important, so why not share 10 things about yourself you think you
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 10\. Video Rant
@@ -156,17 +162,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-plain-screeners-toolkit-for-win10-users/"><u>[New] 2024 Approved Plain Screener's Toolkit for Win10 Users</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-crafting-visual-wonders-home-made-effects-demystified/"><u>[Updated] Crafting Visual Wonders Home-Made Effects Demystified</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Tecno Spark 20 | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/6-superior-apps-for-effortless-mac-video-grabbing-for-2024/"><u>6 Superior Apps for Effortless Mac Video Grabbing for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-newest-epson-wf-3720-driver-version-from-our-trustworthy-source/"><u>Get the Newest Epson WF-3720 Driver Version From Our Trustworthy Source</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-insert-sign-in-excel-2021-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to insert sign in Excel 2021 files</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-best-14-youtube-gaming-video-ideas-to-boost-gaming-channels/"><u>In 2024, Best 14 YouTube Gaming Video Ideas to Boost Gaming Channels</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-boost-your-video-impact-expert-tips-on-using-wm-maker/"><u>In 2024, Boost Your Video Impact Expert Tips on Using WM Maker</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/lg-k51-smartphone-analysis-stunning-design-marred-by-sluggish-cpu/"><u>LG K51 Smartphone Analysis: Stunning Design Marred by Sluggish CPU</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/simplified-guide-to-free-youtube-card-designing/"><u>Simplified Guide to Free YouTube Card Designing</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-tutorial-installing-steelseries-arctis-5-audio-software-and-drivers/"><u>Step-by-Step Tutorial: Installing SteelSeries Arctis 5 Audio Software and Drivers</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-no-cost-vob-video-editing-top-5-tools-you-need/"><u>Updated In 2024, No-Cost VOB Video Editing Top 5 Tools You Need</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-crafting-silent-scenes-audio-fade-techniques-in-adobe-premiere-pro/"><u>[Updated] Crafting Silent Scenes Audio Fade Techniques in Adobe Premiere Pro</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-a-symphony-of-shades-applying-complementary-colors/"><u>2024 Approved A Symphony of Shades Applying Complementary Colors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-charting-success-navigating-youtube-statistics-with-social-blade/"><u>2024 Approved Charting Success Navigating YouTube Statistics with Social Blade</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-directly-posting-your-videos-from-idevice-to-youtube/"><u>2024 Approved Directly Posting Your Videos From iDevice to YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-increase-your-igtv-impact-5-strategies-to-attract-more-viewers/"><u>2024 Approved Increase Your IGTV Impact 5 Strategies to Attract More Viewers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/drive-traffic-and-growth-with-youtube-analytic-insights-for-2024/"><u>Drive Traffic and Growth with YouTube Analytic Insights for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/edit-and-elevate-instagrams-ultimate-toolkit-for-2024/"><u>Edit & Elevate Instagram's Ultimate Toolkit for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effective-youtube-banners-pros-and-cons-to-avoid/"><u>Effective YouTube Banners Pros and Cons to Avoid</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-content-top-rated-cameras-for-youtubers/"><u>Elevate Your Content Top-Rated Cameras for YouTubers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-yt-marketing-essential-tips-for-higher-rankings-for-2024/"><u>Elevate Your YT Marketing Essential Tips for Higher Rankings for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-vivo-v29e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/passfab-apple-iphone-15-plus-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>PassFab Apple iPhone 15 Plus Backup Unlocker Top 4 Alternatives</u></a></li>
 </ul></div>
 

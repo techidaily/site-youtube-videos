@@ -1,7 +1,7 @@
 ---
 title: "The Vlogger's Guide to Optimal Lens Performance"
-date: 2024-10-04T22:50:23.969Z
-updated: 2024-10-07T04:17:54.827Z
+date: 2024-10-10T23:48:37.722Z
+updated: 2024-10-12T17:44:17.266Z
 tags:
   - ai video
   - ai youtube
@@ -78,13 +78,6 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -108,33 +101,46 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -150,6 +156,13 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -163,13 +176,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -186,22 +192,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-captivating-yt-cover-art-for-maximum-traffic/"><u>[New] Captivating YT Cover Art for Maximum Traffic</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-depth-look-screen-capture-tools-for-mac/"><u>[New] In-Depth Look Screen Capture Tools for Mac</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-social-scrutiny-who-felt-the-glance-on-your-insta-image-for-2024/"><u>[New] Social Scrutiny Who Felt the Glance on Your Insta Image for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-choice-10-budget-friendly-caption-tools/"><u>[Updated] Essential Choice 10 Budget-Friendly Caption Tools</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-full-breakdown-razers-hd-webcam-experience-for-2024/"><u>[Updated] Full Breakdown Razer's HD Webcam Experience for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-3d-software-for-dynamic-youtube-intros/"><u>2024 Approved Best 3D Software for Dynamic YouTube Intros</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-creating-compelling-content-with-powerful-youtube-titles/"><u>2024 Approved Creating Compelling Content with Powerful YouTube Titles</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-end-screen-elegance-free-guides-to-upgrade-your-videos/"><u>2024 Approved End-Screen Elegance - Free Guides to Upgrade Your Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/achieving-comprehensive-participant-visualization-on-meet/"><u>Achieving Comprehensive Participant Visualization on Meet</u></a></li>
-<li><a href="https://driver-install.techidaily.com/essential-tips-for-drivers-upgrade-on-windows-881/"><u>Essential Tips for Drivers Upgrade on Windows 8/8.1</u></a></li>
-<li><a href="https://windows11.techidaily.com/guide-to-adjust-inaccurate-task-manager-cpu-indicators/"><u>Guide to Adjust Inaccurate Task Manager CPU Indicators</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-youtube-video-trailers-with-filmoras-guide/"><u>In 2024, Crafting YouTube Video Trailers with Filmora's Guide</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-rivian-r1t-unveiled-transforming-the-electric-pickup-market-with-style-and-functionality/"><u>The Rivian R1T Unveiled: Transforming the Electric Pickup Market with Style and Functionality</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/the-soundscape-mac-studios-explained/"><u>The Soundscape Mac Studios Explained</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/understanding-the-inner-workings-of-youtube-post-upload/"><u>Understanding the Inner Workings of YouTube Post-Upload</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unified-youtube-behavior-manual/"><u>Unified YouTube Behavior Manual</u></a></li>
-<li><a href="https://win11.techidaily.com/unraveling-e84-errors-in-windows-based-steam-clients/"><u>Unraveling E84 Errors in Windows-Based Steam Clients</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-craftsmanship-in-marvellous-marvel-creation/"><u>[Updated] Craftsmanship in Marvellous Marvel Creation</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-vrecorder-how-to-download-and-install/"><u>[Updated] VRecorder - How to Download and Install</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-perfect-youtube-music-playlists-via-web-and-mobile-platforms/"><u>2024 Approved Crafting Perfect YouTube Music Playlists via Web & Mobile Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-insights-for-asmr-aficionados/"><u>2024 Approved Essential Insights for ASMR Aficionados</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-snowboard-cross-winter-olympics-2022-highlights/"><u>2024 Approved Snowboard Cross Winter Olympics 2022 Highlights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-top-talents-merging-photography-and-sound-in-videos/"><u>2024 Approved Top Talents Merging Photography & Sound in Videos</u></a></li>
+<li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/apex-top-youtube-videos-watch-count-heaven-for-2024/"><u>Apex Top YouTube Videos Watch Count Heaven for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/authenticating-your-youtube-username-and-email/"><u>Authenticating Your YouTube Username & Email</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/best-10-emoji-makers-to-create-your-own-emojis-pconlineandroidiphone-for-2024/"><u>Best 10 Emoji Makers to Create Your Own Emojis PC/Online/Android/iPhone for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Vivo Y77t | Dr.fone</u></a></li>
 </ul></div>
 
