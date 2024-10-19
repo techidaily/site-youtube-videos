@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] End-Screen Design Made Easy with Our Templates & Tutorials\""
-date: 2024-10-08T18:24:55.139Z
-updated: 2024-10-12T19:28:01.436Z
+date: 2024-10-14T23:20:34.480Z
+updated: 2024-10-19T00:08:46.566Z
 tags:
   - ai video
   - ai youtube
@@ -91,22 +91,15 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
@@ -116,15 +109,22 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
@@ -134,16 +134,22 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -166,18 +172,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-repairing-a-stand-alone-headphone/"><u>[New] Repairing a Stand-Alone Headphone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-the-roadmap-to-accessing-costless-frame-videos-for-2024/"><u>[New] The Roadmap to Accessing Costless Frame Videos for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-top-6-efficient-urban-minecraft-residences/"><u>[Updated] 2024 Approved Top 6 Efficient Urban Minecraft Residences</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-audiovisual-alchemy-formulating-your-youtube-playlist/"><u>[Updated] Audiovisual Alchemy Formulating Your YouTube Playlist</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-file-streamlining-top-strategies-for-smooth-pc-integration/"><u>[Updated] In 2024, File Streamlining Top Strategies for Smooth PC Integration</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-proven-ways-to-create-engaging-intros-on-iphones-and-android/"><u>[Updated] Proven Ways to Create Engaging Intros on iPhones & Android</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-vlogventures-in-cosmetics-how-to-create-your-fashion-forward-channel/"><u>2024 Approved Vlogventures in Cosmetics How to Create Your Fashion-Forward Channel</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cutting-edge-computers-optimal-machines-for-media-creation/"><u>Cutting-Edge Computers Optimal Machines for Media Creation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dive-into-filmoras-certified-creative-program-for-2024/"><u>Dive Into Filmora’s Certified Creative Program for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-steps-for-chromakey-magic/"><u>In 2024, Essential Steps for Chromakey Magic</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/les-meilleures-solutions-pour-resoudre-les-problemes-de-reinitialisation-sur-windows-10/"><u>Les Meilleures Solutions Pour Résoudre Les Problèmes De Réinitialisation Sur Windows 10</u></a></li>
-<li><a href="https://fox-http.techidaily.com/mastering-image-enhancement-for-breathtaking-results/"><u>Mastering Image Enhancement for Breathtaking Results</u></a></li>
-<li><a href="https://win-hot.techidaily.com/problembehandlung-fur-leere-sd-karten-und-nicht-unterstutzte-dateisysteme/"><u>Problembehandlung Für Leere SD-Karten Und Nicht Unterstützte Dateisysteme</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-channel-branding-mastery-securing-a-loyal-youtube-subscriber-base/"><u>[New] Channel Branding Mastery Securing a Loyal YouTube Subscriber Base</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-success-navigating-a-3-step-strategy-for-tracking-youtube-income/"><u>[New] Charting Success Navigating a 3-Step Strategy for Tracking YouTube Income</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/haring-stories-every-day-best-practices-in-personal-videography/"><u>[New] Sharing Stories Every Day Best Practices in Personal Videography</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-best-free-youtube-intro-makers-to-create-awesome-intros-for-2024/"><u>[Updated] Best Free YouTube Intro Makers to Create Awesome Intros for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-crafting-an-inviting-subscribe-icon-for-youtube-videographers/"><u>[Updated] Crafting an Inviting Subscribe Icon for YouTube Videographers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enhancing-video-visibility-on-youtube-with-imaginative-thumbnails/"><u>[Updated] Enhancing Video Visibility on YouTube with Imaginative Thumbnails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unlock-creativity-idea-driven-youtube-channel-titles/"><u>2024 Approved Unlock Creativity Idea-Driven YouTube Channel Titles</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-guide-to-gathering-gold-from-guided-goods-gazes-online/"><u>A Guide to Gathering Gold From Guided Goods' Gazes Online</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Vivo X100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/guide-facile-comment-transformer-votre-dvd-en-fichiers-video-digitale-sur-pc-ou-mac-avec-windows-10/"><u>Guide Facile : Comment Transformer Votre DVD en Fichiers Video Digitale Sur PC Ou Mac Avec Windows 10</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>In 2024, Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-decoding-the-art-of-engaging-in-youtube-short-forms/"><u>In 2024, Decoding the Art of Engaging in YouTube Short Forms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-illumination-strategies-for-filming/"><u>In 2024, Essential Illumination Strategies for Filming</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-stolen-iphone-x-in-different-conditionsin-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Stolen iPhone X In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-mastering-instagram-video-downloads-pcmac-guide/"><u>In 2024, Mastering Instagram Video Downloads PC/Mac Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/inverted-intrigue-mastering-the-art-of-turning-photos-for-instagram-glory/"><u>Inverted Intrigue Mastering the Art of Turning Photos for Instagram Glory</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/jabra-audio-issue-resolved-comprehensive-guide-for-the-latest-models/"><u>Jabra Audio Issue Resolved? Comprehensive Guide for the Latest Models</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/seal-of-credibility-writing-journalisms-finale/"><u>Seal of Credibility Writing Journalism's Finale</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/strategies-for-efficiently-checking-your-internet-usage-statistics/"><u>Strategies for Efficiently Checking Your Internet Usage Statistics</u></a></li>
 </ul></div>
 

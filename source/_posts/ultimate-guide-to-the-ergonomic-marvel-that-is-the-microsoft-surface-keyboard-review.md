@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to the Ergonomic Marvel That Is The Microsoft Surface Keyboard Review
-date: 2024-10-07T19:49:21.084Z
-updated: 2024-10-13T00:41:31.266Z
+date: 2024-10-17T18:04:43.301Z
+updated: 2024-10-18T19:19:15.952Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Guide to the Ergonomic Marvel That Is The Microsoft Surface Keyboard Review
@@ -45,6 +45,13 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
 [View On Walmart $138](https://www.walmart.com/ip/Microsoft-Sculpt-Ergonomic-Desktop-Black-Wireless-USB-Keyboard-Keypad-and-Mouse/31390902?slfpid=3) [View On Best Buy $66](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F1818024.p) [View On Newegg.com $169](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.newegg.com%2Fmicrosoft-sculpt-ergonomic-desktop-l5v-00001-usb-rf-wireless%2Fp%2FN82E16823109349%3Fitem%3D9SIA24G28N0197%26slfpid%3D3)
@@ -65,24 +72,18 @@ Lifewire / Emily Isaacs
 
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Made for comfort**
 
  The Sculpt is an ergonomic keyboard with a split design akin to that of a manta ray. The two halves of the keyboard sweep outwards and downwards creating an empty, raised space in the center of its swoop design. Its keys vary in size, with those nearest to the split being slightly wider than those on the outer edges of the keyboard. It’s largely made with plastic and has a bit of a clacky sound as you type. The Sculpt employs a standard layout with a fabric wrist pad at the front for extra comfort. This intuitive, split design combined with the wrist pad help your wrists, hands, and shoulders sit at a neutral, natural angle in order to[alleviate repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) that frequent typists are prone to over time.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -91,13 +92,6 @@ Lifewire / Emily Isaacs
  Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key.
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Batteries required**
 
@@ -109,6 +103,13 @@ Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -116,19 +117,6 @@ Lifewire / Emily Isaacs
  Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design make this keyboard a surefire winner.
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Great for the features**
 
@@ -151,10 +139,10 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -199,22 +187,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/updated-efficient-viewing-the-comprehensive-guide-for-creating-youtube-watch-later-lists/"><u>[Updated] Efficient Viewing The Comprehensive Guide for Creating YouTube Watch Later Lists</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-elevate-engagement-posting-youtube-video-on-fb/"><u>[Updated] Elevate Engagement Posting YouTube Video on FB</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-diving-into-the-world-of-youtube-search-engine-rankings/"><u>2024 Approved Diving Into the World of YouTube Search Engine Rankings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-driving-results-with-effective-youtube-advertising/"><u>2024 Approved Driving Results with Effective YouTube Advertising</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-galaxy-s23-ultra-support-mov-videos-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Galaxy S23 Ultra support MOV videos ?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/hand-held-balance-for-sharp-images/"><u>Hand-Held Balance for Sharp Images</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-z-fold-5-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Samsung Galaxy Z Fold 5 PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-the-quintessential-thumbnails-for-live-video-success/"><u>In 2024, Crafting the Quintessential Thumbnails for Live Video Success</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-depth-guide-to-simple-high-dynamic-range/"><u>In-Depth Guide to Simple High Dynamic Range</u></a></li>
-<li><a href="https://win-blog.techidaily.com/maplestory-launch-trouble-heres-your-complete-fix-guide/"><u>MapleStory Launch Trouble? Here's Your Complete Fix Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-itel-p40-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Itel P40</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/quick-guide-mastering-the-art-of-recording-fortnite-sessions-on-your-nintendo-switch/"><u>Quick Guide: Mastering the Art of Recording Fortnite Sessions on Your Nintendo Switch</u></a></li>
-<li><a href="https://win-net.techidaily.com/ruby/"><u>Ruby</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/skyrocketing-viewership-youtubes-quintessential-5-marketing-strategies/"><u>Skyrocketing Viewership - YouTube's Quintessential 5 Marketing Strategies</u></a></li>
-<li><a href="https://driver-install.techidaily.com/swiftly-and-simply-update-hd-4800-drivers/"><u>Swiftly & Simply Update HD 4800 Drivers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unleash-potential-with-these-essential-editing-tips-for-beginners/"><u>Unleash Potential with These Essential Editing Tips for Beginners</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-sub4sub-does-it-really-work/"><u>YouTube Sub4Sub Does It Really Work?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-how-to-start-a-facebook-giveaway-post-for-2024/"><u>[New] How to Start a Facebook Giveaway Post for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-secrets-to-dominating-your-social-networks-featured-pages-for-2024/"><u>[New] Secrets to Dominating Your Social Network's Featured Pages for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instas-power-players-a-guide-to-your-niches-movers-and-shakers/"><u>[Updated] 2024 Approved Insta’s Power Players A Guide to Your Niche's Movers & Shakers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-direct-from-spotify-to-youtube-best-apps-for-streaming-conversions/"><u>[Updated] Direct From Spotify to YouTube Best Apps for Streaming Conversions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-videography-size-guide-ready/"><u>[Updated] Instagram Videography Size Guide - Ready</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-comprehensive-but-concise-guide-to-keyers-techniques/"><u>2024 Approved Comprehensive but Concise Guide to Keyers' Techniques</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-uniting-music-and-chat-spotify-on-discord-explained/"><u>2024 Approved Uniting Music & Chat Spotify on Discord Explained</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/audience-accessibility-enhancement-adding-subtitles-and-closed-captions-on-youtube-for-2024/"><u>Audience Accessibility Enhancement Adding Subtitles and Closed Captions on YouTube for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/cutting-edge-techniques-in-image-fusion/"><u>Cutting-Edge Techniques in Image Fusion</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/diy-guide-screen-capture-and-sound-from-youtube/"><u>DIY Guide Screen Capture & Sound From YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-brand-with-these-biz-channel-standouts-for-2024/"><u>Elevate Your Brand with These Biz Channel Standouts for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-5-video-editing-software-excluding-youtube-for-2024/"><u>Essential 5 Video Editing Software Excluding Youtube for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-the-perfect-aesthetic-with-controlled-lighting/"><u>In 2024, Crafting the Perfect Aesthetic with Controlled Lighting</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-youtube-profitability-anywhere-anytime/"><u>In 2024, Elevate Your Youtube Profitability Anywhere, Anytime</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevating-your-youtube-presence-with-strategic-post-publish-video-updates/"><u>In 2024, Elevating Your YouTube Presence with Strategic Post-Publish Video Updates</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-apple-iphone-12-mini-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Leave a Life360 Group On Apple iPhone 12 mini Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-motorola-defy-2-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Motorola Defy 2 Location | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/turning-off-two-factor-authentication-from-iphone-13-pro-5-tips-you-must-know-by-drfone-ios/"><u>Turning Off Two Factor Authentication From iPhone 13 Pro? 5 Tips You Must Know</u></a></li>
 </ul></div>
 

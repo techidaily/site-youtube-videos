@@ -1,7 +1,7 @@
 ---
 title: "[New] 20 Essentials Every New Creator Should Own"
-date: 2024-10-09T22:07:02.070Z
-updated: 2024-10-12T20:23:26.072Z
+date: 2024-10-12T16:01:20.674Z
+updated: 2024-10-18T21:45:59.751Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -61,10 +68,10 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lights for YouTube
@@ -79,13 +86,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -96,9 +96,23 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -112,21 +126,7 @@ Another common downside of smartphone cameras is that most of them use digital z
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -143,20 +143,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-10-essential-tips-for-achieving-wealth-through-youtube-video-views/"><u>[New] 2024 Approved 10 Essential Tips for Achieving Wealth Through YouTube Video Views</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-avoiding-blur-techniques-for-hand-held-stability/"><u>[New] Avoiding Blur Techniques for Hand-Held Stability</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-innovative-audio-dramatic-writing/"><u>[Updated] In 2024, Innovative Audio Dramatic Writing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-engaging-audiences-on-multiple-digital-landscapes/"><u>2024 Approved Engaging Audiences on Multiple Digital Landscapes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-steps-to-producing-a-youtube-hit-music-reaction-video-guide/"><u>2024 Approved Essential Steps to Producing a YouTube Hit Music Reaction Video Guide</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/addressing-the-problem-a-comprehensive-approach-when-your-iphones-email-doesnt-work/"><u>Addressing the Problem: A Comprehensive Approach When Your iPhone's Email Doesn't Work</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/cronologia-file-versus-default-windows-backup-tools-optimizing-your-data-protection-strategy-in-windows-1011/"><u>Cronologia File Versus Default Windows Backup Tools: Optimizing Your Data Protection Strategy in Windows 10/11</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/educators-guide-to-thriving-youtube-channels-10-must-know-secrets/"><u>Educators' Guide to Thriving YouTube Channels – 10 Must-Know Secrets</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/hits-and-tags-mastering-the-language-of-virality-in-youtube-shorts/"><u>Hits & Tags Mastering the Language of Virality in YouTube Shorts</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Realme 10T 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-configure-youtubes-audience-options-with-ease/"><u>In 2024, Configure YouTube's Audience Options with Ease</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/maximizing-motherboard-compatibility-a-review-of-the-gskill-trident-z5-rgb-ddr5-640cu-c32-dual-channel-memory-solution/"><u>Maximizing Motherboard Compatibility: A Review of the G.SKILL Trident Z5 RGB DDR5-640cu C32 Dual-Channel Memory Solution</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/rapid-share-tactics-for-youtube-lists/"><u>Rapid Share Tactics for YouTube Lists</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-repairing-astro-a10-microphone-problems/"><u>Troubleshooting and Repairing Astro A10 Microphone Problems</u></a></li>
-<li><a href="https://games-able.techidaily.com/ultimate-gamer-mats-guide/"><u>Ultimate Gamer Mats Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-discover-8-trusted-platforms-for-online-video-advancement/"><u>[New] Discover 8 Trusted Platforms for Online Video Advancement</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-club-anthems-expertly-curated-dj-vids-downloads/"><u>[Updated] Club Anthems Expertly Curated DJ Vids Downloads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-an-easy-to-follow-guide-to-applying-cc-license-types/"><u>2024 Approved An Easy-to-Follow Guide to Applying CC License Types</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-choosing-the-optimal-power-source-for-advanced-drones/"><u>2024 Approved Choosing the Optimal Power Source for Advanced Drones</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effective-solutions-for-realtek-rtl8811au-driver-troubleshooting-steps/"><u>Effective Solutions for Realtek RTL8811AU Driver Troubleshooting Steps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ensuring-your-shorts-videos-thumbnail-shows-up/"><u>Ensuring Your Shorts Video's Thumbnail Shows Up</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-tecno-spark-20-proplus-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Tecno Spark 20 Pro+ in Minutes | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-iphone-x-passcode-easily-video-inside-by-drfone-ios/"><u>In 2024, How to Bypass iPhone X Passcode Easily Video Inside</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-ultimate-top-10-tiktok-editor-tools-for-windows-users/"><u>In 2024, Ultimate Top 10 TikTok Editor Tools for Windows Users</u></a></li>
 </ul></div>
 

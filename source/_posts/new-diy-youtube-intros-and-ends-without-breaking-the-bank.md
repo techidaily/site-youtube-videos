@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-10-08T17:22:17.459Z
-updated: 2024-10-12T18:30:01.600Z
+date: 2024-10-16T19:57:12.467Z
+updated: 2024-10-18T16:02:56.043Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,16 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +126,16 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,22 +153,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-find-youtube-collaboration-partners/"><u>[New] 2024 Approved How to Find YouTube Collaboration Partners?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-deciphering-revenue-sharing-in-youtube-shorts/"><u>[New] In 2024, Deciphering Revenue Sharing in YouTube Shorts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-11-year-old-video-sensation-unprecedented-wealth-accumulation/"><u>[Updated] 11-Year-Old Video Sensation Unprecedented Wealth Accumulation</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-ultimate-strategies-for-webinar-capture-with-minimal-effort-windows-mac/"><u>[Updated] 2024 Approved Ultimate Strategies for Webinar Capture with Minimal Effort (Windows, Mac)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-empowered-by-numbers-decoding-youtube-analytics/"><u>[Updated] Empowered by Numbers Decoding YouTube Analytics</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-mastering-media-your-step-by-step-video-tweet/"><u>[Updated] Mastering Media Your Step-by-Step Video Tweet</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-quick-red-eye-photo-fixes-on-your-iphone-no-money-needed/"><u>[Updated] Quick Red-Eye Photo Fixes on Your iPhone, No Money Needed</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-deep-dive-into-the-world-of-youtubes-minis/"><u>2024 Approved A Deep Dive Into the World of Youtube's Minis</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevating-your-videos-visual-impact-youtubthumbnail-design-on-macos/"><u>2024 Approved Elevating Your Video's Visual Impact YoutubThumbnail Design on macOS</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/can-you-change-your-voice-magically-explore-alternative-tools/"><u>Can You Change Your Voice Magically? Explore Alternative Tools</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/effortless-driver-updates-and-downloads-for-wacom-cintiq-users-how-to/"><u>Effortless Driver Updates and Downloads for Wacom Cintiq Users – How To</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/how-to-resolve-issues-with-non-responsive-windows-media-player-on-your-pc/"><u>How to Resolve Issues with Non-Responsive Windows Media Player on Your PC</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevating-your-videography-youtube-enhancements-explained/"><u>In 2024, Elevating Your Videography YouTube Enhancements Explained</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/leveraging-youtubes-ecosystem-for-financial-gain/"><u>Leveraging YouTube's Ecosystem for Financial Gain</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/professional-video-editors-enhancing-your-visual-storytelling-with-advanced-editing-techniques/"><u>Professional Video Editors: Enhancing Your Visual Storytelling with Advanced Editing Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/streamline-free-webinar-organizing-with-youtube-help/"><u>Streamline Free Webinar Organizing with YouTube Help</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-youtube-shorts-secrets/"><u>Unlocking YouTube Shorts Secrets</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-your-content-with-insightful-channel-descriptions/"><u>[New] Elevate Your Content with Insightful Channel Descriptions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-dancefloor-dynamics-top-rated-dj-video-selections/"><u>[Updated] Dancefloor Dynamics Top-Rated DJ Video Selections</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-decoding-the-mysteries-of-outdated-facebook-sharing-pcmobile-style/"><u>2024 Approved Decoding the Mysteries of Outdated Facebook Sharing, PC/Mobile Style</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-richest-youtubers/"><u>2024 Approved Richest YouTubers</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-tecno-camon-20-premier-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Tecno Camon 20 Premier 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-your-way-to-greatness-a-complete-guide-to-valorant-video-thumbnails-for-2024/"><u>Building Your Way to Greatness A Complete Guide to Valorant Video Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/comparative-review-smartphone-usage-of-the-leading-video-apps-for-2024/"><u>Comparative Review Smartphone Usage of the Leading Video Apps for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effective-streaming-across-platforms-including-facebook-and-twitch/"><u>Effective Streaming Across Platforms, Including Facebook and Twitch</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/filmoras-quick-start-approach-for-youtube-trailers/"><u>Filmora's Quick-Start Approach for YouTube Trailers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-enlightenment-streams-foremost-ed-resources-online/"><u>In 2024, Enlightenment Streams Foremost Ed Resources Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-knowledge-for-youtubes-minute-melodies/"><u>In 2024, Essential Knowledge for YouTube's Minute Melodies</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-motorola-g54-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Motorola G54 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on HTC U23? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-score-the-best-9-websites-providing-exquisite-3d-graffiti-fonts/"><u>In 2024, Score the Best 9 Websites Providing Exquisite 3D Graffiti Fonts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-means-to-elevate-your-youtube-popularity-by-one-million/"><u>Legal Means to Elevate Your YouTube Popularity by One Million</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/securing-your-ideal-career-the-role-of-chatgpt-in-boosting-job-applications/"><u>Securing Your Ideal Career: The Role of ChatGPT in Boosting Job Applications</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-samsung-galaxy-a23-5g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Samsung Galaxy A23 5G Screen | Dr.fone</u></a></li>
 </ul></div>
 

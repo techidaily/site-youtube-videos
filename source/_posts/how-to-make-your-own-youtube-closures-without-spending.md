@@ -1,7 +1,7 @@
 ---
 title: "How to Make Your Own YouTube Closures Without Spending"
-date: 2024-08-03T03:49:32.772Z
-updated: 2024-08-04T03:49:32.772Z
+date: 2024-10-17T17:06:25.324Z
+updated: 2024-10-18T21:16:36.255Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/e4dab8212b61415ab670db2724890039dc2188864
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -43,9 +40,6 @@ thumbnail: https://thmb.techidaily.com/e4dab8212b61415ab670db2724890039dc2188864
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,9 +66,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -87,8 +78,12 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,11 +117,14 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -134,11 +132,29 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-best-practices-for-4k-screen-recording/"><u>[New] 2024 Approved Best Practices for 4K Screen Recording</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-best-microphone-for-youtubers/"><u>[New] Best Microphone for YouTubers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-cutting-edge-advanced-techniques-in-youtube-video-editing/"><u>[New] Cutting Edge Advanced Techniques in YouTube Video Editing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-embedding-youtube-videos-tips-for-a-smooth-ppt-transition/"><u>[New] Embedding YouTube Videos Tips for a Smooth PPT Transition</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-critically-acclaimed-grabber-tech/"><u>[Updated] 2024 Approved Critically Acclaimed Grabber Tech</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-transforming-your-videos-with-captivating-youtube-thumbnails-using-a-mac/"><u>[Updated] 2024 Approved Transforming Your Videos with Captivating Youtube Thumbnails, Using a Mac</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevate-your-traffic-ethically-youtubes-best-practices/"><u>[Updated] Elevate Your Traffic Ethically YouTube's Best Practices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-experts-choice-best-6-video-grabber-tools-for-mac/"><u>[Updated] Expert's Choice Best 6 Video Grabber Tools for Mac</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-front-rows-of-recreation-beyond-the-sports-arena/"><u>[Updated] Front Rows of Recreation Beyond the Sports Arena</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-huawei-nova-y71-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Huawei Nova Y71 Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-oneplus-12r-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from OnePlus 12R to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-the-fundamentals-of-fluent-google-meet-conversations/"><u>In 2024, The Fundamentals of Fluent Google Meet Conversations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/lead-the-way-in-streaming-your-guide-to-youtubes-full-sphere-video-trends/"><u>Lead the Way in Streaming Your Guide to YouTube's Full-Sphere Video Trends</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-by-step-guide-to-defining-your-aesthetic/"><u>Step-by-Step Guide to Defining Your Aesthetic</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/the-ultimate-selection-of-top-7-instagram-tools-for-flawless-photo-and-video-enhancements/"><u>The Ultimate Selection of Top 7 Instagram Tools for Flawless Photo and Video Enhancements</u></a></li>
+</ul></div>
+

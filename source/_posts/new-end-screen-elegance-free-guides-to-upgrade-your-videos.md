@@ -1,7 +1,7 @@
 ---
 title: "\"[New] End-Screen Elegance - Free Guides to Upgrade Your Videos\""
-date: 2024-10-05T19:23:55.159Z
-updated: 2024-10-13T00:47:42.810Z
+date: 2024-10-18T00:09:22.884Z
+updated: 2024-10-18T19:06:12.182Z
 tags:
   - ai video
   - ai youtube
@@ -85,6 +85,13 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -95,18 +102,18 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
 
@@ -120,13 +127,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
@@ -136,19 +136,25 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -166,24 +172,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-expert-analysis-comprehensive-camstudio-recorder/"><u>[New] 2024 Approved Expert Analysis Comprehensive CamStudio Recorder</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-drone-design-changes-experiment-for-free-subscribe-for-paid-access/"><u>[New] In 2024, Drone Design Changes - Experiment for Free, Subscribe for Paid Access</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-audio-transforming-software-for-streamers/"><u>[Updated] Essential Audio Transforming Software for Streamers</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-essential-techniques-for-mac-based-ootd-tiktok-videos-for-2024/"><u>[Updated] Essential Techniques for Mac-Based OOTD TikTok Videos for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enriched-tv-experience-seamlessly-looping-online-content/"><u>2024 Approved Enriched TV Experience Seamlessly Looping Online Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-comprehensive-look-at-editing-and-uploading-virtual-reality-videos-to-youtube/"><u>A Comprehensive Look at Editing and Uploading Virtual Reality Videos to YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-income-through-effective-video-marketing/"><u>Boosting Income Through Effective Video Marketing</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/complete-visualization-with-giroptic-cam-for-2024/"><u>Complete Visualization with Giroptic Cam for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cool-climates-with-a-warm-twist-selecting-video-bgs-for-2024/"><u>Cool Climates with a Warm Twist Selecting Video Bg's for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/direct-download-methods-for-newcomers-to-windows/"><u>Direct Download Methods for Newcomers to Windows</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-dailymotion-vs-youtube-monetization-which-is-more-profitable/"><u>In 2024, Dailymotion vs YouTube Monetization Which Is More Profitable?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-motorola-moto-g73-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Motorola Moto G73 5G?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-the-elite-circle-unveiling-top-10-gamers-on-tiktok/"><u>In 2024, The Elite Circle Unveiling Top 10 Gamers on TikTok</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/infographic-analysis-the-hottest-2023-trends/"><u>Infographic Analysis The Hottest 2023 Trends</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/resolving-the-issue-steps-to-correct-missing-advapi32dll-file/"><u>Resolving the Issue: Steps to Correct Missing Advapi32.dll File</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-hidden-prowess-in-locating-elusive-youtube-videos/"><u>The Hidden Prowess in Locating Elusive YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/trim-the-excessive-green-revamping-youtubes-on-a-mac/"><u>Trim the Excessive Green Revamping YouTubes on a Mac</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unlock-virtual-worlds-top-10-pc-games-for-ultimate-vr-experience-for-2024/"><u>Unlock Virtual Worlds Top 10 PC Games for Ultimate VR Experience for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-convert-youtube-music-seamlessly-for-mac-users-2023-edition/"><u>[New] Convert YouTube Music Seamlessly for Mac Users, 2023 Edition</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-crafting-customized-clips-on-iphone-3-free-music-integration-techniques/"><u>[New] Crafting Customized Clips on iPhone – 3 Free Music Integration Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-accelerate-how-to-swiftly-broadcast-playlists/"><u>[Updated] Accelerate How To Swiftly Broadcast Playlists</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-chart-a-course-to-success-youtube-studio-blueprint/"><u>[Updated] Chart a Course to Success YouTube Studio Blueprint</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-video-experience-non-youtube-hubs-explained/"><u>[Updated] Elevating Video Experience Non-Youtube Hubs Explained</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-techniques-to-boost-video-quality-on-web-browser-chrome/"><u>[Updated] In 2024, Techniques to Boost Video Quality on Web Browser Chrome</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-spikes-in-subscribers-implementing-top-12-video-promotion-techniques/"><u>[Updated] Spikes in Subscribers Implementing Top 12 Video Promotion Techniques</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/audio-problem-solved-correcting-itunes-configuration-errors-made-easy/"><u>Audio Problem Solved: Correcting iTunes Configuration Errors Made Easy</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-compelling-youtube-content-through-split-screens-for-2024/"><u>Crafting Compelling YouTube Content Through Split-Screens for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722973853239-get-your-samsung-845-evo-drive-up-and-running-with-our-latest-driver-software/"><u>Get Your Samsung 845 EVO Drive Up & Running with Our Latest Driver Software</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-on-iphone-13-pro-max-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account On iPhone 13 Pro Max?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-dream-weavers-the-marvel-interactive-sculptors/"><u>In 2024, Dream Weavers The Marvel Interactive Sculptors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-starting-offright-how-to-register-with-youtube/"><u>In 2024, Starting Offright How to Register With YouTube</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-zte-nubia-z60-ultra-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your ZTE Nubia Z60 Ultra Phone Now with These Tips</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2024-10-11T21:10:14.053Z
-updated: 2024-10-12T21:11:42.351Z
+date: 2024-10-11T16:38:31.464Z
+updated: 2024-10-18T23:09:55.516Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,22 +141,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/llusions-unveiled-discerning-genuine-supporters-in-digital-platforms-for-2024/"><u>[New] Illusions Unveiled Discerning Genuine Supporters in Digital Platforms for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-expert-tips-for-removing-persistent-youtube-channels-mobilepc/"><u>[New] In 2024, Expert Tips for Removing Persistent Youtube Channels (Mobile/PC)</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-professional-setup-ranking-the-leading-9-online-microphone-tools/"><u>[New] In 2024, Professional Setup Ranking the Leading 9 Online Microphone Tools</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-alternatives-to-xsplit-for-digital-media-masters/"><u>[Updated] Alternatives to Xsplit for Digital Media Masters</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-can-instant-subscription-lead-to-higher-watch-time/"><u>[Updated] Can Instant Subscription Lead to Higher Watch Time?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-turn-your-youtube-snippets-into-memorable-gifs-for-2024/"><u>[Updated] Turn Your YouTube Snippets Into Memorable GIFs for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-accelerate-with-these-key-windows-10-tricks/"><u>2024 Approved Accelerate with These Key Windows 10 Tricks</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/a-critical-look-at-irecorders-screenshot-tech/"><u>A Critical Look at iRecorder's Screenshot Tech</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/charting-the-course-from-adsense-income-to-savings-for-2024/"><u>Charting the Course From AdSense Income to Savings for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/conexao-direta-com-a-movavi-ferramenta-de-conversao-video-gratuita-f4v-para-flv-na-web/"><u>Conexão Direta Com a Movavi: Ferramenta De Conversão Vídeo Gratuita – F4V Para FLV Na Web</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>Enhance Your Presence Best Free Tools for Intriguing Openings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/event-ready-top-dj-templates-download-guide/"><u>Event-Ready Top DJ Templates Download Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/get-free-stock-footage-from-these-4-youtube-channels/"><u>Get Free Stock Footage From These 4 YouTube Channels</u></a></li>
-<li><a href="https://win-able.techidaily.com/1723006033424-how-to-fix-mass-effect-legendary-edition-crashing-pc-and-xbox/"><u>How to Fix Mass Effect Legendary Edition Crashing – PC & Xbox</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-depth-guide-to-video-money-making-across-platforms/"><u>In-Depth Guide to Video Money-Making Across Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/pixelperfect-editor/"><u>PixelPerfect Editor</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716465777166-transform-spaceships-into-trees-youtubes-green-secrets-revealed/"><u>Transform Spaceships Into Trees – Youtube’s Green Secrets Revealed!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-chart-a-course-to-6-figure-growth-with-powerful-tags/"><u>[New] Chart a Course to 6-Figure Growth with Powerful #Tags</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-pinpointing-instagram-follower-losses-on-the-fly/"><u>[New] In 2024, Pinpointing Instagram Follower Losses on the Fly</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cutting-edge-techniques-mastering-youtube-subtitlecc-additions/"><u>[Updated] Cutting-Edge Techniques Mastering YouTube Subtitle/CC Additions</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-female-gamers-faction-yts-10-stars-for-2024/"><u>[Updated] Female Gamers Faction YT's #10 Stars for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-entering-the-fullscreen-realm-choosing-a-cms/"><u>2024 Approved Entering the Fullscreen Realm Choosing a CMS</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/boost-engagement-with-pinterest-on-your-page-a-tutorial-for-facebook-users/"><u>Boost Engagement with Pinterest on Your Page: A Tutorial for Facebook Users</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-galaxy-a15-4g-has-native-mov-support-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Galaxy A15 4G has native MOV support?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-scripts-to-screen-making-youtube-splits/"><u>From Scripts to Screen Making YouTube Splits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-channel-hunt-best-historical-youtubes-that-every-student-should-watch/"><u>In 2024, Channel Hunt Best Historical YouTubes That Every Student Should Watch</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-vivo-x-flip-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Vivo X Flip Phone</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-windows-10-update-error-0xc1900208-expert-tips-and-solutions/"><u>Resolving Windows 10 Update Error 0xC1900208: Expert Tips and Solutions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/understanding-the-windows-10-battery-status-screen-a-comprehensive-guide/"><u>Understanding the Windows 10 Battery Status Screen - A Comprehensive Guide</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/1728466846817-windows-10-outlook/"><u>Windows 10 Outlook メール同期に問題がある時のトラブルシューティング</u></a></li>
 </ul></div>
 

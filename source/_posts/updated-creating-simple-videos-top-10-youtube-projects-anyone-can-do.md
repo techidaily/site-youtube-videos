@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2024-10-05T16:27:50.568Z
-updated: 2024-10-12T19:11:56.829Z
+date: 2024-10-14T21:57:46.693Z
+updated: 2024-10-18T23:12:43.172Z
 tags:
   - ai video
   - ai youtube
@@ -53,19 +53,6 @@ Anything that happens during your day can become a topic for your YouTube vlog. 
 
 Strive to make visually dynamic videos, because just sitting or standing and talking in front of a camera for a few minutes isn't going to create much on-screen action.
 
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Express An Opinion
 
 Social media culture has enabled us to receive news instantly and react to it in any way we want. If you didn't like the latest update of your favorite video game, or if you’re excited about a line of makeup that’s coming out soon, make a video about it and share your opinion with the community that follows you on YouTube.
@@ -73,6 +60,13 @@ Social media culture has enabled us to receive news instantly and react to it in
 Opinion videos are great conversation starters. Expressing an opinion through a YouTube video can get you a lot of comments and even inspire others to take action.
 
 You can express your opinions on virtually any topic, but being respectful while doing so is for the best if you don’t want to find yourself in a YouTube feud.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Review Anything
 
@@ -93,10 +87,16 @@ There were over two billion smartphone users worldwide in 2017, and this number 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
@@ -111,25 +111,11 @@ Education is our only hope for a better world so if you know how to do something
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 9\. 10 Things About You
 
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 10\. Video Rant
 
@@ -139,11 +125,25 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Start Editing Videos with Beginner-friendly Software
 
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -162,18 +162,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/updated-crafting-silent-scenes-audio-fade-techniques-in-adobe-premiere-pro/"><u>[Updated] Crafting Silent Scenes Audio Fade Techniques in Adobe Premiere Pro</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-a-symphony-of-shades-applying-complementary-colors/"><u>2024 Approved A Symphony of Shades Applying Complementary Colors</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-charting-success-navigating-youtube-statistics-with-social-blade/"><u>2024 Approved Charting Success Navigating YouTube Statistics with Social Blade</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-directly-posting-your-videos-from-idevice-to-youtube/"><u>2024 Approved Directly Posting Your Videos From iDevice to YouTube</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-increase-your-igtv-impact-5-strategies-to-attract-more-viewers/"><u>2024 Approved Increase Your IGTV Impact 5 Strategies to Attract More Viewers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/drive-traffic-and-growth-with-youtube-analytic-insights-for-2024/"><u>Drive Traffic and Growth with YouTube Analytic Insights for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/edit-and-elevate-instagrams-ultimate-toolkit-for-2024/"><u>Edit & Elevate Instagram's Ultimate Toolkit for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/effective-youtube-banners-pros-and-cons-to-avoid/"><u>Effective YouTube Banners Pros and Cons to Avoid</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-your-content-top-rated-cameras-for-youtubers/"><u>Elevate Your Content Top-Rated Cameras for YouTubers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-your-yt-marketing-essential-tips-for-higher-rankings-for-2024/"><u>Elevate Your YT Marketing Essential Tips for Higher Rankings for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-vivo-v29e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Vivo V29e | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Oppo A2 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/passfab-apple-iphone-15-plus-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>PassFab Apple iPhone 15 Plus Backup Unlocker Top 4 Alternatives</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevating-your-content-powerful-tags-to-watch-out-for/"><u>[New] Elevating Your Content Powerful Tags to Watch Out For</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-simplysnap-screen-shots-for-w10-users/"><u>[New] SimplySnap Screen Shots for W10 Users</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-3-proven-methods-to-enhance-your-music-archives/"><u>[Updated] 2024 Approved 3 Proven Methods to Enhance Your Music Archives</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-tickles-for-young-game-fans-in-2024/"><u>[Updated] Top Tickles for Young Game Fans, In 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-videos-innovative-youtube-editing-techniques-revealed/"><u>2024 Approved Elevate Videos Innovative YouTube Editing Techniques Revealed</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/avoiding-imitation-ai-uncovering-bogus-chatgpt-applications-on-ios-platforms/"><u>Avoiding Imitation AI: Uncovering Bogus ChatGPT Applications on iOS Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-list-7-cost-free-video-tags-extractors-on-youtube-for-2024/"><u>Essential List 7 Cost-Free Video Tags Extractors on YouTube for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Xiaomi Redmi A2+? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-honor-magic-5-lite-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Honor Magic 5 Lite Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/perfect-360-videography-streaming-tips-for-youtube/"><u>Perfect 360 Videography Streaming Tips for YouTube</u></a></li>
+<li><a href="https://techidaily.com/the-5-best-methods-to-track-a-lost-or-stolen-iphone-14-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>The 5 Best Methods to Track a Lost or Stolen iPhone 14 | Stellar</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-path-to-popularity-unveiling-tubebuddy-secrets/"><u>The Path to Popularity Unveiling TubeBuddy Secrets</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/troubleshooting-reusable-video-format-fixes/"><u>Troubleshooting: Reusable Video Format Fixes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/what-are-the-earning-prospects-for-youtubers-from-branded-video-plays/"><u>What Are the Earning Prospects for YouTubers From Branded Video Plays?</u></a></li>
 </ul></div>
 

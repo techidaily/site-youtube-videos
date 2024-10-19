@@ -1,7 +1,7 @@
 ---
 title: "\"Step Into the Spotlight  Learning YouTube Vlogger Etiquette\""
-date: 2024-10-05T19:04:58.253Z
-updated: 2024-10-12T21:42:02.383Z
+date: 2024-10-12T18:59:58.108Z
+updated: 2024-10-18T22:25:28.375Z
 tags:
   - ai video
   - ai youtube
@@ -40,13 +40,6 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -58,10 +51,16 @@ Once all the pieces of the story are captured — including your storytelling, b
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **3\. Surprise and Delight Your Audience**
@@ -73,10 +72,10 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -86,13 +85,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -105,6 +97,13 @@ The great thing about vlogging is that you will get a lot of practice framing sh
 Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UCjwmbv6NE4mOh8Z8VhPUx1Q), where she gives a tour of her bedroom.
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
 
@@ -125,6 +124,13 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -167,20 +173,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/updated-achieving-excellence-in-work-and-online-content/"><u>[Updated] Achieving Excellence in Work and Online Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-enhancing-youtube-content-with-text-overlays/"><u>[Updated] Enhancing YouTube Content with Text Overlays</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-deciphering-content-control-youtube-vs-creative-commons-license/"><u>2024 Approved Deciphering Content Control YouTube Vs. Creative Commons License</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-home-cinema-mastery-top-10-hd-players-list/"><u>2024 Approved Home Cinema Mastery Top 10 HD Players' List</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-noteworthy-14-dynamic-text-artworks/"><u>2024 Approved Noteworthy 14 Dynamic Text Artworks</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-why-trust-matters-more-than-just-numbers-on-feeds/"><u>2024 Approved Why Trust Matters More Than Just Numbers on Feeds</u></a></li>
-<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/comparing-dailymovements-and-youtubes-income-models-for-2024/"><u>Comparing DailyMovement's and Youtube's Income Models for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/discover-the-art-of-tracking-network-activity-via-netstat-in-win11/"><u>Discover the Art of Tracking Network Activity via Netstat in Win11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-samsung-galaxy-watch-merging-elegance-in-style-with-high-tech-capabilities/"><u>Expert Insights on the Samsung Galaxy Watch – Merging Elegance in Style With High-Tech Capabilities</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-free-best-youtube-video-editor-apps-for-android/"><u>In 2024, FREE Best YouTube Video Editor Apps for Android</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-live-thumbnails-for-effective-branding/"><u>Mastering Live Thumbnails for Effective Branding</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-poco-c55-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Poco C55 Phone Now with These Tips</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/through-virtual-lenses-exploring-vr-ar-and-mixed-reality/"><u>Through Virtual Lenses Exploring VR, AR, and Mixed Reality</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-secure-video-sharing-youtube-to-gmail-with-google-access/"><u>Unlocking Secure Video Sharing YouTube to Gmail with Google Access</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-circulating-content-the-art-of-playlist-sharing/"><u>[New] Circulating Content The Art of Playlist Sharing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-crafting-and-gauging-the-success-of-fb-instream-ads/"><u>[New] In 2024, Crafting and Gauging the Success of FB Instream Ads</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-synthesize-shots-the-photo-montage-methodology/"><u>[New] In 2024, Synthesize Shots The Photo Montage Methodology</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-discovering-all-in-youtube-shorts-guide/"><u>[Updated] Discovering All in YouTube Shorts Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-earnings-expansion-on-glamour-channels/"><u>2024 Approved Earnings Expansion on Glamour Channels</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-nokia-c110-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Nokia C110 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://article-posts.techidaily.com/cyber-escapades-the-evolution-of-leisayers-realm/"><u>Cyber Escapades The Evolution of Leisayer's Realm</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/digital-dynamos-8-youtube-channels-surging-forward-for-2024/"><u>Digital Dynamos 8 YouTube Channels Surging Forward for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixing-the-system-failure-error-0xc0000185-a-comprehensive-guide-for-windows-users/"><u>Fixing the System Failure Error (0xC0000185): A Comprehensive Guide for Windows Users</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/functionality-at-its-best-unveiling-the-features-of-the-acer-xfa2/"><u>Functionality at Its Best: Unveiling the Features of the Acer XFA2</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/get-ahead-with-these-best-7-android-browsers-without-ads/"><u>Get Ahead with These Best 7 Android Browsers Without Ads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-use-video-titles-and-youtube-tags/"><u>How to Use Video Titles and YouTube Tags?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ideal-choices-for-comprehensive-movement-recording/"><u>Ideal Choices for Comprehensive Movement Recording</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-emulate-video-success-gaining-youtube-confidence-skills/"><u>In 2024, Emulate Video Success Gaining YouTube Confidence Skills</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-up-your-visual-effects-game-with-free-lessons-from-4-innovative-youtube-channels/"><u>Step Up Your Visual Effects Game with Free Lessons From 4 Innovative YouTube Channels</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-instructions-for-restoring-all-ipad-versions-to-original-settings/"><u>Step-by-Step Instructions for Restoring All iPad Versions to Original Settings</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/1728462257442-windows/"><u>Windowsオペレーティングシステムの自動バックアップをセットする期限時刻について</u></a></li>
 </ul></div>
 

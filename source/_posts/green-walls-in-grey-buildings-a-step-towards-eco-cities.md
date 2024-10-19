@@ -1,7 +1,7 @@
 ---
 title: "\"Green Walls in Grey Buildings  A Step Towards Eco-Cities\""
-date: 2024-08-03T03:51:07.552Z
-updated: 2024-08-04T03:51:07.552Z
+date: 2024-10-11T23:06:18.789Z
+updated: 2024-10-18T23:30:59.554Z
 tags:
   - ai video
   - ai youtube
@@ -33,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/e4680a85088d1a2f44c589b1c74f41a831760d9ea
 
 **Recommendation:** The best video editor for YouTubers - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), not only allows you to cut, crop, rotate, reverse videos, but also offers your advanced features like PIP, Green Screen, or audio mixing. What's more, you can find lots of effects for Fashion, gaming, education, tutorial, sports, etc. Check this article to know more.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -64,8 +60,12 @@ thumbnail: https://thmb.techidaily.com/e4680a85088d1a2f44c589b1c74f41a831760d9ea
  If you YouTube channel description are boring, chances are, visitors will no longer bother to view the contents. Create a powerful and enticing description that will trigger viewers to make a favorable action.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to edit your YouTube Channel Description \[Step by Step Tutorial\]
 
  This is actually a process that is pretty much straightforward, provided that you know how it can be done. Here are the simple steps that you should follow:
@@ -75,11 +75,15 @@ thumbnail: https://thmb.techidaily.com/e4680a85088d1a2f44c589b1c74f41a831760d9ea
 
 ![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Customize the layout of your channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-2.jpg)
 
 * Click on "About."
@@ -88,9 +92,6 @@ thumbnail: https://thmb.techidaily.com/e4680a85088d1a2f44c589b1c74f41a831760d9ea
 
 * Then you can edit the channel description here
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
@@ -98,9 +99,6 @@ thumbnail: https://thmb.techidaily.com/e4680a85088d1a2f44c589b1c74f41a831760d9ea
 * Write the description that you want to show up when people visit your YouTube channel. It is not enough that you write just any sentence. Make sure that it is sweet and simple. Be as concise and informative as possible. Use simple words, yet make sure that they are powerful and can stir the visitor to make a favorable action. Also, see to it that it makes use of the right keywords that are related to your channel.
 * Click on "View as" which will allow the YouTube channel description to show up for New visitor or returning subscriber.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Edit YouTube Channel Description - Preview](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-5.jpg)
 
  In sum, adding a YouTube channel description does not need to be a complicated process. Just follow the tips mentioned above and make sure to pay attention to crafting the right message. It must be keyword-optimized and must captivate attention of your visitors.
@@ -109,11 +107,25 @@ thumbnail: https://thmb.techidaily.com/e4680a85088d1a2f44c589b1c74f41a831760d9ea
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Bonus: Tips for YouTube Video Description
 
  Here we have also found out some useful tips for YouTube video description:
 
 ![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 1. Take full advantage of the First Line
 
@@ -125,9 +137,6 @@ thumbnail: https://thmb.techidaily.com/e4680a85088d1a2f44c589b1c74f41a831760d9ea
 
  It is highly recommended to add additional relevant content to the video description to help audience to get to know you better. You can add a brief summary of the video content or the transcript of the video here. Normally, you can add anything that is worth mentioning such as the equipment or software that you are using to make the video.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -136,11 +145,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-chill-vibes-current-hits-to-match-your-yt-short-tunes/"><u>[New] Chill Vibes Current Hits to Match Your YT Short Tunes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-countering-harshness-maintaining-poise-online/"><u>[New] Countering Harshness Maintaining Poise Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-discover-the-best-12-free-and-paid-video-game-openings-for-yt/"><u>[New] Discover the Best 12 Free and Paid Video Game Openings for YT</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-effortless-guide-never-see-youtube-shorts-again/"><u>[New] Effortless Guide Never See YouTube Shorts Again</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-evaluating-the-financial-returns-for-makers-on-youtube-shorts/"><u>[New] Evaluating the Financial Returns for Maker's on YouTube Shorts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevate-viewership-3-key-storytelling-approaches/"><u>[Updated] Elevate Viewership 3 Key Storytelling Approaches</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-your-look-expert-tutorials-for-everyone/"><u>[Updated] Elevating Your Look Expert Tutorials for Everyone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-mememix-download-now/"><u>[Updated] Ultimate Mememix Download Now</u></a></li>
+<li><a href="https://article-tips.techidaily.com/crafting-a-complete-media-experience-mixing-music-and-video-in-premiere-pro/"><u>Crafting a Complete Media Experience Mixing Music and Video in Premiere Pro</u></a></li>
+<li><a href="https://windows11.techidaily.com/deciphering-disconnect-adjustable-gif-sizes-for-discord-on-windows/"><u>Deciphering Disconnect: Adjustable GIF Sizes for Discord on Windows</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-vivo-s17e-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/masters-picks-highest-rated-cards-for-streaming-on-youtube/"><u>Master's Picks Highest Rated Cards for Streaming on YouTube</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-beyond-windows-10-photos-8-excellent-image-viewing-options/"><u>New In 2024, Beyond Windows 10 Photos 8 Excellent Image Viewing Options</u></a></li>
+<li><a href="https://extra-support.techidaily.com/prime-selection-of-streaming-services-explored-for-2024/"><u>Prime Selection of Streaming Services Explored for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/of-the-channels-crafting-your-digital-empire-for-2024/"><u>Rise of the Channels Crafting Your Digital Empire for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-verdict-on-thermaltake-massive-laptop-pad-advanced-cooling-with-an-upmarket-price-tag/"><u>The Ultimate Verdict on Thermaltake Massive Laptop Pad: Advanced Cooling with an Upmarket Price Tag</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-artistic-marvel-an-exclusive-review-of-huions-kamvas-gt-191-tablet/"><u>Unveiling The Artistic Marvel - An Exclusive Review Of Huion's Kamvas GT-191 Tablet</u></a></li>
+</ul></div>
+

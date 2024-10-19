@@ -1,7 +1,7 @@
 ---
 title: Tackling Back 4 Blood's Infamous UE4 Error in Desert Wastelands of Gobi
-date: 2024-10-09T22:13:14.007Z
-updated: 2024-10-12T18:31:05.305Z
+date: 2024-10-12T22:42:29.682Z
+updated: 2024-10-18T22:54:50.973Z
 tags:
   - win11
   - win10
@@ -31,19 +31,6 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 6. **[Lower your graphics settings](https://tools.techidaily.com/drivereasy/download/)**
 7. **[Run the game in Windowed mode](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 1 – Ran the game as administrator
 
  Your PC may not give**Elite Dangerous or the game launcher** the necessary permissions they need to work correctly. You might run into game issues like game crashing in this case.
@@ -60,6 +47,13 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/02/2020-02-14_17-15-17.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **3)** Right-click **Elite Dangerous**  and select **Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-09_10-38-23.jpg)
@@ -73,19 +67,6 @@ This could take several minutes. Wait for the process to be complete.
 **5)**  Relaunch your game to test the issue.
 
  Still failing? Try the next solution to update your graphics driver to the most recent version.
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 3 – Update your graphics driver
 
@@ -103,10 +84,24 @@ This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-57-32.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it.  
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-58-08.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -116,13 +111,6 @@ This could take several minutes. Wait for the process to be complete.
 ## Fix 4 – Stop overclocking
 
  An unstable overclock will crash your game and the whole system. So, **if you’re overclocking your CPU or GPU, set the clock speed rate back to the default** to see if that resolves the crash issue. If it doesn’t, move on to the fix below.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 5 – Disable unnecessary programs
 
@@ -136,9 +124,23 @@ This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_12-07-59.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **3)** Restart your game to see if it runs correctly now.
 
 Your game still won’t work correctly? Read on and try Fix 5.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 6 – Lower your graphics settings
 
@@ -160,23 +162,9 @@ If the crashing still happens, continue with the next solution below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-17_17-03-22.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **2)** Copy **%localappdata%Frontier DevelopmentsElite DangerousOptionsGraphics** and paste it into the text box, then press**Enter** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-17_17-10-56.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **3)** Double-click**DisplaySettings.xml** to open the file.
 
@@ -205,19 +193,17 @@ If the crashing still happens, continue with the next solution below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-conduct-cost-effective-seminars-using-youtube/"><u>[New] Conduct Cost-Effective Seminars Using YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-cultivate-calmness-and-flexibility-with-top-10-yoga-streams/"><u>[New] Cultivate Calmness & Flexibility with Top 10 Yoga Streams</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/aunching-a-youtube-channel-key-pieces-of-equipment-for-2024/"><u>[New] Launching a YouTube Channel Key Pieces of Equipment for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-lg-redefines-reality-with-its-latest-virtual-gaming-device/"><u>[Updated] 2024 Approved LG Redefines Reality with Its Latest Virtual Gaming Device</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-unleashing-revenue-with-review-videos-of-household-items/"><u>[Updated] Unleashing Revenue with Review Videos of Household Items</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-youtube-content-with-text-overlays/"><u>2024 Approved Enhancing YouTube Content with Text Overlays</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/beyond-expression-understanding-snapchat-emojis-deeply/"><u>Beyond Expression Understanding Snapchat Emojis Deeply</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/defending-your-videos-against-youtube-copyright-strikes/"><u>Defending Your Videos Against YouTube Copyright Strikes</u></a></li>
-<li><a href="https://win-latest.techidaily.com/des-conseils-complets-sur-lutilisation-des-meilleurs-outils-gratuits-de-restauration-dimages-fuji/"><u>Des Conseils Complets Sur L'utilisation Des Meilleurs Outils Gratuits De Restauration D'images Fuji</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-honor-magic-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-asus-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Asus Devices</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-apple-iphone-14-pro-max-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket Apple iPhone 14 Pro Max for Free</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/step-by-step-tutorial-broadcasting-360-video-on-youtube-live/"><u>Step-by-Step Tutorial Broadcasting 360 Video on YouTube Live</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-rated-magsafe-wallet-picks-comprehensive-reviews-and-comparisons-by-tech-experts/"><u>Top-Rated MagSafe Wallet Picks - Comprehensive Reviews & Comparisons by Tech Experts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-choreographed-vocal-harmony-on-tiktok/"><u>[New] Choreographed Vocal Harmony on TikTok</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-cut-color-and-compile-a-deep-dive-into-youtube-studio-video-editing/"><u>[New] Cut, Color & Compile A Deep Dive Into YouTube Studio Video Editing</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-panopticam-review-breakdown/"><u>[New] In 2024, PanoptiCam Review Breakdown</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-briefvideo-creator/"><u>[Updated] BriefVideo Creator</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-conduct-a-symphony-on-the-ppt-stage/"><u>2024 Approved Conduct a Symphony on the PPT Stage</u></a></li>
+<li><a href="https://games-able.techidaily.com/clearing-up-display-lag-error-code-0x887a0006-in-windows/"><u>Clearing Up Display Lag (Error Code 0X887A0006) in Windows</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/direct-conversion-convert-and-upload-mp3-songs-on-youtube-for-2024/"><u>Direct Conversion Convert & Upload MP3 Songs on YouTube for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-track-imei-number-of-nokia-c300-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Nokia C300 Through Google Earth?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-how-to-buy-1-million-youtube-views-safely-from-trusted-providers/"><u>In 2024, How to Buy 1 Million YouTube Views Safely From Trusted Providers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/proven-techniques-for-capturing-dynamic-and-engaging-ppts/"><u>Proven Techniques for Capturing Dynamic and Engaging PPTs</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-realme-gt-3-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Realme GT 3 Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transformer-gratuitement-un-fichier-3gp-en-video-flv-tutorial-video-de-conversion-rapide-avec-movavi/"><u>Transformer Gratuitement Un Fichier .3Gp en Vidéo FLV - Tutorial Vidéo De Conversion Rapide Avec Movavi</u></a></li>
 </ul></div>
 
