@@ -1,7 +1,7 @@
 ---
 title: "\"Shine On  Mastering the Art of Illumination for YouTube Videos\""
-date: 2024-10-13T22:24:45.945Z
-updated: 2024-10-19T00:29:15.552Z
+date: 2024-10-17T18:01:48.532Z
+updated: 2024-10-24T17:01:35.798Z
 tags:
   - ai video
   - ai youtube
@@ -39,13 +39,6 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1.  Window Lighting
 
 The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
@@ -68,9 +61,23 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1. Light Control
 
@@ -82,25 +89,11 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -117,13 +110,20 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -140,22 +140,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-boost-creativity-and-connectivity-best-50plus-tiktok-quotes-for-2024/"><u>[New] Boost Creativity & Connectivity Best 50+ TikTok Quotes for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-media-makers-software-linux-edition/"><u>[New] Essential Media Makers' Software Linux Edition</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-foremost-6-online-spaces-dominating-b2b-interactions/"><u>[New] In 2024, Foremost 6 Online Spaces Dominating B2B Interactions</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-total-mastery-of-powerdirector-with-our-review-and-guide/"><u>[Updated] Total Mastery of PowerDirector with Our Review & Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-websites-for-youtube-preview-creation-tools/"><u>2024 Approved Essential Websites for YouTube Preview Creation Tools</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-from-chaos-to-clarity-combining-obs-with-zoom/"><u>2024 Approved From Chaos to Clarity Combining OBS with Zoom</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/analyzing-user-interface-and-features-in-youtube-mobile-app-for-2024/"><u>Analyzing User Interface and Features in YouTube Mobile App for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/clipcutter-plus/"><u>ClipCutter Plus</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-apple-ipad-pro-with-m1-processor-unleashing-new-potentials-in-tablet-technology/"><u>Expert Insights on Apple iPad Pro with M1 Processor – Unleashing New Potentials in Tablet Technology</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-breakneck-broadcast-channel-your-youtube-list/"><u>In 2024, Breakneck Broadcast Channel Your YouTube List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-conveniently-remove-downloaded-youtube-media-for-lightweight-devices/"><u>In 2024, Conveniently Remove Downloaded YouTube Media for Lightweight Devices</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-football-info-youtube-trend-infographics/"><u>In 2024, Essential Football Info YouTube Trend Infographics</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-realme-c55-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Realme C55 Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/one-word-many-ways-facebooks-innovative-ai-technique/"><u>One Word, Many Ways: Facebook's Innovative AI Technique</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/rapid-routines-to-disrupt-youtube-list-ordering/"><u>Rapid Routines to Disrupt YouTube List Ordering</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/too-old-for-ios-time-for-an-update/"><u>Too Old for iOS: Time for an Update?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-guide-to-accessing-premium-preschool-playtime-9-spots-with-no-charge/"><u>Ultimate Guide to Accessing Premium Preschool Playtime - 9 Spots With No Charge</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-elevate-youtube-navigating-tweets-in-1080p-clarity/"><u>[New] 2024 Approved Elevate YouTube Navigating Tweets in 1080P Clarity</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-boost-views-with-smart-youtube-backlink-tactics/"><u>[New] Boost Views with Smart YouTube Backlink Tactics</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-hotspots-for-revolutionary-vr-cinema-for-2024/"><u>[New] Hotspots for Revolutionary VR Cinema for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagrams-media-mastery-pro-level-tips-for-pcmac-downloading/"><u>[Updated] 2024 Approved Instagram's Media Mastery Pro-Level Tips for PC/Mac Downloading</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-designing-a-trailer-blueprint-to-amplify-channel-income/"><u>[Updated] Designing a Trailer Blueprint to Amplify Channel Income</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-avoid-buffering-switch-av1-codec-on-youtube/"><u>2024 Approved Avoid Buffering Switch AV1 Codec on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/beginners-guide-to-pro-youtube-tech-for-2024/"><u>Beginner's Guide to Pro YouTube Tech for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-a-business-from-blogs-and-video-reviews/"><u>Building a Business From Blogs and Video Reviews</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/efficient-editing-for-quick-youtube-content-for-2024/"><u>Efficient Editing for Quick YouTube Content for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-motorola-moto-g73-5g-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Motorola Moto G73 5G Phone Screen?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-achieving-soft-sound-effects-in-audacity/"><u>In 2024, Achieving Soft Sound Effects in Audacity</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-breakthrough-strategies-for-youtube-short-problem-solving/"><u>In 2024, Breakthrough Strategies for YouTube Short Problem-Solving</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-content-delivery-comparison-vimeo-vs-youtube-vs-dailymotion/"><u>In 2024, Content Delivery Comparison Vimeo vs YouTube vs Dailymotion</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-pixel-8-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Google Pixel 8 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-xiaomi-redmi-note-13-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Xiaomi Redmi Note 13 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-stardew-valley-launch-problems-solutions-revealed/"><u>Troubleshooting Stardew Valley Launch Problems - Solutions Revealed!</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unlock-the-secret-of-youtube-to-gif-conversion-begin-here-for-2024/"><u>Unlock the Secret of YouTube-to-GIF Conversion - Begin Here for 2024</u></a></li>
 </ul></div>
 

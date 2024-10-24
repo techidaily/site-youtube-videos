@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Digital Dialogue Mastery  Connecting with Viewers Flawlessly\""
-date: 2024-10-11T19:22:50.334Z
-updated: 2024-10-19T00:23:08.870Z
+date: 2024-10-18T16:50:28.750Z
+updated: 2024-10-24T17:40:20.782Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,13 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -50,19 +57,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -70,6 +64,13 @@ There is a saying that a great ending to a story is that it is [surprising, yet 
 The ending needs to be justified even if there is a twist. Everything before that had worked to build up the tension and when it concludes it needs to be logical. However, the ending cannot be something that the audience can guess. Remember those mystery movies where you know who the murderer is after the first few scenes? Yeah… those aren’t satisfying. A good story ends with a surprise, and with everything prior leading up to it.
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
 
@@ -91,6 +92,19 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -101,13 +115,6 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -117,13 +124,6 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -149,14 +149,14 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -173,22 +173,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-captivating-yt-cover-art-for-maximum-traffic/"><u>[New] Captivating YT Cover Art for Maximum Traffic</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-vigorous-voice-examination-iteration-no-8/"><u>[Updated] 2024 Approved Vigorous Voice Examination - Iteration No. 8</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-building-buzz-strategies-for-shaping-your-unique-youtubing-image/"><u>[Updated] Building Buzz Strategies for Shaping Your Unique YouTubing Image</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-3d-software-for-dynamic-youtube-intros/"><u>2024 Approved Best 3D Software for Dynamic YouTube Intros</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-creating-compelling-content-with-powerful-youtube-titles/"><u>2024 Approved Creating Compelling Content with Powerful YouTube Titles</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cut-to-impress-youtube-video-editing-made-simple-for-2024/"><u>Cut to Impress YouTube Video Editing Made Simple for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-premier-wrist-pads-for-computer-users/"><u>Discover the Premier Wrist Pads for Computer Users</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-youtube-video-trailers-with-filmoras-guide/"><u>In 2024, Crafting YouTube Video Trailers with Filmora's Guide</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-realme-narzo-60-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Realme Narzo 60 5G</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-dominate-the-battlefield-learn-vocal-modification-for-free-fire-characters/"><u>In 2024, How to Dominate the Battlefield Learn Vocal Modification for Free Fire Characters</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-trim-videos-with-flair-in-windows-11-photo-apps/"><u>In 2024, Trim Videos with Flair in Windows 11 Photo Apps</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/samsungs-photo-manipulation-software-a-review-for-2024/"><u>Samsung's Photo Manipulation Software A Review for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solving-the-missing-msvcr110dll-a-step-by-step-guide-for-helldivers-2/"><u>Solving the Missing MSVCR110.dll: A Step-by-Step Guide for Helldivers 2</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-green-screen-revolution-access-comprehensive-tutorials-from-4-leading-youtube-educators/"><u>The Green Screen Revolution Access Comprehensive Tutorials From 4 Leading YouTube Educators</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-simplicity-and-strength-with-the-hp-stream-11-laptop/"><u>Unveiling Simplicity and Strength with the HP Stream 11 Laptop</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/visual-branding-on-youtubes-iconography-and-images/"><u>Visual Branding on YouTubes Iconography and Images</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/windows-1110mbrgpt/"><u>Windows 11/10のMBRをGPTディスクに変換するための復元ガイド</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-accelerated-steps-to-unsettle-youtube-playlists/"><u>[New] Accelerated Steps to Unsettle YouTube Playlists</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-best-practices-in-youtube-keyword-selection/"><u>[New] Best Practices in YouTube Keyword Selection</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-boosting-engagement-customizing-your-shorts-first-impressions/"><u>[New] Boosting Engagement Customizing Your Shorts' First Impressions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-cutting-the-excess-a-guide-to-shortening-youtube-videos/"><u>[New] Cutting the Excess A Guide to Shortening YouTube Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-a-detailed-guide-to-streamlabs-obs/"><u>[New] In 2024, A Detailed Guide to Streamlabs OBS</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-charting-the-course-of-youtube-success-through-social-blade-analysis/"><u>[Updated] Charting the Course of YouTube Success Through Social Blade Analysis</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-expertise-in-ease-simplifying-complex-snapchat-filters-for-2024/"><u>[Updated] Expertise in Ease Simplifying Complex Snapchat Filters for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-animationpros-complete-guide-24/"><u>2024 Approved AnimationPros Complete Guide '24</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/best-of-the-best-10-leading-vlog-editor-apps-for-ios-and-android-users-for-2024/"><u>Best of the Best 10 Leading Vlog Editor Apps for iOS and Android Users for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/delving-into-the-world-of-asmr-soundscapes-for-2024/"><u>Delving Into the World of ASMR Soundscapes for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/discover-your-future-with-window-11s-innovative-creations-for-2024/"><u>Discover Your Future with Window 11'S Innovative Creations for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-xiaomi-redmi-note-12-pro-4g-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Xiaomi Redmi Note 12 Pro 4G</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/free-easy-tag-extraction-compilation-of-7-best-no-cost-online-tools/"><u>Free, Easy Tag Extraction Compilation of 7 Best No-Cost Online Tools</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-the-pros-and-cons-of-final-cut-pro-vs-final-cut-express/"><u>In 2024, The Pros and Cons of Final Cut Pro vs Final Cut Express</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/protect-sensitive-information-learn-remote-clearing-of-iphone-and-ipad-data/"><u>Protect Sensitive Information: Learn Remote Clearing of iPhone and iPad Data</u></a></li>
+<li><a href="https://win-data.techidaily.com/step-by-step-guide-enhancing-your-experience-with-a-free-windows-home-edition-to-professional-upgrade/"><u>Step-by-Step Guide: Enhancing Your Experience with a Free Windows Home Edition to Professional Upgrade</u></a></li>
 </ul></div>
 

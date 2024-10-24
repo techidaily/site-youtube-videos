@@ -1,7 +1,7 @@
 ---
 title: Tackling Back 4 Blood's Infamous UE4 Error in Desert Wastelands of Gobi
-date: 2024-10-12T22:42:29.682Z
-updated: 2024-10-18T22:54:50.973Z
+date: 2024-10-22T16:30:40.580Z
+updated: 2024-10-24T17:00:31.577Z
 tags:
   - win11
   - win10
@@ -31,6 +31,13 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 6. **[Lower your graphics settings](https://tools.techidaily.com/drivereasy/download/)**
 7. **[Run the game in Windowed mode](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 1 – Ran the game as administrator
 
  Your PC may not give**Elite Dangerous or the game launcher** the necessary permissions they need to work correctly. You might run into game issues like game crashing in this case.
@@ -48,10 +55,10 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 ![](https://images.drivereasy.com/wp-content/uploads/2020/02/2020-02-14_17-15-17.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **3)** Right-click **Elite Dangerous**  and select **Properties** .
@@ -63,6 +70,13 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-09_10-38-34.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **5)**  Relaunch your game to test the issue.
 
@@ -84,29 +98,22 @@ This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-57-32.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it.  
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-58-08.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  Relaunch the game to test your issue. If the crash still occurs, try the next fix below.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 4 – Stop overclocking
 
@@ -124,23 +131,9 @@ This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_12-07-59.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **3)** Restart your game to see if it runs correctly now.
 
 Your game still won’t work correctly? Read on and try Fix 5.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 6 – Lower your graphics settings
 
@@ -165,6 +158,13 @@ If the crashing still happens, continue with the next solution below.
 **2)** Copy **%localappdata%Frontier DevelopmentsElite DangerousOptionsGraphics** and paste it into the text box, then press**Enter** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-17_17-10-56.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **3)** Double-click**DisplaySettings.xml** to open the file.
 
@@ -193,17 +193,20 @@ If the crashing still happens, continue with the next solution below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-choreographed-vocal-harmony-on-tiktok/"><u>[New] Choreographed Vocal Harmony on TikTok</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-cut-color-and-compile-a-deep-dive-into-youtube-studio-video-editing/"><u>[New] Cut, Color & Compile A Deep Dive Into YouTube Studio Video Editing</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-panopticam-review-breakdown/"><u>[New] In 2024, PanoptiCam Review Breakdown</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-briefvideo-creator/"><u>[Updated] BriefVideo Creator</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-conduct-a-symphony-on-the-ppt-stage/"><u>2024 Approved Conduct a Symphony on the PPT Stage</u></a></li>
-<li><a href="https://games-able.techidaily.com/clearing-up-display-lag-error-code-0x887a0006-in-windows/"><u>Clearing Up Display Lag (Error Code 0X887A0006) in Windows</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/direct-conversion-convert-and-upload-mp3-songs-on-youtube-for-2024/"><u>Direct Conversion Convert & Upload MP3 Songs on YouTube for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-track-imei-number-of-nokia-c300-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Nokia C300 Through Google Earth?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-how-to-buy-1-million-youtube-views-safely-from-trusted-providers/"><u>In 2024, How to Buy 1 Million YouTube Views Safely From Trusted Providers</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/proven-techniques-for-capturing-dynamic-and-engaging-ppts/"><u>Proven Techniques for Capturing Dynamic and Engaging PPTs</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-realme-gt-3-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Realme GT 3 Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/transformer-gratuitement-un-fichier-3gp-en-video-flv-tutorial-video-de-conversion-rapide-avec-movavi/"><u>Transformer Gratuitement Un Fichier .3Gp en Vidéo FLV - Tutorial Vidéo De Conversion Rapide Avec Movavi</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-depth-guide-to-archiving-online-conversations-with-fb-for-2024/"><u>[Updated] In-Depth Guide to Archiving Online Conversations with FB for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-image-warping-techniques/"><u>[Updated] Mastering Image Warping Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-video-visibility-ethically-one-million-in-views/"><u>2024 Approved Elevate Your Video Visibility Ethically One Million in Views</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/can-genuine-interests-lead-to-natural-channel-growth-in-2024/"><u>Can Genuine Interests Lead to Natural Channel Growth, In 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-12-fantastic-no-cost-film-streamers-online/"><u>Discover 12 Fantastic No-Cost Film Streamers Online</u></a></li>
+<li><a href="https://windows11.techidaily.com/ditching-the-default-store-on-new-windows-11/"><u>Ditching the Default Store on New Windows 11</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-rtx-3amo-driver-version-for-windows-11-8-and-7-free-download-guide/"><u>Get the Newest RTX 3Amo Driver Version for Windows 11, 8 and 7 - Free Download Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-convert-youtube-videos-to-gifs-no-download/"><u>How to Convert YouTube Videos to GIFs [No Download]</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-reactivate-a-nonfunctional-nvidia-cp-on-windows-11/"><u>How to Reactivate a Nonfunctional Nvidia CP on Windows 11</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-vivo-y56-5g-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Vivo Y56 5G FRP</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-coordinating-a-course-through-combined-youtube-watches/"><u>In 2024, Coordinating a Course Through Combined YouTube Watches</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-heaviest-drone-assemblies-essential-top-ten-lists/"><u>In 2024, Heaviest Drone Assemblies Essential Top-Ten Lists</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-mastering-channels-on-the-fly-tubebuddy-essentials/"><u>In 2024, Mastering Channels on the Fly - TubeBuddy Essentials</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-editors-edge-exploring-the-best-of-youtube-video-tools/"><u>The Editor's Edge Exploring the Best of YouTube Video Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtubes-shorts-a-deep-dive-into-content-creation-and-revenue/"><u>YouTube's Shorts A Deep Dive Into Content Creation and Revenue</u></a></li>
 </ul></div>
 

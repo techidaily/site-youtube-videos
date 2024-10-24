@@ -1,7 +1,7 @@
 ---
 title: "\"Quick Guide  Crafting YouTube Thumbnails on Your Phone\""
-date: 2024-10-15T22:17:40.384Z
-updated: 2024-10-18T21:21:24.325Z
+date: 2024-10-21T18:22:23.874Z
+updated: 2024-10-24T18:20:53.219Z
 tags:
   - ai video
   - ai youtube
@@ -124,13 +124,6 @@ Step1 Open the YouTube app on your mobile device and sign in to your account.
 
 ![youtube install](https://images.wondershare.com/filmora/article-images/youtube-home.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 ![youtube select video](https://images.wondershare.com/filmora/article-images/youtube-select-video.JPG)
@@ -143,25 +136,25 @@ Step4 Tap the **Custom thumbnail** button and **upload** the image you want to u
 
 ![youtube upload thumbnail](https://images.wondershare.com/filmora/article-images/youtube-upload-thumbnail.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
 ![youtube save thumbnail](https://images.wondershare.com/filmora/article-images/youtube-save-thumbnail.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## It May Interest You – Make YouTube Thumbnails on Windows/Mac
 
@@ -221,13 +214,6 @@ The recommended size for YouTube thumbnails is 1280 x 720 pixels. This size bala
 
 For example, a thumbnail may be displayed at a larger size when it's shown as the main thumbnail for a video but smaller when it's shown in a list of related videos.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Q3\. What Thumbnail Gets the Most Clicks?
 
 There is no one-size-fits-all answer to this question, as the thumbnail that gets the most clicks can vary depending on the topic of your video, your target audience, and other factors.
@@ -258,16 +244,16 @@ Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
 
 ![pixellab editing options](https://images.wondershare.com/filmora/article-images/pixellab-editing-options.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 Add text to the image and **customize** it to your liking.
 
@@ -276,13 +262,6 @@ Step4 Add text to the image and **customize** it to your liking.
 Step5 Change the resolution of the image to **1280 x 720 pixels**.
 
 ![pixellab change resolution](https://images.wondershare.com/filmora/article-images/pixellab-change-resolution.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step6 Save the image to your gallery by exporting it.
 
@@ -387,18 +366,18 @@ The recommended size for YouTube thumbnails is 1280 x 720 pixels. This size bala
 
 For example, a thumbnail may be displayed at a larger size when it's shown as the main thumbnail for a video but smaller when it's shown in a list of related videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Q3\. What Thumbnail Gets the Most Clicks?
 
 There is no one-size-fits-all answer to this question, as the thumbnail that gets the most clicks can vary depending on the topic of your video, your target audience, and other factors.
 
 However, the key to getting clicks on your thumbnail is to make it visually appealing and relevant to your video. Experiment with different thumbnail designs and track which ones get the most clicks to help you identify what works best for your channel.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -462,6 +441,13 @@ Think of a lot of the banners you find on these sites as templates. After downlo
 
 Do you know anywhere else creators can get Minecraft YouTube banners?
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Record & Edit YouTube Gaming Videos with Filmora
 
 As one of the best video editing software for YouTubers, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
@@ -471,10 +457,10 @@ As one of the best video editing software for YouTubers, [Filmora](https://tools
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -552,6 +538,20 @@ There are a few sites where you can find Minecraft-themed channel art, and we’
 > * [Best Business Template](#bbt)
 
 [**![free YouTube banner](https://images.wondershare.com/filmora/article-images/50-free-youtube-banners-banner.jpg)**](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Netix on YouTube
 
@@ -654,24 +654,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-pioneering-strategies-to-escalate-your-channels-popularity/"><u>[New] In 2024, Pioneering Strategies to Escalate Your Channel's Popularity</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/roven-techniques-to-amplify-your-youtube-presence/"><u>[New] Proven Techniques to Amplify Your YouTube Presence</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solved-phasmophobia-voice-chat-not-working/"><u>[SOLVED] Phasmophobia Voice Chat Not Working</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-how-to-create-a-youtube-music-playlist/"><u>[Updated] How to Create a YouTube Music Playlist</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-rev-up-with-hubsans-x4-fpv-quadcopter-review/"><u>[Updated] In 2024, Rev Up with Hubsan's X4 FPV Quadcopter Review</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Vivo S18 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-channel-king-and-queen-academy-youtube-excellence/"><u>2024 Approved Channel King & Queen Academy YouTube Excellence</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-correct-yt-monetization-checklist-maximize-your-earnings/"><u>2024 Approved Correct YT Monetization Checklist – Maximize Your Earnings</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/crafting-the-next-big-thing-your-guide-to-youtubes-best-video-types/"><u>Crafting the Next Big Thing Your Guide to YouTube's Best Video Types</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dissecting-mr-beasts-fortune-portfolio-for-2024/"><u>Dissecting Mr. Beast's Fortune Portfolio for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/diy-guide-setting-up-your-computer-as-a-cost-free-digital-media-hub/"><u>DIY Guide: Setting Up Your Computer as a Cost-Free Digital Media Hub</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhancing-youtube-visibility-with-tubebuddy/"><u>Enhancing YouTube Visibility with TubeBuddy</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/entering-the-vtuber-universe-beginning-stages-and-possibilities-for-2024/"><u>Entering the VTuber Universe Beginning Stages & Possibilities for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/fixing-the-moderation-error-issue-with-chatgpt-expert-tips/"><u>Fixing the 'Moderation Error' Issue with ChatGPT - Expert Tips</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-do-beginners-make-a-cool-video-for-youtube-on-mac-for-2024/"><u>How Do Beginners Make a Cool Video for YouTube on Mac for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-10-top-editing-apps-at-no-cost-online/"><u>In 2024, 10 Top Editing Apps at No Cost Online</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/kajis-wealth-kid-star-earnings-surpass-major-celebrities/"><u>Kaji’s Wealth Kid Star Earnings Surpass Major Celebrities</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mkv-playback-issues-on-redmi-note-13-proplus-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV playback issues on Redmi Note 13 Pro+ 5G</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-exploring-the-best-screenshot-apps-for-idevices-for-2024/"><u>[New] Exploring the Best Screenshot Apps for iDevices for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-master-list-of-vimeo-video-capturers/"><u>[New] Master List of Vimeo Video Capturers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-viral-success-the-most-loved-ae-themes-for-social-media/"><u>2024 Approved Viral Success The Most Loved AE Themes for Social Media</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/banner-bonanza-unlimited-50-free-youtube-designs-for-2024/"><u>Banner Bonanza Unlimited 50 FREE YouTube Designs for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/boost-creativity-and-production-in-movies-xp-software/"><u>Boost Creativity and Production in Movies XP Software</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-a-strong-network-how-to-form-effective-youtube-partner-relationships/"><u>Building a Strong Network How to Form Effective YouTube Partner Relationships</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/commanding-youtube-realm-through-strategic-creator-studio-utilization/"><u>Commanding YouTube Realm Through Strategic Creator Studio Utilization</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discover-the-7-most-popular-video-apps-for-iphones-and-android-live-streaming-for-2024/"><u>Discover The 7 Most Popular Video Apps for iPhones & Android Live Streaming for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-user-commentary-for-2024/"><u>Dissecting YouTubes' User Commentary for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/efficient-tactics-for-viewing-subscribers-on-yt-for-2024/"><u>Efficient Tactics for Viewing Subscribers on YT for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-rhythms-riches-the-ultimate-dj-templates-collection/"><u>In 2024, Rhythm's Riches The Ultimate DJ Templates Collection</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-video-conversion-for-vr-enthusiasts-top-picks-and-tips-for-2024/"><u>New Video Conversion for VR Enthusiasts Top Picks and Tips for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/revolutionizing-ai-communication-explore-openais-tailored-store/"><u>Revolutionizing AI Communication: Explore OpenAI’s Tailored Store</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1716464516434-short-film-synopsis-must-know-points/"><u>Short Film Synopsis Must-Know Points!</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/stellar-photo-repair-instant-purchase-and-download/"><u>Stellar Photo Repair: Instant Purchase & Download</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/universal-chatgpt-open-doors-worldwide-communication/"><u>Universal ChatGPT: Open Doors, Worldwide Communication</u></a></li>
 </ul></div>
 

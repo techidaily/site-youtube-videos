@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2024-10-11T16:38:31.464Z
-updated: 2024-10-18T23:09:55.516Z
+date: 2024-10-22T17:09:52.596Z
+updated: 2024-10-24T17:52:20.166Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,18 +141,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-chart-a-course-to-6-figure-growth-with-powerful-tags/"><u>[New] Chart a Course to 6-Figure Growth with Powerful #Tags</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-pinpointing-instagram-follower-losses-on-the-fly/"><u>[New] In 2024, Pinpointing Instagram Follower Losses on the Fly</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-cutting-edge-techniques-mastering-youtube-subtitlecc-additions/"><u>[Updated] Cutting-Edge Techniques Mastering YouTube Subtitle/CC Additions</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-female-gamers-faction-yts-10-stars-for-2024/"><u>[Updated] Female Gamers Faction YT's #10 Stars for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-entering-the-fullscreen-realm-choosing-a-cms/"><u>2024 Approved Entering the Fullscreen Realm Choosing a CMS</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/boost-engagement-with-pinterest-on-your-page-a-tutorial-for-facebook-users/"><u>Boost Engagement with Pinterest on Your Page: A Tutorial for Facebook Users</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-galaxy-a15-4g-has-native-mov-support-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Galaxy A15 4G has native MOV support?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-scripts-to-screen-making-youtube-splits/"><u>From Scripts to Screen Making YouTube Splits</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-channel-hunt-best-historical-youtubes-that-every-student-should-watch/"><u>In 2024, Channel Hunt Best Historical YouTubes That Every Student Should Watch</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-vivo-x-flip-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Vivo X Flip Phone</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-windows-10-update-error-0xc1900208-expert-tips-and-solutions/"><u>Resolving Windows 10 Update Error 0xC1900208: Expert Tips and Solutions</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/understanding-the-windows-10-battery-status-screen-a-comprehensive-guide/"><u>Understanding the Windows 10 Battery Status Screen - A Comprehensive Guide</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/1728466846817-windows-10-outlook/"><u>Windows 10 Outlook メール同期に問題がある時のトラブルシューティング</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-thorough-examination-straightforward-dynamic-range-methods/"><u>[New] 2024 Approved Thorough Examination Straightforward Dynamic Range Methods</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-top-strategies-for-documenting-youtube-real-time-broadcast/"><u>[New] Top Strategies for Documenting YouTube Real-Time Broadcast</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-can-instant-subscription-lead-to-higher-watch-time/"><u>[Updated] Can Instant Subscription Lead to Higher Watch Time?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-disable-non-specific-youtube-video-alerts/"><u>[Updated] Disable Non-Specific YouTube Video Alerts</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-first-offset-guide-affordable-channel-buys-to-monetize-for-2024/"><u>[Updated] First Offset Guide Affordable Channel Buys to Monetize for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-crucial-top-5-smallest-action-recorders-review/"><u>[Updated] In 2024, Crucial Top 5 Smallest Action Recorders Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-the-course-from-adsense-income-to-savings-for-2024/"><u>Charting the Course From AdSense Income to Savings for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>Enhance Your Presence Best Free Tools for Intriguing Openings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/event-ready-top-dj-templates-download-guide/"><u>Event-Ready Top DJ Templates Download Guide</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/full-guide-to-unlock-iphone-7-with-itunes-by-drfone-ios/"><u>Full Guide to Unlock iPhone 7 with iTunes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/get-free-stock-footage-from-these-4-youtube-channels/"><u>Get Free Stock Footage From These 4 YouTube Channels</u></a></li>
+<li><a href="https://fox-that.techidaily.com/identifying-an-imessage-block-tips-and-signs/"><u>Identifying an iMessage Block: Tips and Signs</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-intelligent-viewing-syncing-youtube-with-televisions/"><u>In 2024, Intelligent Viewing Syncing YouTube with Televisions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-depth-guide-to-video-money-making-across-platforms/"><u>In-Depth Guide to Video Money-Making Across Platforms</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigate-with-ease-to-windows-11s-security-management/"><u>Navigate with Ease to Windows 11’S Security Management</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pixelperfect-editor/"><u>PixelPerfect Editor</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-wise-implementation-of-ms-defender-application-guard-in-edge-browser/"><u>Step-Wise Implementation of MS Defender Application Guard in Edge Browser</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1716465777166-transform-spaceships-into-trees-youtubes-green-secrets-revealed/"><u>Transform Spaceships Into Trees – Youtube’s Green Secrets Revealed!</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/video-editing-on-a-shoestring-16-free-and-intuitive-movie-makers/"><u>Video Editing on a Shoestring 16 Free and Intuitive Movie Makers</u></a></li>
 </ul></div>
 

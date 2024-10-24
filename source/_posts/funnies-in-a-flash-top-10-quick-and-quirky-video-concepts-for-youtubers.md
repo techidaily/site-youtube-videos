@@ -1,7 +1,7 @@
 ---
 title: "\"Funnies in a Flash  Top 10 Quick & Quirky Video Concepts for YouTubers\""
-date: 2024-08-03T03:42:55.898Z
-updated: 2024-08-04T03:42:55.898Z
+date: 2024-10-23T16:02:46.985Z
+updated: 2024-10-24T18:02:15.180Z
 tags:
   - ai video
   - ai youtube
@@ -26,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/6d08ef0c51b7d66c7e631fe3667e11cb568cec8b1
 
 YouTube is a well-known brand for videos globally. This time, it comes with its extension feature with YouTube Shorts. It is a short video version of 15 to 60 seconds duration using a short camera present in the YouTube application and your smartphone. So, you can use YouTube Shorts ideas for watching and creating those funny and interesting short videos right from your mobile camera with ease.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-1.jpg)
 
 That sounds great, doesn’t it? Let’s move ahead to get a good grab over some funny, engaging, and eye-catching ideas to have YouTube Shorts videos here. No need for a lengthy tutorial to become the real YouTube Shorts champion with the following tips. Let’s roll on, guys!
@@ -51,9 +48,6 @@ Also, you can discuss different sorts of dreams that the human genre has been dr
 
 Who doesn’t love the stories? Everyone is somewhat fond of listening to different kinds of stories. And, if you can trim those long stories into small ones or can create some short stories. Then, you can make the best YouTube Shorts stories ideas that will go a long way, not only kids but unique and exciting stories loved by all.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
 
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
@@ -62,14 +56,6 @@ So, pen down some compelling stories that do not need long writing work. But, li
 
 Pictures are a unique way to express feelings, especially when those funny pictures come with background voices, music, etc., it will create a different audio/visual effect.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-4.jpg)
 
 Using different online software, you can enhance the pictures or modify the background voice. Such a combination under YouTube Shorts Video ideas brings a different aura to your channel.
@@ -88,9 +74,6 @@ Living every moment creates a wonder. Let others also make a part of this journe
 
 If experimenting with chemicals or anything that surrounds you makes you out of the world, then there is the chance that you can come out as YouTube Shorts ideas Star. By just showing how one chemical, when mixed with another, creates something new and marvelous to see, look or feel.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-6.jpg)
 
 Just review all your collection of experiments you did and combine them under YouTube Shorts Channel ideas. And make a big bust with such chemical/physical experiments.
@@ -115,9 +98,6 @@ Just give it a try and dance with the music you create with all the worldwide li
 
 Kids love cartoons, but the hidden fact is that everyone enjoys watching cartoon or cartoon characters to a certain extent. Then why not try mimicking some cartoon characters. If you are a fun-loving person, and in your life, you mimic any person’s character, then try mimicking cartoon characters under YouTube Short Video ideas.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-9.jpg)
 
 Mixing some comedy flavor to life will add more fun and enjoyment to all those seeking funny moments to reflect their days. Come on; show up your humor with this unique style.
@@ -141,8 +121,12 @@ Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Ch
 Wait, there is much more than these best YouTube Shorts ideas. Yes, you heard that right! The following paragraph will lead you to get some important tips, with the help of which you can raise YouTube Short Videos views. So, without waiting anymore, move on to the next paragraph to get a glimpse of it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: Tips to Get More Views for Your YouTube Shorts Videos
 
 Creating ideas for YouTube Shorts videos alone is not sufficient to grab more views. Some specific golden rules or tips will leap while catching more views to the YouTube Short Videos while applying the above ideas. Let’s understand them.
@@ -187,10 +171,14 @@ Then, indeed, this guide is the pathway. You will get different funny YouTube Sh
 
 Thus, start utilizing these powerful ideas and tips and head towards your YouTube Shorts journey.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -198,11 +186,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-free-to-paid-transitioning-your-channel-via-partnership/"><u>[New] 2024 Approved From Free to Paid Transitioning Your Channel via Partnership</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-boosting-viewership-mastery-in-youtube-shorts-design/"><u>[New] Boosting Viewership Mastery in YouTube Shorts Design</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-elevate-your-expression-a-gallery-of-stunning-video-themes-for-tiktok/"><u>[New] Elevate Your Expression A Gallery of Stunning Video Themes for TikTok</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-edit-youtube-videos/"><u>[Updated] 2024 Approved How To Edit YouTube Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-youtube-video-screens-without-barriers/"><u>2024 Approved Enhancing YouTube Video Screens Without Barriers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/defeating-dissidence-a-guide-for-content-makers-for-2024/"><u>Defeating Dissidence A Guide for Content Makers for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-magic-in-a-sleek-package-the-dell-xps-13-7390-ultrabook-review-a-hybrid-laptop-like-no-other/"><u>Discover the Magic in a Sleek Package - The Dell XPS 13 (7390) Ultrabook Review: A Hybrid Laptop Like No Other</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-a-gamers-guide-to-twisting-videos-on-youtube-2e/"><u>In 2024, A Gamer's Guide to Twisting Videos on YouTube (2E)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-charting-updates-youtube-money-standards/"><u>In 2024, Charting Updates YouTube Money Standards</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-steps-to-create-youtube-beginnings-and-ends-on-a-budget/"><u>In 2024, Essential Steps to Create YouTube Beginnings & Ends on a Budget</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/internet-idolaters-top-ten-youtube-sensations/"><u>Internet Idolaters Top Ten YouTube Sensations</u></a></li>
+<li><a href="https://common-error.techidaily.com/mastering-twitch-stability-in-depth-fixes-for-overcoming-error-4000/"><u>Mastering Twitch Stability: In-Depth Fixes for Overcoming Error 4000</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/seamless-transformation-of-wmv-files-guide-to-converting-to-mp4-mov-and-more/"><u>Seamless Transformation of WMV Files: Guide to Converting to MP4, MOV, and More</u></a></li>
+<li><a href="https://win-superb.techidaily.com/step-by-step-guide-setting-up-block-level-incremental-backup-on-your-windows-pc/"><u>Step-by-Step Guide: Setting Up Block-Level Incremental Backup on Your Windows PC</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-5-youtube-link-shortener-you-must-try/"><u>Top 5 YouTube Link Shortener You Must Try</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/top-tier-free-screen-capture-programs-2023-edition/"><u>Top-Tier Free Screen Capture Programs – 2023 Edition</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-and-solving-the-0x80070490-error-on-your-windows-system/"><u>Troubleshooting and Solving the 0X80070490 Error on Your Windows System</u></a></li>
+</ul></div>
+

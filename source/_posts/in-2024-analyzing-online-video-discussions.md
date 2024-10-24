@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Analyzing Online Video Discussions"
-date: 2024-08-03T03:46:44.579Z
-updated: 2024-08-04T03:46:44.579Z
+date: 2024-10-18T17:32:41.644Z
+updated: 2024-10-24T17:54:59.136Z
 tags:
   - ai video
   - ai youtube
@@ -57,16 +57,17 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -77,11 +78,14 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 4. Tap on ‘Load comments’ and wait till the extension loads all the comments on the video.
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -109,9 +113,6 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -119,9 +120,12 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -130,9 +134,6 @@ You can see all the comments you have posted in the Comment History in a few qui
 2. Once you sign in, click on the three horizontal lines at the top left corner of your YouTube page.
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
@@ -160,13 +161,18 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -174,3 +180,27 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-pitch-perfect-a-handbook-to-modifying-sound-on-ig-media/"><u>[New] 2024 Approved Pitch Perfect A Handbook to Modifying Sound on IG Media</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-thors-quest-legends-of-the-ragnarok/"><u>[New] Thor's Quest Legends of the Ragnarök</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-audiovisual-quality-its-significance-in-video-ranking/"><u>[Updated] Audiovisual Quality Its Significance in Video Ranking</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crystal-clear-capture-amping-up-your-home-studio-recordings/"><u>2024 Approved Crystal Clear Capture Amping Up Your Home Studio Recordings</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unveiling-ar-a-modern-illusionists-toolkit/"><u>2024 Approved Unveiling AR A Modern Illusionist's Toolkit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-microsofts-high-end-surface-studio-2/"><u>Comprehensive Evaluation of Microsoft's High-End Surface Studio 2</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-youtube-video-trailers-with-filmoras-guide/"><u>Crafting YouTube Video Trailers with Filmora's Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/deleting-youtube-content-a-step-by-step-guide/"><u>Deleting YouTube Content A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/entry-level-landing-low-cost-profitable-youtube-platforms/"><u>Entry Level Landing Low-Cost, Profitable YouTube Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-ensuring-effective-monetization-strategies-for-yt-channels/"><u>In 2024, Ensuring Effective Monetization Strategies for YT Channels</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/premiere-music-collections-for-visual-media/"><u>Premiere Music Collections for Visual Media</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/quick-and-easy-guide-to-lossless-dvd-backup-within-5-minutes/"><u>Quick and Easy Guide to Lossless DVD Backup Within 5 Minutes</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-instructions-for-obtaining-your-epson-xp-400-driver-software/"><u>Step-by-Step Instructions for Obtaining Your Epson XP 400 Driver Software</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-by-step-success-on-youtube-with-spectacision-music-videos/"><u>Step-by-Step Success on Youtube with Spectacision Music Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-art-of-crafting-compelling-video-covers/"><u>The Art of Crafting Compelling Video Covers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/triumphs-in-transparency-reddits-top-posts-reviewed-10-for-2024/"><u>Triumphs in Transparency Reddit's Top Posts Reviewed (10) for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1716465364441-unlock-6-free-youtube-endings-for-pros/"><u>Unlock 6 Free YouTube Endings for Pros!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-11-users-guide-comprehensive-fix-for-keyboard-input-latency/"><u>Windows 11 Users Guide: Comprehensive Fix for Keyboard Input Latency</u></a></li>
+</ul></div>
+

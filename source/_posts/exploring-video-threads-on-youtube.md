@@ -1,7 +1,7 @@
 ---
 title: "Exploring Video Threads on YouTube"
-date: 2024-08-03T03:44:39.258Z
-updated: 2024-08-04T03:44:39.258Z
+date: 2024-10-18T16:54:25.935Z
+updated: 2024-10-24T17:41:44.685Z
 tags:
   - ai video
   - ai youtube
@@ -57,12 +57,16 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 You can combine these additional filters to narrow your comments search for YouTube.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
@@ -74,10 +78,21 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 4. Tap on ‘Load comments’ and wait till the extension loads all the comments on the video.
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -105,18 +120,12 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -125,16 +134,10 @@ You can see all the comments you have posted in the Comment History in a few qui
 2. Once you sign in, click on the three horizontal lines at the top left corner of your YouTube page.
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -158,13 +161,18 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -172,3 +180,24 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-ajeys-path-to-prosperity-monetizing-his-online-presence/"><u>[New] Ajey's Path to Prosperity Monetizing His Online Presence</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-edit-with-ease-prime-10-converters-unveiled/"><u>[New] In 2024, Edit with Ease Prime 10 Converters Unveiled</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-elevate-your-edits-with-these-top-5-tools-no-youtube/"><u>[New] In 2024, Elevate Your Edits with These Top 5 Tools (No Youtube)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-timeless-videos-with-retro-filmmaking-skills/"><u>2024 Approved Crafting Timeless Videos with Retro Filmmaking Skills</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-creating-captivating-thumbnails-for-youtube/"><u>2024 Approved Creating Captivating Thumbnails for YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-mobile-media-apps-for-high-quality-photographyvideography/"><u>2024 Approved Essential Mobile Media Apps for High-Quality Photography/Videography</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-a-customized-soundscape-youtube-playlist-building-on-the-internetapps-for-2024/"><u>Crafting a Customized Soundscape YouTube Playlist Building on the Internet/Apps for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-features-and-mechanisms-after-uploading-content-for-2024/"><u>Dissecting YouTube’s Features and Mechanisms After Uploading Content for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-the-newest-ryzen-graphics-driver-software/"><u>Download & Install: The Newest Ryzen Graphics Driver Software</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-youtube-video-screens-without-barriers-for-2024/"><u>Enhancing YouTube Video Screens Without Barriers for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-best-practices-for-obs-based-skype-recording/"><u>In 2024, Best Practices for OBS-Based Skype Recording</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Samsung Galaxy M14 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-understanding-watermarks-and-protecting-fb-pics/"><u>In 2024, Understanding Watermarks & Protecting FB Pics</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/panorama-pixels-cutting-edge-photo-assembler/"><u>Panorama Pixels Cutting-Edge Photo Assembler</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/setting-up-a-facebook-donation-challenge-for-2024/"><u>Setting Up a Facebook Donation Challenge for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/step-by-step-guide-to-crafting-entertaining-fifa-18-tournament-gifs-sans-adobe/"><u>Step-by-Step Guide to Crafting Entertaining FIFA '18 Tournament GIFs Sans Adobe</u></a></li>
+</ul></div>
+

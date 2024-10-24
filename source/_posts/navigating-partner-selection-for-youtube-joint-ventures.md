@@ -1,7 +1,7 @@
 ---
 title: "Navigating Partner Selection for YouTube Joint Ventures"
-date: 2024-10-06T00:44:51.795Z
-updated: 2024-10-12T23:31:25.465Z
+date: 2024-10-22T17:56:28.373Z
+updated: 2024-10-24T17:45:08.664Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,13 @@ People sub to Roberto for tech advice, for example, so it makes sense for him to
 
 If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips From YouTube Guru Nich Nimmin
 
 This is a collab video about collab videos! **[Nick Nimmin’s](https://www.youtube.com/channel/UCei6wyubYC1I1FwZ54LZFiA)** channel is all about YouTube, and Brandon’s channel **[OnePercentBetter](https://www.youtube.com/channel/UCRI6t05DNVlV0XhdI7hx%5Fiw)** has tons of cool self-development animations. It’s Brandon giving the tips in this video, and 3 of his best are:
@@ -78,6 +85,13 @@ When you’re approaching someone for the first time, don’t overwhelm them wit
 #### **3\. Have ideas.**
 
 Don’t make your potential partner do the work of pitching ideas to you. Be open to their ideas, but come up with 1 or 2 ideas of your own you can mention when you approach the creator you want to work with. People will be more likely to say ‘yes’ to a specific idea than to the idea of collaborating in general, if they don’t already know you.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tips From Freelancer / Lifestyle Vlogger Amy Schmittauer
 
@@ -97,13 +111,6 @@ If you appeared in someone else’s video, you would probably appreciate it if t
 
  _Collab advice starts at around 2:10._
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
 
 **[Eva Gutowski](https://www.youtube.com/user/mylifeaseva/featured)** (MyLifeAsEva) is a lifestyle, fashion, and DIY YouTuber who has done numerous collaborations and believes in making real friends on YouTube. In the video above she shares some of her experiences and talks about how to come across as a real person when you approach other YouTubers about collaborating.
@@ -122,31 +129,30 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
 
  Do you have any of your advice on YouTube collaborations?
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Excellent YouTube Video Editor Always Save Your Time
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -164,16 +170,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-premium-avplayer-xpress-for-mobile-and-desktop-users/"><u>[New] In 2024, Premium AVPlayer Xpress for Mobile & Desktop Users</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/achieve-high-rankings-on-youtube-with-top-seo-tips-1-11-for-2024/"><u>Achieve High Rankings on YouTube with Top SEO Tips (1-11) for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/breaking-barriers-youtube-marketing-mastery-for-2024/"><u>Breaking Barriers YouTube Marketing Mastery for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/deciphering-digital-domination-a-deep-dive-into-directors-videos-for-2024/"><u>Deciphering Digital Domination A Deep Dive Into Directors' Videos for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-the-language-of-asmr-videos-for-2024/"><u>Decoding the Language of ASMR Videos for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/diving-into-viral-video-dialogues/"><u>Diving Into Viral Video Dialogues</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/efficiently-multitask-with-split-screen-mode-on-macbook-air-a-how-to-guide/"><u>Efficiently Multitask with Split Screen Mode on MacBook Air – A How-To Guide</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-ultimate-guide-to-saving-youtube-tracks-and-dialogues/"><u>In 2024, The Ultimate Guide to Saving YouTube Tracks & Dialogues</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/rhythmic-resonance-harmony-for-visuals-for-2024/"><u>Rhythmic Resonance Harmony for Visuals for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/step-wise-process-of-integrating-voice-over-into-videos/"><u>Step-Wise Process of Integrating Voice Over Into Videos</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722962402764-the-decision-must-be-made-between-two-options-neither-of-which-is-correct-or-wrong-but-may-involve-different-values/"><u>The Decision Must Be Made Between Two Options, neither of Which Is Correct or Wrong but May Involve Different Values</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-pro-tips-for-the-best-pc-snipping-software-of-today/"><u>[New] In 2024, Pro Tips for the Best PC Snipping Software of Today</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-vids-to-mp3s-a-noobs-guide-revealed/"><u>[New] Instagram Vids to MP3s - A Noob's Guide Revealed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-avoiding-pitfalls-in-sub4sub-key-lessons-from-a-seasoned-guide/"><u>2024 Approved Avoiding Pitfalls in Sub4sub Key Lessons From a Seasoned Guide</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/a-beginners-guide-to-preparing-images-for-print-using-photoshop/"><u>A Beginner's Guide to Preparing Images for Print Using Photoshop</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-vivo-v30-lite-5g-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Vivo V30 Lite 5G</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/become-the-brand-you-want-with-our-exclusive-set-of-free-graphics-for-2024/"><u>Become the Brand You Want With Our Exclusive Set of FREE Graphics for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-of-the-best-cutting-edge-hiring-videos-1-10/"><u>Best of the Best Cutting-Edge Hiring Videos #1-10</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cutting-edge-techniques-for-aspiring-youtube-game-streamers-for-2024/"><u>Cutting-Edge Techniques for Aspiring YouTube Game Streamers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-your-footage-imovie-videos-for-youtube-enthusiasts/"><u>Elevating Your Footage IMovie Videos for YouTube Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fb-video-highlights-our-top-5-favorites/"><u>In 2024, FB Video Highlights Our Top 5 Favorites</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-premier-selection-of-iphone-x876-compatible-gif-apps/"><u>In 2024, Premier Selection of iPhone X/8/7/6-Compatible GIF Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/omplete-guide-to-edit-your-video-with-youtube-studio-editor-for-2024/"><u>The Complete Guide to Edit Your Video with YouTube Studio Editor for 2024</u></a></li>
 </ul></div>
 

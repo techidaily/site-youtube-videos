@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Confidence  Tips for Trending on YouTube\""
-date: 2024-10-13T22:49:05.857Z
-updated: 2024-10-18T16:00:58.613Z
+date: 2024-10-18T17:30:10.066Z
+updated: 2024-10-24T17:44:57.731Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -59,10 +66,10 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -72,13 +79,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -92,6 +92,19 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -102,6 +115,13 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -111,19 +131,6 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -149,13 +156,6 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -173,24 +173,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unveiling-ffmpegs-potential-for-original-formatted-audio-retrieval/"><u>[New] 2024 Approved Unveiling FFmpeg's Potential for Original Formatted Audio Retrieval</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-effortless-video-streams-youtube-loops-for-television-viewers/"><u>[New] Effortless Video Streams YouTube Loops for Television Viewers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-from-novice-to-expert-your-pathway-in-instagram-reels/"><u>[New] From Novice to Expert Your Pathway in Instagram Reels</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-professionals-playbook-refined-gopro-video-production-techniques/"><u>[New] In 2024, The Professional's Playbook Refined GoPro Video Production Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/10-best-cost-free-subtitle-grabs-from-youtube/"><u>10 Best Cost-Free Subtitle Grabs From YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-choosing-your-go-to-youtube-video-downloaders-on-android-platform/"><u>2024 Approved Choosing Your Go-To YouTube Video Downloaders on Android Platform</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/accessing-your-curated-music-lists-on-youtube/"><u>Accessing Your Curated Music Lists on Youtube</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1722897520161-alexa-vs-google-assistant-comparing-the-top-voice-ai-assistants/"><u>Alexa Vs. Google Assistant: Comparing the Top Voice AI Assistants</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/become-a-science-whiz-with-these-prime-15-youtube-picks/"><u>Become a Science Whiz with These Prime 15 YouTube Picks</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/bridging-pc-gaps-with-chatgpt-expertise/"><u>Bridging PC Gaps with ChatGPT Expertise</u></a></li>
-<li><a href="https://program-issues.techidaily.com/eliminating-glitched-graphics-a-guide-for-warzone-players-dealing-with-screen-flares/"><u>Eliminating Glitched Graphics: A Guide for Warzone Players Dealing with Screen Flares</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elite-screening-pacts-how-to-choose-a-cms/"><u>Elite Screening Pacts How to Choose a CMS</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-apple-iphone-11-pro-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>How to Change GPS Location on Apple iPhone 11 Pro Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-channel-mastery-leverage-customizable-description-templates-for-more-followers/"><u>In 2024, Channel Mastery Leverage Customizable Description Templates for More Followers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-cinematic-composer-software/"><u>In 2024, Cinematic Composer Software</u></a></li>
-<li><a href="https://win-help.techidaily.com/resolving-the-inaccessible-boot-device-error-on-your-acer-laptop-4-effective-methods/"><u>Resolving the 'Inaccessible Boot Device' Error on Your Acer Laptop: 4 Effective Methods</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/tips-for-handling-numerous-youtube-clips-concurrently/"><u>Tips for Handling Numerous YouTube Clips Concurrently</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/top-8-windows-compatible-ios-apps-for-android-users/"><u>Top 8 Windows-Compatible iOS Apps for Android Users</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/transform-your-design-with-the-affordable-elegoo-neptune-x4-pro-for-only-284/"><u>Transform Your Design with the Affordable Elegoo Neptune X4 Pro for Only $284!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-a-guide-to-finding-hidden-youtube-treasures/"><u>[New] A Guide to Finding Hidden YouTube Treasures</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-the-financial-pathway-of-tseries-within-youtube-market-space/"><u>[New] Charting the Financial Pathway of TSeries Within YouTube Market Space</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-state-of-the-vr-industry/"><u>[New] In 2024, State of the VR Industry</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-list-best-7-camcorders-for-waterproof-use/"><u>[Updated] The Ultimate List Best 7 Camcorders for Waterproof Use</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1716464360802-easy-paths-to-profitable-youtube-business-channels-top-10-list/"><u>Easy Paths to Profitable YouTube Business Channels, Top 10 List!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-much-wealth-can-you-generate-on-youtube-using-cpm/"><u>How Much Wealth Can You Generate on YouTube Using CPM?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/mastering-the-art-of-making-your-youtube-shorts-appear-consistently/"><u>Mastering The Art Of Making Your YouTube Shorts Appear Consistently</u></a></li>
+<li><a href="https://games-able.techidaily.com/maximize-your-macs-gaming-capability-with-baldurs-gate-3/"><u>Maximize Your Mac's Gaming Capability with Baldur’s Gate 3</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/aiocr-abbyy/"><u>モバイル用AIによるOCR領収書管理製品 - ABBYYモバイルキャプチャ</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Unlocking High-Profile Discussions\""
-date: 2024-10-17T17:33:19.330Z
-updated: 2024-10-18T21:01:35.933Z
+date: 2024-10-17T18:15:49.704Z
+updated: 2024-10-24T17:37:56.203Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,13 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -61,22 +68,15 @@ YouTube has been working on improving the navigation of the comment section for 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
 
@@ -86,6 +86,13 @@ Thus, anybody who wants to get their YouTube comment an HC tag has to follow a f
 
 For example, if you are a YouTuber who deals in tech information, you need to look for a popular video or channel with a similar genre, in this case, technical knowledge. The more popular the channel is, the more is the chance of a viewer checking the comments on its videos. You will only benefit if you're comment is highlighted on pages of Youtuber's who are huge.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Get the URL of Highlighted Comments?
 
 The ways to acquire the URL or link for a highlighted comment are different for both parties- viewer and host.
@@ -94,14 +101,14 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
 ## Part 5: How to Reply to Highlighted Comments?
 
@@ -124,13 +131,6 @@ Alternatively, you can try out a few temporary solutions.
 <https://www.youtube.com/watch?v=XWhjJjhpmQA>
 
 1. Try logging out from your Google Account and browse YouTube (anonymously). Doing this will ensure that you no longer see any highlighted comments. However, at the same time, this will restrict you from interacting in any way with that video, let alone leaving a comment.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 7: Tips for Writing a Comment that will be Pinned as a Highlighted Comment?
 
@@ -177,22 +177,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-basic-tips-how-to-record-and-save-google-voice-calls/"><u>[New] Basic Tips How to Record and Save Google Voice Calls</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-pickus-triumph-in-android-photo-editing-a-comprehensible-review/"><u>[New] PickU's Triumph in Android Photo Editing – A Comprehensible Review</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-vision-to-execution-the-full-spectrum-of-personal-branding-on-youtube-for-2024/"><u>[Updated] From Vision to Execution The Full Spectrum of Personal Branding on YouTube for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-2023-browser-snapshot-winners-announced/"><u>[Updated] In 2024, 2023 Browser Snapshot Winners Announced</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-the-hidden-pathway-to-logging-in-depth-whatsapp-chats-for-2024/"><u>[Updated] The Hidden Pathway to Logging In-Depth WhatsApp Chats for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boost-popularity-quickly-top-30-hashtags-every-gamer-needs/"><u>Boost Popularity Quickly Top 30 Hashtags Every Gamer Needs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-transformation-through-strategic-use-of-youtube-outros-for-2024/"><u>Channel Transformation Through Strategic Use of YouTube Outros for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channeling-success-the-personal-brand-strategy-for-youtubers/"><u>Channeling Success The Personal Brand Strategy for YouTubers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/finding-the-ideal-format-for-your-youtube-videos/"><u>Finding the Ideal Format for Your YouTube Videos</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/guida-passo-passo-come-fare-il-backup-di-una-scheda-sd-sul-pc/"><u>Guida Passo-Passo: Come Fare Il Backup Di Una Scheda SD Sul PC</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-6-figure-views-prime-hashtag-strategies-for-success/"><u>In 2024, 6-Figure Views Prime Hashtag Strategies for Success</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-optimizing-control-switch-pro-for-steam-gaming/"><u>In 2024, Optimizing Control Switch Pro for Steam Gaming</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/rhythmic-revelations-top-15-vlogs-celebrating-music-creators-stories/"><u>Rhythmic Revelations Top 15 Vlogs Celebrating Music Creators' Stories</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-6-free-online-tools-for-downloading-youtube-shorts/"><u>Top 6 Free, Online Tools for Downloading YouTube Shorts</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-the-unresponsive-space-bar-key-in-windows-10/"><u>Troubleshooting the Unresponsive Space Bar Key in Windows 10</u></a></li>
-<li><a href="https://techidaily.com/1723808215753-unlock-the-secrets-of-your-digital-footprint-find-your-ip-for-free-now/"><u>Unlock the Secrets of Your Digital Footprint: Find Your IP for Free Now!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-youtubes-viewer-count-secret-weights/"><u>Unlocking YouTube's Viewer Count Secret Weights</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-synergy-strategies-for-ig-and-tiktok-for-2024/"><u>[Updated] Synergy Strategies for IG & TikTok for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-discovering-the-hidden-gems-in-asmr-creation/"><u>2024 Approved Discovering the Hidden Gems in ASMR Creation</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-efficient-techniques-for-youtube-shorts-revenue/"><u>2024 Approved Efficient Techniques for YouTube Shorts Revenue</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-edits-a-selection-of-top-9-free-software-choices/"><u>2024 Approved Elevate Your Edits A Selection of Top 9 Free Software Choices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/amplifying-video-reach-the-ultimate-guide-for-youtube-enthusiasts-for-2024/"><u>Amplifying Video Reach The Ultimate Guide for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/captivate-audiences-techniques-for-livestreaming-video-in-spherical-views-on-youtube-for-2024/"><u>Captivate Audiences Techniques for Livestreaming Video in Spherical Views on YouTube for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/como-escribir-en-imagenes-usando-el-editor-de-fotos-de-movavi-un-metodo-sencillo/"><u>Como Escribir en Imágenes Usando El Editor De Fotos De Movavi – Un Método Sencillo</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discover-top-affordable-video-editors-of-2023-today/"><u>Discover Top Affordable Video Editors of 2023 Today</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-pro-max-to-other-iphone-11-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 Pro Max To Other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-honor-x9b-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Honor X9b by Name | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-vivo-v29e-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Vivo V29e to iPhone | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/tech-buzz-alert-anticipated-launch-timeline-for-apples-latest-devices-including-macbook-air-ipad-pro-and-ipad-air-in-march-detailed-analysis/"><u>Tech Buzz Alert: Anticipated Launch Timeline for Apple's Latest Devices Including MacBook Air, iPad Pro & iPad Air in March? Detailed Analysis</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/troubleshoot-intelligently-secure-and-simple-solutions-for-intels-advanced-audio-tech-issues/"><u>Troubleshoot Intelligently: Secure and Simple Solutions for Intel's Advanced Audio Tech Issues</u></a></li>
 </ul></div>
 

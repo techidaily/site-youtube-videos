@@ -1,7 +1,7 @@
 ---
 title: Optimizing Warzone Gameplay on Windows 11 by Utilizing Your GPU
-date: 2024-10-15T20:57:21.760Z
-updated: 2024-10-18T19:03:01.026Z
+date: 2024-10-20T17:33:12.440Z
+updated: 2024-10-24T17:48:01.953Z
 tags:
   - win11
   - win10
@@ -43,10 +43,10 @@ If you’re experiencing Dota 2 FPS drops on your Windows computer, don’t worr
 3. It may take some time to finish verifying the game files.  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://www.drivereasy.com/wp-content/uploads/2021/04/image-1.png)
@@ -80,14 +80,20 @@ There are mainly two methods for you to update the graphics driver:
 ![](https://www.drivereasy.com/wp-content/uploads/2021/05/NVIDIA-GeForce-RTX-3090-Ti.jpg)
 4. Restart your computer for the change to take effect.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 3: Install the latest game patch
 
@@ -97,13 +103,6 @@ There are mainly two methods for you to update the graphics driver:
 
  Run Dota 2 again to see whether the FPS is back to normal. If it didn’t work, or there was no new game patch available, move on to the next fix, below.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 4: Turn off the Steam Overlay
 
  If you have the Steam Overlay turned on and FPS drops while playing Dota 2, just try disabling Steam Overlay for Dota 2 to see FPS increases. Here is how to do it:
@@ -112,14 +111,20 @@ There are mainly two methods for you to update the graphics driver:
 ![steam dota2 properties](https://images.drivereasy.com/wp-content/uploads/2021/04/steam-dota2-properties.jpg)
 2. In the GENERAL section, Uncheck **Enable Steam Overlay while in-game** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Disable steam overlay in Dota 2](https://images.drivereasy.com/wp-content/uploads/2021/04/Disable-steam-overlay-in-Dota-2.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Launch Dota 2 to see if the game runs smoothly. If the issue persists, try the next fix, below.
 
@@ -145,10 +150,10 @@ There are mainly two methods for you to update the graphics driver:
  Launch Dota 2 to see if you get a better FPS. If not, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 6: Modify the graphics settings
@@ -172,15 +177,15 @@ There are mainly two methods for you to update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-category.jpg)
 3. Select **NVIDIA Control Panel**  to open it.  
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/nividia-control-panel.jpg)
 4. Click **Manage 3D Settings** on the left, then navigate to the**Program Settings** tab. In the**Select a program to customize:** part, add Dota 2 from the program list.  
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Dota 2 modify Nvidia control panel](https://images.drivereasy.com/wp-content/uploads/2021/04/Dota-2-modify-Nvidia-control-panel.jpg)
 5. In the**Specify the settings for this program** : part, modify the following settings:  
@@ -212,6 +217,13 @@ There are mainly two methods for you to update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-Graphics-Settings.jpg)
 4. Click **3D** to open the 3D settings.  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-graphics-3D-settings.jpg)
 5. Click **Scan** to add the game to the application list.  
@@ -247,20 +259,14 @@ To modify Windows OS graphics settings, follow the steps below:
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/image-57.png)
 3. Select**Dota 2** from the list of apps, and select**High performance** .  
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/image-56.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 3: Modify in-game graphics settings
 
@@ -269,6 +275,13 @@ To modify Windows OS graphics settings, follow the steps below:
 1. Launch Dota 2 and click**the cog icon** on the upper-left corner to open game settings.
 2. Navigate to the**VIDEO** tab and follow the instructions below to modify the in-game graphics settings:  
 ![](https://www.drivereasy.com/wp-content/uploads/2021/04/Modify-in-game-settings-dota-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Resolution
 
@@ -320,13 +333,6 @@ To set Dota 2 to High priority:
 
  Run Dota 2 to see if the in-game FPS improves. If the FPS is still the same, try the next fix, below.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 8: Restrict applications and downloads in the background
 
  The Dota 2 FPS drops issue may occur if too many applications or programs are running at the same time. So **try restricting applications and downloads in the background** before playing the game to see if this issue reappears. Here is how to do it:
@@ -376,19 +382,18 @@ Launch Dota 2 to see if you resolve the FPS drops issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-breakthrough-vloggers-reviewed-the-best-15-youtube-channels-for-product-reviews-for-2024/"><u>[New] Breakthrough Vloggers Reviewed The Best 15 YouTube Channels for Product Reviews for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-dive-into-video-production-mastering-green-screens-on-yt/"><u>[New] Dive Into Video Production Mastering Green Screens on YT</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-essential-tips-for-capturing-evening-portraits/"><u>[New] Essential Tips for Capturing Evening Portraits</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-premium-tools-for-6-undetectable-viewings-for-2024/"><u>[New] Premium Tools for 6 Undetectable Viewings for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-revolutionary-ai-for-artistic-photography/"><u>[New] Revolutionary AI for Artistic Photography</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-mastery-over-manual-signal-interpretation-systems/"><u>[Updated] In 2024, Mastery Over Manual Signal Interpretation Systems</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/building-your-own-youtube-organization-toolkit-the-watch-later-way/"><u>Building Your Own YouTube Organization Toolkit The Watch Later Way</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/chasing-channel-currency-the-updated-youtube-partner-guide-for-2024/"><u>Chasing Channel Currency The Updated Youtube Partner Guide for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-remove-flashlight-from-iphone-15-lock-screen-by-drfone-ios/"><u>How To Remove Flashlight From iPhone 15 Lock Screen</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-best-free-youtube-ending-creators-top-6-picks/"><u>In 2024, Best Free YouTube Ending Creators - Top 6 Picks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-dialing-in-on-youtube-success-identifying-ranks-boosters/"><u>In 2024, Dialing in on YouTube Success Identifying Ranks Boosters</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-income-average-adsense-payouts-per-thousand-viewers/"><u>Maximizing Income Average AdSense Payouts Per Thousand Viewers</u></a></li>
-<li><a href="https://techtrends.techidaily.com/retrieve-saved-memories-tips-for-recovering-instagram-reels-youve-archived/"><u>Retrieve Saved Memories: Tips for Recovering Instagram Reels You've Archived</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-free-audio-editing-software-for-m4a-files-top-5/"><u>Updated In 2024, Free Audio Editing Software for M4A Files Top 5</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-simplified-image-editing-getting-rid-of-background-in-one-click/"><u>[Updated] Simplified Image Editing Getting Rid of Background in One Click</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-are-there-restrictions-in-saving-youtube-videos/"><u>2024 Approved Are There Restrictions in Saving YouTube Videos?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-dancefloor-directives-expert-dj-video-downloads/"><u>2024 Approved Dancefloor Directives Expert DJ Video Downloads</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-ultimate-tips-for-mobile-content-capture/"><u>2024 Approved Ultimate Tips for Mobile Content Capture</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/comprehensive-tips-for-monitoring-subscriber-engagement-for-2024/"><u>Comprehensive Tips for Monitoring Subscriber Engagement for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cut-costs-and-boost-creativity-8-online-spots-offering-free-eco-backdrops/"><u>Cut Costs and Boost Creativity 8 Online Spots Offering Free Eco-Backdrops</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cutting-edge-editors-elevating-online-videos/"><u>Cutting-Edge Editors Elevating Online Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ensuring-flawless-sending-of-large-videos-from-iphone-to-mac-pc/"><u>Ensuring Flawless Sending of Large Videos From iPhone to Mac PC</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-access-your-iphone-15-plus-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Access Your iPhone 15 Plus When You Forget the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-mastering-asmr-filming-techniques-essential-tips-unveiled/"><u>In 2024, Mastering ASMR Filming Techniques Essential Tips Unveiled</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/trasforma-file-3gpp-a-video-3gp-online-gratuitamente-tramite-lutilita-di-movavi/"><u>Trasforma File 3GPP a Video 3GP Online Gratuitamente Tramite L'utilità Di Movavi</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unintentional-threats-top-seven-risks-to-your-data-security-exposed/"><u>Unintentional Threats: Top Seven Risks to Your Data Security Exposed!</u></a></li>
 </ul></div>
 

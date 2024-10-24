@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of the End Scene  Tutorials & Templates for YouTube\""
-date: 2024-10-15T21:38:07.178Z
-updated: 2024-10-18T22:41:45.311Z
+date: 2024-10-19T18:03:01.957Z
+updated: 2024-10-24T17:05:36.234Z
 tags:
   - ai video
   - ai youtube
@@ -91,15 +91,28 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
@@ -108,38 +121,30 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -150,6 +155,13 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -166,20 +178,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-youtube-monetization-does-youtube-pay-monthly/"><u>[New] YouTube Monetization Does YouTube Pay Monthly?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-audio-recipe-converting-insta-vids-to-mp3/"><u>[Updated] In 2024, Audio Recipe Converting Insta Vids to Mp3</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-synthesizing-success-in-metaverse-sales-techniques/"><u>[Updated] Synthesizing Success in Metaverse Sales Techniques</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/create-interactive-slideshows-with-simple-flip-transitions-try-flipbuildercom/"><u>Create Interactive Slideshows with Simple Flip Transitions - Try FlipBuilder.com!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-your-videos-impact-with-customizable-youtube-thumbnails-for-2024/"><u>Elevate Your Video's Impact with Customizable YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-nubia-red-magic-9-proplus-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Xiaomi Redmi Note 13 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/ideal-magnification-methods-for-ios-devices-for-2024/"><u>Ideal Magnification Methods for iOS Devices for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-from-chatterboxes-to-chronicles-mastering-the-art-of-skype-recording/"><u>In 2024, From Chatterboxes to Chronicles Mastering the Art of Skype Recording</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-oppo-a1x-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Oppo A1x 5G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/insights-into-youtubes-visionary-studio-platform/"><u>Insights Into YouTube's Visionary Studio Platform</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/snapshot-surprises-yearly-yt-stats-and-trends-in-graphics/"><u>Snapshot Surprises Yearly YT Stats & Trends in Graphics</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-star-level-stabilization-tools-listed/"><u>YouTube Star-Level Stabilization Tools Listed</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtubes-income-leap-at-500-subs-count/"><u>YouTube's Income Leap at 500 Subs Count</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-channel-expansion-at-wallet-friendly-costs/"><u>[New] Channel Expansion at Wallet-Friendly Costs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevated-viewership-status-symbolized-by-buttons/"><u>[New] Elevated Viewership Status Symbolized by Buttons</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-high-fidelity-graphics-on-4k-an-in-depth-look-at-proart-monitors-for-2024/"><u>[New] High-Fidelity Graphics on 4K An In-Depth Look at ProArt Monitors for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ultimate-approach-to-enhancing-mp4-content-with-srt-captions/"><u>[New] Ultimate Approach to Enhancing MP4 Content with SRT Captions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-decoding-the-impact-of-instagrams-algorithm-shifts-for-2024/"><u>[Updated] Decoding the Impact of Instagram's Algorithm Shifts for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-omni-vmix-universal-controller/"><u>[Updated] Omni-VMix Universal Controller</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-accessing-and-using-srt-audio-on-various-oses/"><u>2024 Approved Accessing and Using SRT Audio on Various OSes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-discover-who-youre-watching-6-quizzes-for-youtube-fans/"><u>2024 Approved Discover Who You're Watching 6 Quizzes for YouTube Fans</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/canon-mp620-printer-driver-search-on-win10-unsuccessful/"><u>Canon MP620 Printer Driver Search on WIN10 Unsuccessful</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-huawei-nova-y71-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Huawei Nova Y71 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-details-on-creating-effective-yt-shorts/"><u>In 2024, Essential Details on Creating Effective YT Shorts</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/joyful-journeys-the-ultimate-list-of-familial-classics/"><u>Joyful Journeys The Ultimate List of Familial Classics</u></a></li>
 </ul></div>
 

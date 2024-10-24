@@ -1,7 +1,7 @@
 ---
 title: "[New] 4 Secrets for Adding Online Vids Seamlessly in PPT"
-date: 2024-10-15T18:51:32.355Z
-updated: 2024-10-19T00:40:15.239Z
+date: 2024-10-20T16:30:13.537Z
+updated: 2024-10-24T16:34:58.220Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,13 @@ After understanding the benefits of have a video embedded to your presentation, 
 
 The four most used methods of getting this done are discussed in detailed in the following sections:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Using YouTube Video’s URL
 
 Because every YouTube video has a URL (Uniform Resource Locator) that is unique for that particular clip, PowerPoint allows you to use it to embed the footage to any of its slides. The process is simple, and you can follow the steps given below to get this done:
@@ -49,16 +56,10 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-via-url.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
@@ -79,6 +80,13 @@ Go to the YouTube video you want to embed to your PowerPoint slide, click the **
 
 ![ embed YouTube video code to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-embed-code.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Get to the PowerPoint’s Insert Video Box**
 
 Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from the **Media** section in the right of the Ribbon, click **Video**, and then click **Online Video** to open the **Insert Video** box.
@@ -86,13 +94,6 @@ Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from t
 **Step 3: Embed the Video**
 
 Paste the embed code you copied earlier in the **Paste embed code here** field present next to the **From a Video Embed Code** option, and press **Enter** to **embed YouTube video in PowerPoint**.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3: Insert YouTube Video into PowerPoint by Searching Names (For Microsoft PowerPoint 2016)
 
@@ -126,13 +127,6 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
 Depending on the version of Microsoft Office you are using, you may or may not be able to embed a YouTube video in PowerPoint. Also, if your version of PowerPoint allows you to do so, the interface and the options may vary from those you see on your friends’ computer or in some online tutorials.
@@ -147,6 +141,13 @@ That said, the following table gives a clear picture of which version of Microso
 | PowerPoint 2013             | No                     | No                                           | Yes                                          | No                                  |
 | PowerPoint 2010             | No                     | No (Adobe Flash Player Support Discontinued) | No (Adobe Flash Player Support Discontinued) | No                                  |
 | PowerPoint 365/2019 for Mac | Yes                    | No                                           | No                                           | No                                  |
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Frequently Asked Questions About Embedding YouTube Videos in PowerPoint
 
@@ -172,13 +173,6 @@ Although the above sections explain **how to embed a YouTube video in PowerPoint
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -194,24 +188,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-elite-circle-of-vr-innovation-experts-for-2024/"><u>[New] Elite Circle of VR Innovation Experts for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-knowledge-the-dos-and-donts-on-youtube/"><u>[New] Essential Knowledge The Do's and Don'ts on YouTube</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-elite-apps-for-secure-android-cloud-vaults/"><u>[New] In 2024, Elite Apps for Secure Android Cloud Vaults</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-blueprint-for-buzzing-outro/"><u>[Updated] Blueprint for Buzzing Outro</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unlock-fb-livestream-potential-with-recorded-content-know-how/"><u>[Updated] In 2024, Unlock FB Livestream Potential with Recorded Content Know-How</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-engagement-enhancing-videos-with-pro-editing-skills/"><u>2024 Approved Elevate Engagement Enhancing Videos with Pro Editing Skills</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-the-ultimate-performance-of-yis-4k-actioncam/"><u>2024 Approved The Ultimate Performance of Yi's 4K ActionCam</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/grasp-the-basics-of-sub4sub-success-our-guide-lays-it-out-clearly/"><u>Grasp the Basics of Sub4sub Success - Our Guide Lays It Out Clearly</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-iphone-se-2022-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From iPhone SE (2022) If Youve Tried Everything</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-x100-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo X100 to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-lock-on-your-iphone-13-pro-and-ipad-by-drfone-ios/"><u>How to Unlock iCloud lock on your iPhone 13 Pro and iPad?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-aural-and-visual-summary-synthesizer/"><u>In 2024, Aural and Visual Summary Synthesizer</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-brevity-in-action-shortening-youtube-video-content/"><u>In 2024, Brevity in Action Shortening YouTube Video Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-brief-overview-of-the-quickest-chroma-key-tricks/"><u>In 2024, Brief Overview of the Quickest Chroma Key Tricks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-dominate-youtube-traffic-with-proficient-use-of-creator-studio/"><u>In 2024, Dominate YouTube Traffic with Proficient Use of Creator Studio</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-nokia-c210-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Nokia C210 for Parents | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-video-success-on-youtube-long-term-creativity-commons-strategy/"><u>Maximizing Video Success on YouTube Long-Term Creativity Commons Strategy</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/portable-balance-enhancer-for-shooting-blurs-for-2024/"><u>Portable Balance Enhancer for Shooting Blurs for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-battle-of-brilliance-comparing-neo-qled-and-oled-tv-screens/"><u>The Battle of Brilliance: Comparing Neo QLED and OLED TV Screens</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-compre-points-for-a-smooth-and-compliant-4k-youtube-file-transfer/"><u>[New] Compre Points for a Smooth and Compliant 4K Youtube File Transfer</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-mastery-in-mac-screen-capture-format-conversion-for-2024/"><u>[Updated] Mastery in Mac Screen Capture Format Conversion for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-thumbnail-artistry-for-engaging-youtube-channels/"><u>[Updated] Thumbnail Artistry for Engaging YouTube Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-can-a-brief-subscribe-boost-your-content-viewing/"><u>2024 Approved Can a Brief Subscribe Boost Your Content Viewing?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-piecing-together-memories-your-guide-to-montages/"><u>2024 Approved Piecing Together Memories Your Guide to Montages</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/amd-ryzen-5-2400g-driver-update-effortless-download-and-installation-guide/"><u>AMD Ryzen 5 2400G Driver Update - Effortless Download & Installation Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/audiovisual-alchemy-infusing-your-vimeo-clips-with-soundtracks/"><u>Audiovisual Alchemy Infusing Your Vimeo Clips with Soundtracks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/bringing-heartwarmth-to-the-winter-5-snug-cinematographic-tips-for-2024/"><u>Bringing Heartwarmth to the Winter 5 Snug Cinematographic Tips for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channel-cash-crusade-harnessing-every-device-with-yt-studio-for-2024/"><u>Channel Cash Crusade Harnessing Every Device with YT Studio for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/frameworks-producing-uplifting-life-journey-broadcasts/"><u>Frameworks Producing Uplifting Life Journey Broadcasts</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-best-time-lapse-tools-and-techniques-no5/"><u>In 2024, Best Time-Lapse Tools & Techniques - No.5</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-earn-big-on-youtube-shorts-tips-for-profitable-content-creation/"><u>In 2024, Earn Big on YouTube Shorts Tips for Profitable Content Creation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-hdtvs-future-in-focus-new-samsung-ubd-k8500-insights/"><u>In 2024, HDTV's Future in Focus - New Samsung UBD-K8500 Insights</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-how-to-edit-youtube-videos-in-adobe-premiere/"><u>In 2024, How to Edit YouTube Videos in Adobe Premiere</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-how-the-nintendo-switch-sets-new-standards-in-gaming-on-the-go/"><u>In-Depth Review: How the Nintendo Switch Sets New Standards in Gaming on the Go</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-xinput13dll-errors-on-your-pc-a-comprehensive-guide/"><u>Resolving xinput1_3.dll Errors on Your PC - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/tips-for-risk-free-youtube-video-mp4-downloading/"><u>Tips for Risk-Free YouTube Video MP4 Downloading</u></a></li>
 </ul></div>
 

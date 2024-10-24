@@ -1,7 +1,7 @@
 ---
 title: "\"Start Filming Right  The Newbie's Guide to Video Gear\""
-date: 2024-10-13T19:48:07.962Z
-updated: 2024-10-18T22:39:34.064Z
+date: 2024-10-20T16:11:53.125Z
+updated: 2024-10-24T17:13:59.670Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,13 @@ Below are the best cheap vlogging cameras that you can get for under $500\. They
 | NikonCoolpixB500   | ![Nikon B500](https://images.wondershare.com/filmora/article-images/nikon-coolpix-b500-camera.jpg) | February2016 | SLR-like (bridge) | **Tilting** | **No**  | $250 (MSRP) |
 | PolaroidCube+      | ![Polaroid Cube](https://images.wondershare.com/filmora/article-images/polaroid-cube-camera.jpg)   | June2015     | Action Camera     | **No**      | **No**  | $99 (MSRP)  |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | SonyAlphaa5100     | ![Sony a5100](https://images.wondershare.com/filmora/article-images/sony-a5100-camera.jpg)         | August2014   | Mirrorless        | Flip Up     | **No**  | $450 (MSRP) |
 
 | ![Polaroid Cube](https://images.wondershare.com/filmora/article-images/polaroid-cube-camera.jpg)   | **Best cheap vlogging camera under $100:** Polaroid Cube+ Even before GoPro released their GoPro Session, Polaroid was the first to come out with a 1.4-inch, cube-shaped action camera, small enough to mount on a bike or a helmet. This camera has built-in magnets so that you can attach them to metal surfaces. This action camera is water-resistant, shock-proof, and weather-proof. It can record full HD 1080p videos at 60 fps with its wide-angle lens. You can connect this camera with your phone to preview and take your shots.          |
@@ -76,27 +83,20 @@ Below are the best cheap vlogging cameras that you can get for under $500\. They
 | ![Nikon B500](https://images.wondershare.com/filmora/article-images/nikon-coolpix-b500-camera.jpg) | **Best cheap vlogging camera under $300:** Nikon B500 The Nikon B500 gives you a non-interchangeable zoom lens so that you have more control over how you compose your shots. This camera records full HD 1080p videos at either 30 or 25 fps. You can only set its ISO as high as 3200, so it's not going to perform the best in low-light conditions. The tilting LCD screen does not have touchscreen and cannot be fully flipped up or flipped to the side, it only tilts. For a camera in its price range, the Nikon B500 offers a lot of features. |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | ![Nikon A900](https://images.wondershare.com/filmora/article-images/nikon-coolpix-a900-camera.png) | **Best cheap vlogging camera under $400:** Nikon A900 The Nikon A900 not only comes with a non-interchangeable zoom lens, but it can also record videos in UHD 4K quality. Like the Nikon B500, the A900's ISO goes only up to 3200, making it a weak performer in poorly lit conditions.                                                                                                                                                                                                                                                                |
 | ![Sony a5100](https://images.wondershare.com/filmora/article-images/sony-a5100-camera.jpg)         | **Best cheap vlogging camera under $500:** Sony a5100 Among the cameras listed in our top cheap cameras list, the Sony a5100 is the only one you can interchange lenses with. All Sony E-mount lenses are compatible with this camera. This camera can record up to 1080p videos at 60 fps. Out of all of the above top cheap cameras, this one also auto focuses the best.                                                                                                                                                                              |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ###  
@@ -121,31 +121,17 @@ If you have a bigger budget to work with, the following vlogging cameras are gre
 | ![Canon M50](https://images.wondershare.com/filmora/article-images/canon-m50-vlog-camera.jpg)   | **Best mid-range mirrorless camera for vlogging:** Canon EOS M50 The Canon EOS M50 can shoot UHD 4K videos at 23.98 fps. You can also record 120 fps slow-motion videos at 720p. Unlike the M100, which only has a flip up screen, the M50 has a fully articulated screen, so you can use this camera in selfie mode, all while using an on-camera shotgun microphone attached to the camera hot/cold shoe. |
 | ![Canon T7i](https://images.wondershare.com/filmora/article-images/canon-t7i-vlog-camera.jpg)   | **Best DSLR camera for daily vlogging:** Canon EOS T7i The Canon EOS T7i is a great DSLR camera for daily vlogging. It can record full HD 1080p videos at 60 fps, it can create HDR and time-lapse movies, and it also has a fully articulated screen.                                                                                                                                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 | ![Canon SL2](https://images.wondershare.com/filmora/article-images/canon-sl2-vlog-camera.jpg)   | **Best entry-level DSLR camera for vlogging:** Canon EOS SL2 The Canon EOS SL2 delivers a lot of power at a low price. This DSLR camera can capture full HD 1080p videos at 60 fps.                                                                                                                                                                                                                         |
 | ![Canon 80D](https://images.wondershare.com/filmora/article-images/canon-80d-vlog-camera.jpg)   | **Best mid-range DSLR camera for vlogging:** Canon EOS 80D The Canon 80D is an exceptional mid-range DSLR vlogging camera with many features. Coming with a 45-point all cross phase detection autofocusing and a dual pixel CMOS AF system, the camera is great at finding the right focus while recording video.                                                                                          |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ###  
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: YOUTUBE EQUIPMENT: LENS
 
@@ -169,10 +155,10 @@ For more information on camera lenses, check out my [Vlogger’s Guide To Camera
 | --------------------------------------------------------------------------------------------------------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | ![Joby GorillaPod SLR-Zoom](https://images.wondershare.com/filmora/article-images/joby-gorillapod-tripod.jpg)   | **Joby GorillaPod With Ballhead** When you film yourself handheld, it’s difficult to keep your arm higher up so that your camera shoots down at an ideal angle. You may also notice that a lot of your arm gets into your shot, which you and other viewers might find distracting. Holding your camera up by a GorillaPod, however, can give you the extension you need to get that higher angle shot more easily, all without so much of your arm getting into your shot. |
@@ -186,6 +172,13 @@ Most vlogging cameras come with a built-in microphone that gets the job done. If
 | Audio-Technica AT2035 Rode NT1-A AKG C214 | Apogee Mic 96K Blue Yeti Rode NT-USB Blue Snowball Audio-Technica AT2020 Rode Procaster | Rode VideoMic Go Shure VP83 Rode VideoMic Pro+ Sennheiser MKE 440 | Rode NTG-3 Audio-Technica AT4053B Sennheiser MKH416 | Rode SmartLav+ Audio-Technica ATR3350iS Sennheiser ME2 |
 
 To read more about each of these microphones, check out our post on [The 19 Best YouTube Microphones 2018 – Options for Music, Voiceovers, Vlogging, and more!](https://www.filmora.io/community-blog/the-19-best-youtube-microphones-2018---options-for-music-352.html)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: YOUTUBE EQUIPMENT: SMARTPHONE ACCESSORIES
 
@@ -219,6 +212,19 @@ The solution to this problem is getting additional video lighting equipment with
 | ![Umbrella Video Light](https://images.wondershare.com/filmora/article-images/umbrella-video-light.jpg) | **Umbrella Video Light** Umbrella video lights are very portable and affordable. The direction of the light from umbrella lights are more difficult to control than the light from softbox video lights.                                                                                                                                                                                              |
 
 If you're looking for recommendations on which piece of lighting equipment to buy, check out my list of the [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
+
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 7: YOUTUBE EQUIPMENT: COMPUTER
 
@@ -255,10 +261,10 @@ Music is an important part of YouTube video creation. Here’s where you can get
 | [Audionautix](http://audionautix.com/) [Bensound](https://www.bensound.com/) [dig.ccMixter](http://dig.ccmixter.org/) [Free Music Archive](http://freemusicarchive.org/) [Free Stock Music](https://www.free-stock-music.com/) [Incompetech](https://incompetech.com/music/) Josh Woodward [Moby Gratis](http://www.mobygratis.com/) [Musopen](https://musopen.org/) [Purple Planet Music](http://www.purple-planet.com/home/4593438321) [TeknoAXE](http://teknoaxe.com/Home.php) [YouTube Audio Library](https://studio.youtube.com/channel/) | [Premium Beat](https://www.premiumbeat.com/) [Audio Jungle](https://audiojungle.net/) | [Audio Network](https://www.audionetwork.com/) [Audio Blocks](https://www.audioblocks.com/) [Epidemic Sound](http://www.epidemicsound.com/) |
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sound Effects
@@ -290,24 +296,19 @@ Follow @Sumia Rafique
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-edu-stream-100-cutting-edge-learning-yt/"><u>[New] Edu-Stream 100 Cutting-Edge Learning YT</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-aligning-spotify-selections-for-a-unified-youtube-music-experience/"><u>[Updated] 2024 Approved Aligning Spotify Selections for a Unified YouTube Music Experience</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-discover-the-leading-online-video-cutter-for-youtube/"><u>[Updated] Discover the Leading Online Video Cutter for YouTube</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-essential-tactics-for-effective-fb-giveaway-campaigns/"><u>[Updated] Essential Tactics for Effective FB Giveaway Campaigns</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-frame-to-script-innovative-ways-of-integrating-text-in-images/"><u>[Updated] From Frame to Script Innovative Ways of Integrating Text in Images</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-innovative-ways-to-boost-your-snapchat-engagement/"><u>[Updated] In 2024, Innovative Ways to Boost Your Snapchat Engagement</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/achieving-youtube-apex-with-smart-management-tools/"><u>Achieving YouTube Apex with Smart Management Tools</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/ai-avatars-online/"><u>AI Avatars | Online</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-from-your-apple-iphone-15-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password From your Apple iPhone 15</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-steps-for-online-gamers-banner-use-for-2024/"><u>Essential Steps for Online Gamers' Banner Use for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-novice-to-pro-the-complete-creator-hub-guide/"><u>From Novice to Pro The Complete Creator Hub Guide</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-motorola-edge-40-pro-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Motorola Edge 40 Pro phone? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-discover-top-platforms-for-youtube-brand-partnerships/"><u>In 2024, Discover Top Platforms for YouTube Brand Partnerships</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/stream-control-tactics-10-ways-to-unwind-live-play/"><u>Stream Control Tactics 10 Ways to Unwind Live Play</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/techniques-for-emptying-youtubes-keep-queue/"><u>Techniques for Emptying YouTube's Keep Queue</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unrestricted-creativity-the-ultimate-android-editing-selection/"><u>Unrestricted Creativity The Ultimate Android Editing Selection</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unveiling-strategies-for-building-impressive-youtube-teaser-vids/"><u>Unveiling Strategies for Building Impressive YouTube Teaser Vids</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/windows-11-nicht-booten-losungen-fur-inaccessible-devices-nach-dem-kopieren-der-festplatte/"><u>Windows 11 Nicht Booten – Lösungen Für Inaccessible Devices Nach Dem Kopieren Der Festplatte</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-conceal-dont-reveal-how-to-blur-faces-online/"><u>[New] 2024 Approved Conceal, Don't Reveal How to Blur Faces Online</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-castwithease-how-to-make-livestreaming-your-podcast-effortless/"><u>[New] CastWithEase How to Make Livestreaming Your Podcast Effortless</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-youtube-edits-an-in-depth-analysis-and-review/"><u>[New] Demystifying YouTube Edits An In-Depth Analysis and Review</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-video-entrance-with-these-tools-for-2024/"><u>[New] Elevate Your Video Entrance with These Tools for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-errors-to-dodge-beginner-youtubers-guide/"><u>[New] Essential Errors to Dodge Beginner YouTuber's Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-swiftly-excise-your-youtube-comment-spam/"><u>[New] In 2024, How to Swiftly Excise Your Youtube Comment Spam</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-cutting-edge-strategies-for-youtube-split-screen-videos/"><u>2024 Approved Cutting-Edge Strategies for YouTube Split-Screen Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-best-iphone-selfie-devices-ranked-8/"><u>2024 Approved The Best Iphone Selfie Devices Ranked (#8)</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-samsung-galaxy-s23-fe-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Samsung Galaxy S23 FE to Roku | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-youtube-videos-activating-av1-support-for-2024/"><u>Boosting YouTube Videos Activating AV1 Support for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-free-to-paid-the-transition-to-youtubes-elite-service/"><u>From Free to Paid The Transition to YouTube's Elite Service</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-0x80n0705b4-windows-update-issue-on-windows-10-detailed-solutions/"><u>Resolving 0X80n0705b4 Windows Update Issue on Windows 10 [Detailed Solutions]</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-essential-companion-for-runners-a-detailed-review-of-the-garmin-forerunner-45/"><u>The Essential Companion for Runners: A Detailed Review of the Garmin Forerunner 45</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-9-no-cost-mac-mp4-video-converters-comprehensive-reviews/"><u>Top 9 No-Cost Mac MP4 Video Converters: Comprehensive Reviews</u></a></li>
 </ul></div>
 
