@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube 101  Tips for a Distraction-Free Video Backdrop\""
-date: 2024-10-17T16:53:58.921Z
-updated: 2024-10-24T16:16:30.432Z
+date: 2024-10-29T03:48:51.079Z
+updated: 2024-10-30T07:35:48.039Z
 tags:
   - ai video
   - ai youtube
@@ -60,6 +60,19 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -67,10 +80,10 @@ If you need to blur the video background after shooting, you can use some video 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
@@ -80,13 +93,6 @@ There are about 20 bokeh effects available in filters and overlays. You can find
 Note: you should select **Included** to see all bokeh effects pre-programmed in Filmora. If you need more visual effects, just go to [the Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) effects store.
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
@@ -98,29 +104,29 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -137,16 +143,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-constructing-youtube-video-content-that-resonates-with-viewers/"><u>[New] Constructing YouTube Video Content That Resonates with Viewers</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-channel-labeling-101-how-to-make-yourself-hard-to-ignore/"><u>[New] In 2024, Channel Labeling 101 How to Make Yourself Hard to Ignore</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-top-5-efficient-mac-snippers-for-quick-captures/"><u>[New] Top 5 Efficient Mac Snippers for Quick Captures</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-seamlessly-integrate-apple-podcasts-into-your-routine/"><u>[Updated] 2024 Approved Seamlessly Integrate Apple Podcasts Into Your Routine</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-efficient-mac-video-resizing-to-fixed-ratio/"><u>2024 Approved Efficient Mac Video Resizing to Fixed Ratio</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/apowersoft-free-software-review-for-techies/"><u>Apowersoft Free Software Review for Techies</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-revolutionize-your-video-content-with-free-intro-designers/"><u>In 2024, Revolutionize Your Video Content with Free Intro Designers</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-vivo-x-flip-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Vivo X Flip Device</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-nerves-in-10-must-do-vlogs/"><u>Navigating Nerves in 10 Must-Do Vlogs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-6-downloads-unlocked-with-free-online-and-global-viewing/"><u>Top 6 Downloads – Unlocked with Free Online & Global Viewing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dailymotion-vs-youtube-monetization-which-is-more-profitable/"><u>[New] Dailymotion vs YouTube Monetization Which Is More Profitable?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unleash-your-creativity-effective-techniques-for-crafting-podcast-scripts/"><u>[New] Unleash Your Creativity Effective Techniques for Crafting Podcast Scripts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-audio-visual-transcript-maker/"><u>[Updated] Audio Visual Transcript Maker</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-compreran-yoga-moves-check-out-top-10-youtube-channels/"><u>[Updated] Compreran Yoga Moves? Check Out Top 10 YouTube Channels</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-maximizing-color-grading-efficiency-with-obs-and-lut-techniques/"><u>[Updated] In 2024, Maximizing Color Grading Efficiency with OBS and LUT Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-view-counts-by-upholding-youtubes-cc-license/"><u>[Updated] Mastering View Counts by Upholding YouTube's CC License</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-artisans-guide-to-cropping-and-soundscaping-in-canvas-for-2024/"><u>[Updated] The Artisan's Guide to Cropping and Soundscaping in Canvas for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/direct-download-destiny-10-online-tool-reviewers-choice/"><u>Direct Download Destiny #10 Online Tool Reviewers' Choice</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhance-your-content-filmmaking-for-youtube-trailers-with-filmora-for-2024/"><u>Enhance Your Content Filmmaking for YouTube Trailers with Filmora for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/exploring-the-world-of-aspect-ratios-in-youtube-content/"><u>Exploring the World of ASPECT RATIOS in YOUTUBE Content</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-easily-transform-your-youtube-videos-into-midi-format-a-cost-free-guide/"><u>How to Easily Transform Your YouTube Videos Into MIDI Format: A Cost-Free Guide</u></a></li>
+<li><a href="https://win-community.techidaily.com/leading-software-solutions-for-quickly-erasing-words-in-photographs/"><u>Leading Software Solutions for Quickly Erasing Words in Photographs</u></a></li>
 </ul></div>
 

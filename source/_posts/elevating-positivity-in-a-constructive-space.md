@@ -1,7 +1,7 @@
 ---
 title: "Elevating Positivity in a Constructive Space"
-date: 2024-08-10T05:36:13.851Z
-updated: 2024-08-11T05:36:13.851Z
+date: 2024-10-29T09:26:07.739Z
+updated: 2024-10-30T03:52:24.585Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -69,12 +60,38 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-masterful-capture-of-discord-conversations/"><u>[New] 2024 Approved Masterful Capture of Discord Conversations</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-decoding-mycam-cams-video-quality-and-recording-speed/"><u>[New] Decoding MyCam Cam’s Video Quality and Recording Speed</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pinnacle-of-brainy-content-general-knowledge-top-11/"><u>[New] Pinnacle of Brainy Content General Knowledge Top 11</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-the-strategists-approach-to-locating-and-joining-specialized-discord-channels/"><u>[New] The Strategist's Approach to Locating and Joining Specialized Discord Channels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nleashing-video-popularity-leading-trackers-for-youtube-for-2024/"><u>[New] Unleashing Video Popularity Leading Trackers for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-2023s-top-social-moment-infographics/"><u>2024 Approved 2023'S Top Social Moment Infographics</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-boosting-your-channels-income-the-optimal-view-count-quotient/"><u>2024 Approved Boosting Your Channel's Income The Optimal View Count Quotient</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-breakdown-of-youtubes-monetization-update/"><u>2024 Approved Breakdown of YouTube's Monetization Update</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-downloading-standardized-youtube-images-with-ease-and-precision/"><u>2024 Approved Downloading Standardized Youtube Images with Ease & Precision</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-the-ultimate-guide-to-flawless-sound-engineering-in-audacity/"><u>2024 Approved The Ultimate Guide to Flawless Sound Engineering in Audacity</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/adobe-premiere-tips-youtube-video-uploads/"><u>Adobe Premiere Tips YouTube Video Uploads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/bringing-bygone-era-filmmaking-to-life-today-for-2024/"><u>Bringing Bygone Era Filmmaking to Life Today for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-realme-narzo-n53-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Realme Narzo N53.</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/comprehensive-list-of-8-prime-youtube-to-avi-tools/"><u>Comprehensive List of 8 Prime YouTube-to-AVI Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cutting-edge-capture-tips-for-professional-sound-recording-for-2024/"><u>Cutting Edge Capture Tips for Professional Sound Recording for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/epic-dramatic-stories-for-the-ears/"><u>Epic Dramatic Stories for the Ears</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-10-asmr-apps-on-smart-devices-for-2024/"><u>Top 10 ASMR Apps on Smart Devices for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

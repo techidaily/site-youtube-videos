@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Embedding YouTube Videos  Tips for a Smooth PPT Transition\""
-date: 2024-10-18T17:02:43.133Z
-updated: 2024-10-24T17:33:25.041Z
+date: 2024-10-28T01:53:18.664Z
+updated: 2024-10-30T05:33:35.976Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,13 @@ Launch PowerPoint if it is not already open, go to the slide you want to embed t
 
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
 
 Unlike PowerPoint 2019 that accepts URLs and embed codes in a single URL field, MS PowerPoint 2016 lets you choose how you want to insert a video. The step-by-step instructions given below explain how this can be done:
@@ -66,13 +73,6 @@ Go to the YouTube video you want to embed to your PowerPoint slide, click the **
 
 ![ embed YouTube video code to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-embed-code.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Get to the PowerPoint’s Insert Video Box**
 
 Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from the **Media** section in the right of the Ribbon, click **Video**, and then click **Online Video** to open the **Insert Video** box.
@@ -80,13 +80,6 @@ Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from t
 **Step 3: Embed the Video**
 
 Paste the embed code you copied earlier in the **Paste embed code here** field present next to the **From a Video Embed Code** option, and press **Enter** to **embed YouTube video in PowerPoint**.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3: Insert YouTube Video into PowerPoint by Searching Names (For Microsoft PowerPoint 2016)
 
@@ -101,10 +94,16 @@ Use the process explained in **Step 2** of **Method 2** to get to the **Insert V
 In the **Search YouTube** field next to the **YouTube** option, type the name of the video you want to search on YouTube, press **Enter**, select the video you want to embed, and click **Insert** to **insert YouTube video into PowerPoint**.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 4: Insert Video from PC
@@ -128,10 +127,10 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## YouTube Embedding Supported PowerPoint Version Checklist
@@ -148,6 +147,13 @@ That said, the following table gives a clear picture of which version of Microso
 | PowerPoint 2013             | No                     | No                                           | Yes                                          | No                                  |
 | PowerPoint 2010             | No                     | No (Adobe Flash Player Support Discontinued) | No (Adobe Flash Player Support Discontinued) | No                                  |
 | PowerPoint 365/2019 for Mac | Yes                    | No                                           | No                                           | No                                  |
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Frequently Asked Questions About Embedding YouTube Videos in PowerPoint
 
@@ -188,20 +194,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-elevating-your-youtube-stream-the-wirecast-way/"><u>[New] Elevating Your YouTube Stream The WireCast Way</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-unlocking-the-secrets-to-sharing-videos-on-instagram-for-2024/"><u>[New] Unlocking the Secrets to Sharing Videos on Instagram for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-optimal-budget-free-fb-videopicture-engineer/"><u>[Updated] Optimal Budget-Free FB Video/Picture Engineer</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-avoiding-the-blank-thumbnail-scenario-in-shorts/"><u>2024 Approved Avoiding the Blank Thumbnail Scenario in Shorts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-compile-of-free-high-quality-sound-clips-for-videos/"><u>2024 Approved Compile of Free, High-Quality Sound Clips for Videos</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-go-beyond-screens-how-to-watch-360-videos-and-vr-via-android/"><u>2024 Approved Go Beyond Screens How to Watch 360 Videos & VR via Android</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-aspect-ratios-for-effective-youtube-videos-for-2024/"><u>Decoding Aspect Ratios for Effective YouTube Videos for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/effortless-conversion-transforming-hevch265-video-files-into-prores-seamlessly/"><u>Effortless Conversion: Transforming HEVC/H.265 Video Files Into ProRes Seamlessly</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-maintain-immaculate-conditions-of-your-residential-speaker-units/"><u>How To Maintain Immaculate Conditions of Your Residential Speaker Units</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-diy-photography-support-systems/"><u>In 2024, DIY Photography Support Systems</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-meizu-21-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Meizu 21 Phone Without Password?</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-top-6-nft-makers-for-artists-to-unleash-imagination/"><u>In 2024, Top 6 NFT Makers for Artists to Unleash Imagination</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-the-reboot-comprehensive-guide-to-samsung-soundbar-resets/"><u>Mastering the Reboot: Comprehensive Guide to Samsung Soundbar Resets</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-youtube-visibility-with-key-hashtags/"><u>Maximizing YouTube Visibility with Key #Hashtags</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-3d-animation-on-a-budget-free-and-affordable-software-options-you-need-to-know/"><u>Updated 2024 Approved 3D Animation on a Budget Free and Affordable Software Options You Need to Know</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-achieving-perfect-reproduction-tips-for-exceptional-sound-capture/"><u>[New] Achieving Perfect Reproduction Tips for Exceptional Sound Capture</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-clearshot-suite-high-quality-windows-for-2024/"><u>[New] ClearShot Suite - High-Quality Windows for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-detailed-tips-for-adequate-lighting-in-youtube-video-production/"><u>[New] Detailed Tips for Adequate Lighting in YouTube Video Production</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-masterclass-in-meme-template-selection/"><u>[Updated] Masterclass in Meme Template Selection</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-transcending-boundaries-the-vr-evolutionary-journey/"><u>[Updated] Transcending Boundaries The VR Evolutionary Journey</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-boosting-your-yt-subs-a-complete-strategy-guide/"><u>2024 Approved Boosting Your YT Subs A Complete Strategy Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-fixing-half-silenced-facebook-video-volume/"><u>2024 Approved Fixing Half-Silenced Facebook Video Volume</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-omnicharge-omni-20-multipurpose-power-bank-qi-wireless-and-more/"><u>Exploring the Omnicharge Omni ˈ20 Multipurpose Power Bank - Qi Wireless and More</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-f04-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy F04 Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/maximizing-money-via-online-video-platforms/"><u>Maximizing Money via Online Video Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/seamless-google-meet-integration-for-youtube-enthusiasts/"><u>Seamless Google Meet Integration for YouTube Enthusiasts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/tune-treasure-hunt-finding-the-perfect-audio-for-2024/"><u>Tune Treasure Hunt Finding the Perfect Audio for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/unlock-the-secrets-to-preserving-web-streamed-tv-shows-for-2024/"><u>Unlock the Secrets to Preserving Web-Streamed Tv Shows for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-this-article-shows-how-to-add-skin-smoother-effect-with-3-steps-in-final-cut-pro-as-well-as-other-editors/"><u>Updated This Article Shows How to Add Skin Smoother Effect with 3 Steps in Final Cut Pro as Well as Other Editors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/watch-more-not-less-secrets-to-free-youtube-gains/"><u>Watch More, Not Less Secrets to Free YouTube Gains</u></a></li>
 </ul></div>
 

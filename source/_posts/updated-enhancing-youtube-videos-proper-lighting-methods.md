@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing YouTube Videos  Proper Lighting Methods\""
-date: 2024-10-20T16:08:46.265Z
-updated: 2024-10-24T16:11:28.919Z
+date: 2024-10-25T08:10:23.091Z
+updated: 2024-10-29T23:16:04.980Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,10 @@ Window lighting for me was especially difficult to work with because I live in a
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
@@ -68,6 +68,13 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
@@ -75,6 +82,13 @@ If you rather not deal with all the window and home lighting challenges, you can
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
@@ -88,6 +102,13 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. 4-Point Lighting
 
 As a YouTuber, you may not only want yourself to be seen optimally with proper lighting, but you may also want your background to be seen optimally, especially if you’ve taken the time to decorate it for your audience.
@@ -96,34 +117,13 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -140,22 +140,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-ultimate-8-screen-recorders-list/"><u>[New] 2024 Approved Ultimate 8 Screen Recorders List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-beyond-youtube-elite-video-sharing-hubs-revealed/"><u>[New] Beyond YouTube Elite Video Sharing Hubs Revealed</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-pro-audio-recordings-the-11-best-tools-for-live-events-for-2024/"><u>[New] Pro Audio Recordings The 11 Best Tools for Live Events for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-the-art-of-float-engaging-with-netflixs-picture-in-picture/"><u>[New] The Art of Float Engaging with Netflix's Picture-in-Picture</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-adjust-cutting-room-time-for-youtube/"><u>[Updated] Adjust Cutting Room Time for YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-bringing-text-to-life-a-guide-to-dynamic-animation-methods-for-2024/"><u>[Updated] Bringing Text to Life A Guide to Dynamic Animation Methods for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-accelerating-or-slowing-down-youtube-videos-playback/"><u>2024 Approved Accelerating or Slowing Down YouTube Videos Playback</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/audio-upheavals-top-rhythmic-disruptors-for-devices/"><u>Audio Upheavals Top Rhythmic Disruptors for Devices</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dismantling-the-profit-strategy-of-tseries-on-digital-platforms-youtube/"><u>Dismantling the Profit Strategy of TSeries on Digital Platforms (YouTube)</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/expert-advice-which-is-superior-bing-chat-or-gpt-3-for-freelancers/"><u>Expert Advice: Which Is Superior, Bing Chat or GPT-3 for Freelancers?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/fundamental-equipment-for-channel-foundations/"><u>Fundamental Equipment for Channel Foundations</u></a></li>
-<li><a href="https://win-answers.techidaily.com/guilty-gear-strive-performance-optimization-fixing-delay-and-synchronizing-frames/"><u>Guilty Gear -Strive- Performance Optimization: Fixing Delay & Synchronizing Frames</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-digital-content-contenders-compare-and-contrast-vimeo-youtube-plus-dailymotion/"><u>In 2024, Digital Content Contenders Compare & Contrast Vimeo, YouTube + Dailymotion</u></a></li>
-<li><a href="https://article-files.techidaily.com/mastering-character-voice-modification-techniques-in-free-fire-no-cost/"><u>Mastering Character Voice Modification Techniques in Free Fire (No Cost!)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-content-structure-elevated-templates-for-yt/"><u>Mastering Content Structure Elevated Templates for YT</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-ditch-sony-vegas-find-a-better-video-editing-solution-for-your-windows-pc/"><u>New 2024 Approved Ditch Sony Vegas Find a Better Video Editing Solution for Your Windows PC</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unlocking-iphone-x-secrets-restoring-face-id-functionality/"><u>Unlocking iPhone X Secrets Restoring Face ID Functionality</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-photographys-best-haven-seamlessly-merge-free-and-charged-digital-space/"><u>[New] Photography's Best Haven Seamlessly Merge Free and Charged Digital Space</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-realizing-youre-off-the-friends-list-for-2024/"><u>[New] Realizing You're Off the Friends List for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-time-management-mastery-slack-and-filmora-for-productive-team-meetings-for-2024/"><u>[New] Time Management Mastery Slack & Filmora for Productive Team Meetings for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-fundamentals-of-earnings-on-youtube-for-2024/"><u>[Updated] The Fundamentals of Earnings on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-top-10-impactful-instagram-tags-for-maximum-reach/"><u>[Updated] Top 10 Impactful Instagram Tags for Maximum Reach</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-snug-winter-atmospheres-for-engaging-online-content/"><u>2024 Approved Crafting Snug Winter Atmospheres for Engaging Online Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-complete-guide-to-youtubes-live-image-lore-for-2024/"><u>A Complete Guide to YouTube's Live Image Lore for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/artistic-additions-free-designs-for-youtube-crafting-for-2024/"><u>Artistic Additions Free Designs for YouTube Crafting for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channeling-wealth-through-beauty-online-platforms/"><u>Channeling Wealth Through Beauty Online Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-your-perfect-youtube-playlists-a-step-by-step-guide/"><u>Crafting Your Perfect YouTube Playlists A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/designing-direct-access-to-your-channels-subscribe-page-for-2024/"><u>Designing Direct Access to Your Channel's Subscribe Page for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-realme-gt-5-pro-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Realme GT 5 Pro Location Settings | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-ace-your-youtube-finances-secrets-for-profits-at-the-500-subscriber-milestone/"><u>In 2024, Ace Your Youtube Finances Secrets for Profits at the 500-Subscriber Milestone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-beginners-blueprint-for-financial-gain-in-periscope/"><u>In 2024, Beginner's Blueprint for Financial Gain in Periscope</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-charting-the-course-for-your-youtube-music-narrative/"><u>In 2024, Charting the Course for Your YouTube Music Narrative</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-vivo-x100-pro-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Vivo X100 Pro Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/step-by-step-fix-for-driver-verifier-causing-bsod-on-windows-10-problem-solved/"><u>Step-by-Step Fix for Driver Verifier Causing BSOD on Windows 10 – Problem Solved</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streamed-dialogue-scribe/"><u>Streamed Dialogue Scribe</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-realme-narzo-n55-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Realme Narzo N55 Location | Dr.fone</u></a></li>
 </ul></div>
 

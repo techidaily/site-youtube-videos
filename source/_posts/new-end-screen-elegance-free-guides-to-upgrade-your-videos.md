@@ -1,7 +1,7 @@
 ---
 title: "\"[New] End-Screen Elegance - Free Guides to Upgrade Your Videos\""
-date: 2024-10-21T16:37:57.789Z
-updated: 2024-10-24T18:14:10.206Z
+date: 2024-10-28T02:45:19.135Z
+updated: 2024-10-29T21:35:16.330Z
 tags:
   - ai video
   - ai youtube
@@ -86,10 +86,10 @@ Here’s one for the Minecraft fans:
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
@@ -102,13 +102,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
@@ -119,16 +112,16 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -139,10 +132,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -150,6 +143,13 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -166,19 +166,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-discover-websites-your-gateway-to-youtube-branded-content/"><u>[New] Discover Websites Your Gateway to YouTube Branded Content</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-nextgen-videotron-app-evaluation/"><u>[New] In 2024, NextGen Videotron App Evaluation</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-5-best-racing-simulator-games/"><u>[Updated] 2024 Approved 5 Best Racing Simulator Games</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/end-screen-essentials-for-social-media-success-on-youtube/"><u>End-Screen Essentials for Social Media Success on YouTube</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/find-the-best-options-to-apply-vhs-photo-effects-on-computeronline-for-2024/"><u>Find The Best Options to Apply VHS Photo Effects on Computer/Online for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/guide-on-downloading-processing-and-saving-twitter-vids-as-mp3s-for-2024/"><u>Guide on Downloading, Processing, and Saving Twitter Vids as MP3s for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-earnings-escalate-500-subscriber-marker-achieved/"><u>In 2024, Earnings Escalate 500-Subscriber Marker Achieved</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Nokia G22? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/leading-minds-in-online-creation/"><u>Leading Minds in Online Creation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/procure-no-cost-visual-aids-from-prominent-4-youtube-feeds/"><u>Procure No-Cost Visual Aids From Prominent 4 Youtube Feeds</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-honor-90-lite-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Honor 90 Lite to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-expert-approved-ipad-video-editors-top-5-for-for-2024/"><u>Updated Expert-Approved iPad Video Editors Top 5 For for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/vixia-hf-series-the-economical-lens-for-filmmakers/"><u>VIXIA HF Series: The Economical Lens for Filmmakers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-audience-appeal-the-ultimate-guide-to-youtube-video-formats/"><u>[New] Audience Appeal The Ultimate Guide to YouTube Video Formats</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-audio-overhaul-methods-for-content-creators-online/"><u>[New] Audio Overhaul Methods for Content Creators Online</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-smooth-sailing-with-instagram-fixes-for-frustrations/"><u>[New] In 2024, Smooth Sailing with Instagram Fixes for Frustrations</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-inside-twitters-most-impactful-videos-of-the-year-for-2024/"><u>[New] Inside Twitter's Most Impactful Videos of the Year for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-buzzing-beats-leading-music-distortion-apps/"><u>[Updated] Buzzing Beats Leading Music Distortion Apps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-dissolving-details-techniques-to-anonymize-youtube-media/"><u>[Updated] Dissolving Details Techniques to Anonymize YouTube Media</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-complete-handbook-for-telegram-web-newbies/"><u>[Updated] The Complete Handbook for Telegram Web Newbies</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-motorola-moto-g14-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Motorola Moto G14? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channel-combat-determining-which-earns-more-from-videosdailymotion-or-youtube/"><u>Channel Combat Determining Which Earns More From Videos—Dailymotion or YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-content-strategy-with-social-blade-and-youtube-stats/"><u>Elevate Your Content Strategy with Social Blade and YouTube Stats</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/epic-video-journeys-the-fastest-hits-reaching-100m-views-by-24/"><u>Epic Video Journeys The Fastest Hits Reaching 100M Views by '24</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-ajeys-path-to-prosperity-monetizing-his-online-presence/"><u>In 2024, Ajey's Path to Prosperity Monetizing His Online Presence</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/openai-dismisses-sam-altman-from-leadership-implications-for-the-future-of-chatgpt/"><u>OpenAI Dismisses Sam Altman From Leadership: Implications for the Future of ChatGPT</u></a></li>
+<li><a href="https://techtrends.techidaily.com/real-time-video-editing-with-manycam-your-ultimate-live-streaming-companion/"><u>Real-Time Video Editing with ManyCam: Your Ultimate Live Streaming Companion</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-good-the-bad-how-chatgpt-impacts-creativity-and-writing-skills/"><u>The Good, the Bad: How ChatGPT Impacts Creativity and Writing Skills</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-avi-file-issues-for-smooth-playback-solutions/"><u>Troubleshooting AVI File Issues for Smooth Playback Solutions</u></a></li>
+<li><a href="https://change-location.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Samsung Galaxy S23 FE | Dr.fone</u></a></li>
 </ul></div>
 

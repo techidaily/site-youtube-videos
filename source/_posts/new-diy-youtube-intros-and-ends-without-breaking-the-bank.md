@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-10-22T18:06:44.526Z
-updated: 2024-10-24T17:53:12.136Z
+date: 2024-10-23T03:15:58.820Z
+updated: 2024-10-30T04:32:27.064Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,19 +141,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-alternative-classics-new-filmmaking-titles-to-love/"><u>[New] Alternative Classics New Filmmaking Titles to Love</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-cinema-chronicles-the-quintessential-cinematographic-tips-for-24/"><u>[New] In 2024, Cinema Chronicles The Quintessential Cinematographic Tips for '24</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-silence-social-advertisements-for-a-smoother-stream-for-2024/"><u>[New] Silence Social Advertisements for a Smoother Stream for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-elevate-your-videography-premiere-to-youtube-upload/"><u>[Updated] Elevate Your Videography Premiere to YouTube Upload</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-innovative-tech-discovering-the-top-9-microphone-recorders-online/"><u>[Updated] Innovative Tech Discovering the Top 9 Microphone Recorders Online</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-quick-and-easy-methods-for-including-emojis-into-discord-statements-for-2024/"><u>[Updated] Quick and Easy Methods for Including Emojis Into Discord Statements for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-your-yt-summary-top-notch-template-guides/"><u>2024 Approved Enhance Your YT Summary Top-Notch Template Guides</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/aac3gp-movavi/"><u>線上自由更改音頻流派：從AAC轉成3GP - Movavi變換器指南</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-honor-x9b-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Honor X9b Phone without Any Data Loss</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-beam-it-up-a-step-by-step-approach-to-youtube-video-luminance/"><u>In 2024, Beam It Up A Step-By-Step Approach to YouTube Video Luminance</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-ultimate-4k-screens-for-professional-video-editors/"><u>In 2024, Ultimate 4K Screens for Professional Video Editors</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/navigating-video-capture-software-is-bandicam-superior-to-camtasia-in-2024/"><u>Navigating Video Capture Software Is Bandicam Superior to Camtasia, In 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/tailoring-melodies-for-youtube-personalized-list-creation/"><u>Tailoring Melodies for YouTube Personalized List Creation</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/winning-editorial-techniques-select-from-the-top-8-video-trimming-titles/"><u>Winning Editorial Techniques: Select From The Top 8 Video Trimming Titles</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-decoding-the-payment-structure-on-youtube/"><u>[New] Decoding the Payment Structure on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dslrs-rivalry-with-mirrorless-for-video-artistry/"><u>[New] DSLR's Rivalry with Mirrorless for Video Artistry</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-picture-perfection-the-ultimate-iosandroid-covers-app/"><u>[New] Picture Perfection The Ultimate iOS/Android Covers App</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-android-hacks-counterclockwise-video-stream/"><u>[Updated] Android Hacks Counterclockwise Video Stream</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cosmetics-confidentials-building-a-beauty-channel-on-youtube/"><u>[Updated] Cosmetics Confidentials Building a Beauty Channel on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-counteract-vibration-for-clear-captures/"><u>[Updated] Counteract Vibration for Clear Captures</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-enrich-your-viewing-experience-with-these-leading-top-6-tools-to-download-youtubes-short-videos-for-2024/"><u>[Updated] Enrich Your Viewing Experience with These Leading Top 6 Tools to Download YouTubes' Short Videos for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Tecno Spark Go (2024) | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-recover-apple-iphone-12-mini-data-from-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Apple iPhone 12 mini Data From iCloud? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-infographic-insights-small-business-video-mastery/"><u>In 2024, Infographic Insights Small Business Video Mastery</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-streamline-your-tiktok-experience-4-desktop-broadcast-strategies/"><u>In 2024, Streamline Your TikTok Experience 4 Desktop Broadcast Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-by-step-imovie-videos-on-your-youtube-channel/"><u>Step-by-Step IMovie Videos on Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtubes-best-practices-amplifying-video-and-audio-clarity/"><u>YouTube's Best Practices Amplifying Video and Audio Clarity</u></a></li>
 </ul></div>
 

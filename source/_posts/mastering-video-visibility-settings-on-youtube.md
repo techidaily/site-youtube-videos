@@ -1,7 +1,7 @@
 ---
 title: "Mastering Video Visibility Settings on YouTube"
-date: 2024-10-17T18:16:10.151Z
-updated: 2024-10-24T18:07:30.010Z
+date: 2024-10-29T07:42:44.731Z
+updated: 2024-10-29T16:28:45.073Z
 tags:
   - ai video
   - ai youtube
@@ -61,10 +61,10 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Change Privacy Settings
@@ -78,10 +78,10 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Method 2:**
@@ -90,20 +90,33 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
- To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
-
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -112,13 +125,6 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -135,24 +141,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-blueprints-for-making-youtube-intro-videos-that-stick/"><u>[New] Blueprints for Making YouTube Intro Videos that Stick</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-charting-the-course-of-youtube-success-through-social-blade-analysis/"><u>[New] Charting the Course of YouTube Success Through Social Blade Analysis</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-crafting-cool-youtube-previews-in-imovie-easily/"><u>[New] Crafting Cool YouTube Previews in iMovie Easily</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-boost-engagement-advanced-youtube-tag-strategies-revealed/"><u>[Updated] Boost Engagement Advanced YouTube Tag Strategies Revealed</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-engineering-echoing-edits/"><u>2024 Approved Engineering Echoing Edits</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/biggest-fifa-visuals-youtube-insights-graphed-for-2024/"><u>Biggest FIFA Visuals YouTube Insights Graphed for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/bypass-setup-will-exit-unrecognized-os-message-with-proven-solutions/"><u>Bypass 'Setup Will Exit - Unrecognized OS' Message with Proven Solutions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/debugging-techniques-identifying-and-resolving-common-javascript-errors/"><u>Debugging Techniques Identifying and Resolving Common JavaScript Errors</u></a></li>
-<li><a href="https://games-able.techidaily.com/expert-tips-affordable-stunning-1440p-gaming-monitors-under-500/"><u>Expert Tips: Affordable, Stunning 1440P Gaming Monitors Under $500</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/harnessing-imovies-potential-for-youtube-broadcasting/"><u>Harnessing iMovie's Potential for YouTube Broadcasting</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-lava-blaze-2-pro-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Lava Blaze 2 Pro to PC? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-enhance-privacy-and-speed-the-best-7-android-adblocks/"><u>In 2024, Enhance Privacy & Speed The Best 7 Android AdBlocks</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-leveraging-title-creation-on-youtube-for-engagement/"><u>In 2024, Leveraging Title Creation on YouTube for Engagement</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-pioneering-headsets-elevating-drone-use/"><u>In 2024, Pioneering Headsets Elevating Drone Use</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigating-ai-pitfalls-8-reasons-why-content-creators-cant-solely-depend-on-chatbots/"><u>Navigating AI Pitfalls: 8 Reasons Why Content Creators Can't Solely Depend on Chatbots</u></a></li>
-<li><a href="https://techtrends.techidaily.com/overcoming-security-warnings-in-browsers-fixing-the-connection-is-not-secure-dilemma/"><u>Overcoming Security Warnings in Browsers - Fixing the ‘Connection Is Not Secure’ Dilemma</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-access-diskspace-tools-for-windows-context-menu/"><u>Quick Access DiskSpace: Tools for Window's Context Menu</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/skyrocketing-subscribers-free-techniques-for-youtube-success/"><u>Skyrocketing Subscribers Free Techniques for YouTube Success</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-instagram-delays-top-6-solutions-for-both-android-and-ios-users/"><u>Troubleshooting Instagram Delays: Top 6 Solutions for Both Android & iOS Users</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-clipcraft-designer/"><u>[New] ClipCraft Designer</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-decipher-youtubes-mysteries-with-advanced-insights-from-social-blade/"><u>[Updated] Decipher YouTube's Mysteries with Advanced Insights From Social Blade</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-affordable-tactics-for-combining-media-with-literature/"><u>2024 Approved Affordable Tactics for Combining Media with Literature</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/5-solutions-for-tecno-pova-6-pro-5g-unlock-without-password-by-drfone-android/"><u>5 Solutions For Tecno Pova 6 Pro 5G Unlock Without Password</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/earning-in-the-e-commerce-arena-via-engaging-reviews/"><u>Earning in the E-Commerce Arena via Engaging Reviews</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-itel-a60-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Itel A60 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-bridging-photography-and-cinematography-creating-fusion-videos-using-pixiz/"><u>In 2024, Bridging Photography and Cinematography Creating Fusion Videos Using Pixiz</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-echo-music-into-your-whatsapp-narrative/"><u>In 2024, Echo Music Into Your WhatsApp Narrative</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-lava-storm-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Lava Storm 5G Location on Twitter | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Ergonomic Hold Techniques for Clarity"
-date: 2024-10-17T17:47:12.324Z
-updated: 2024-10-24T17:26:37.923Z
+date: 2024-10-26T11:28:08.196Z
+updated: 2024-10-30T10:59:52.072Z
 tags:
   - ai video
   - ai youtube
@@ -37,10 +37,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -62,10 +62,10 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -90,10 +90,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -105,10 +105,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -148,18 +148,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-enhance-your-podcasts-production-with-top-audio-devices-for-2024/"><u>[Updated] Enhance Your Podcast's Production with Top Audio Devices for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-expert-tips-for-stunning-photos-on-iphones-for-2024/"><u>[Updated] Expert Tips for Stunning Photos on iPhones for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-overlooked-wonders-latest-free-macspeech-software/"><u>[Updated] Overlooked Wonders Latest Free macSpeech Software</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-step-by-step-guide-how-to-record-save-and-share-youtube-video-for-no-cost/"><u>2024 Approved A Step-by-Step Guide How To Record, Save & Share YouTube Video for No Cost</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-practices-for-organizing-online-video-stories/"><u>2024 Approved Best Practices for Organizing Online Video Stories</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-one-step-at-a-time-how-to-create-a-skype-group-on-both-platforms/"><u>2024 Approved One Step at a Time How to Create a Skype Group on Both Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/avoid-the-quake-optimal-tripod-placement-for-stellar-vlogs/"><u>Avoid the Quake Optimal Tripod Placement for Stellar Vlogs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-flip-screen-cam-picks-your-guide-to-excellent-vlogging-for-2024/"><u>Best Flip-Screen Cam Picks Your Guide to Excellent Vlogging for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/captivate-audiences-unveiling-secrets-for-striking-youtube-banners/"><u>Captivate Audiences Unveiling Secrets for Striking YouTube Banners</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-can-you-unlock-apple-iphone-6-after-forgetting-the-passcode-by-drfone-ios/"><u>In 2024, Can You Unlock Apple iPhone 6 After Forgetting the Passcode?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-download-fb-links-8-free-online-tools/"><u>In 2024, Download FB Links 8 FREE, Online Tools</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-nokia-g42-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Nokia G42 5G Phone Now with These Tips</u></a></li>
-<li><a href="https://some-skills.techidaily.com/tag-with-your-favorite-show-podcast-on-ig-for-2024/"><u>Tag with Your Favorite Show Podcast on IG for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-beat-buzzers-up-and-coming-background-scores-for-yt-shorts/"><u>[New] Beat Buzzers Up-and-Coming Background Scores For YT Shorts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-secrets-of-the-trade-boosting-popularity-with-tiktok-unboxings/"><u>[New] Secrets of the Trade Boosting Popularity with TikTok Unboxings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-compile-presentation-asset-to-video-for-2024/"><u>[Updated] Compile Presentation Asset to Video for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-discover-the-tricks-to-recording-and-screencasting-your-youtube-views-without-cash/"><u>[Updated] Discover The Tricks to Recording & Screencasting Your YouTube Views without Cash</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-every-note-at-your-fingertips-fb-style/"><u>[Updated] In 2024, Every Note at Your Fingertips - FB Style</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-smooth-processes-for-recording-online-meetings-with-gotomeeting-for-2024/"><u>[Updated] Smooth Processes for Recording Online Meetings with GoToMeeting for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-cut-the-boring-watch-these-15-hilarious-youtube-bites/"><u>2024 Approved Cut the Boring, Watch These 15 Hilarious YouTube Bites</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-xiaomi-redmi-note-13-pro-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Xiaomi Redmi Note 13 Pro 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/combat-the-frozen-discord-overlay-on-your-windows-system/"><u>Combat the Frozen Discord Overlay on Your Windows System</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/innovative-thumbnail-tips-for-mac-users-youtube/"><u>Innovative Thumbnail Tips for Mac Users - YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/partner-up-strategies-optimal-selection-for-youtube-teams-for-2024/"><u>Partner Up Strategies Optimal Selection for YouTube Teams for 2024</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/top-7-video-language-converter-online-free-for-2024/"><u>Top 7 Video Language Converter Online Free for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/transfer-tactics-for-youtube-to-dailymotion-success/"><u>Transfer Tactics for YouTube to Dailymotion Success</u></a></li>
 </ul></div>
 

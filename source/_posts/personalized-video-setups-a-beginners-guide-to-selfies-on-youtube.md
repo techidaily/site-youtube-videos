@@ -1,7 +1,7 @@
 ---
 title: "\"Personalized Video Setups  A Beginner's Guide to Selfies on YouTube\""
-date: 2024-10-22T17:26:11.957Z
-updated: 2024-10-24T16:55:16.498Z
+date: 2024-10-23T09:46:50.559Z
+updated: 2024-10-29T17:06:42.668Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,13 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -68,10 +75,10 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -81,6 +88,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -98,33 +112,19 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -142,20 +142,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-how-can-i-post-twitter-video-on-instagram/"><u>[New] 2024 Approved How Can I Post Twitter Video on Instagram?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-crafting-captivating-content-the-power-of-hashtagging-in-gaming-yt/"><u>[New] Crafting Captivating Content The Power of Hashtagging in Gaming YT</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-perfect-youtube-introend-videos-at-no-cost/"><u>[New] Crafting Perfect YouTube Intro/End Videos at No Cost</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-techniques-for-stunning-shadow-photography-on-your-iphone/"><u>[New] In 2024, Techniques for Stunning Shadow Photography on Your iPhone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-pro-tools-comparison-obs-and-twitch-studio/"><u>[Updated] 2024 Approved Pro Tools Comparison OBS and Twitch Studio</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-accelerated-fortnite-visualization-steps/"><u>2024 Approved Accelerated Fortnite Visualization Steps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-claim-cost-free-visuals-from-highest-rated-4-youtube-sources/"><u>2024 Approved Claim Cost-Free Visuals From Highest-Rated 4 YouTube Sources</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-essential-web-capture-gadgets-for-pcs/"><u>2024 Approved Essential Web-Capture Gadgets for PCs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/beyond-youtube-elite-video-sharing-hubs-revealed/"><u>Beyond YouTube Elite Video Sharing Hubs Revealed</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/digital-dreamland-gamers-income-evolution/"><u>Digital Dreamland Gamers' Income Evolution</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dive-into-ios-screenshots-a-comprehensive-youtube-guide-for-2024/"><u>Dive Into iOS Screenshots A Comprehensive YouTube Guide for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/getting-started-in-the-world-of-online-product-evaluation-channels/"><u>Getting Started in the World of Online Product Evaluation Channels</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-charting-the-course-to-prodigy-status-for-ajey-carryminati/"><u>In 2024, Charting the Course to Prodigy Status for Ajey (CarryMinati)</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/the-most-popular-instagram-story-filters-for-2024/"><u>The Most Popular Instagram Story Filters for 2024</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-trim-and-edit-mp4-videos-with-these-free-tools-2023-review/"><u>Updated Trim and Edit MP4 Videos with These Free Tools (2023 Review)</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-a-comprehensive-look-at-quantum-hdr-for-2024/"><u>[New] A Comprehensive Look at Quantum HDR for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-premier-applications-for-video-conferencing-for-2024/"><u>[New] Premier Applications for Video Conferencing for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-ken-burns-method-in-camtasia-9-explained-simply/"><u>[New] The Ken Burns Method in Camtasia 9 Explained Simply</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-essential-strategies-for-memorable-youtube-closings/"><u>[Updated] Essential Strategies for Memorable YouTube Closings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-boosting-video-appeal-implementing-neon-borders-in-thumbnails/"><u>2024 Approved Boosting Video Appeal Implementing Neon Borders in Thumbnails</u></a></li>
+<li><a href="https://fox-that.techidaily.com/correcting-person-recognition-errors-in-apples-photo-library-a-step-by-step-guide/"><u>Correcting Person Recognition Errors in Apple's Photo Library: A Step-by-Step Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/find-someone-quickly-the-ultimate-list-of-8-people-tracking-engines/"><u>Find Someone Quickly: The Ultimate List of 8 People-Tracking Engines</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-check-if-your-youtube-channel-is-monetized-correctly/"><u>How to Check If Your YouTube Channel Is Monetized Correctly</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-xr-without-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone XR Without Passcode? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/innovative-online-services-for-crafting-perfect-facebook-covers/"><u>Innovative Online Services for Crafting Perfect Facebook Covers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pioneering-the-future-of-online-filmmaking-with-sony-vegas-and-youtube/"><u>Pioneering the Future of Online Filmmaking with Sony Vegas and YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/prime-list-best-free-video-transcript-harvesters/"><u>Prime List Best Free Video Transcript Harvesters</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/snag-the-newest-ipad-9th-generation-at-only-250-following-apples-recent-launch-insider-tips-from-zdnet/"><u>Snag the Newest iPad 9Th Generation at Only $250 Following Apple's Recent Launch - Insider Tips From ZDNet</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/who-earns-more-in-the-video-market-dailymovement-vs-youtube/"><u>Who Earns More in the Video Market? DailyMovement Vs YouTube</u></a></li>
 </ul></div>
 
