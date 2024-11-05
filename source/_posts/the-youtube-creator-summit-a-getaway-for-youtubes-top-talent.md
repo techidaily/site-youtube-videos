@@ -1,7 +1,7 @@
 ---
 title: "\"The YouTube Creator Summit - A Getaway for YouTube's Top Talent\""
-date: 2024-10-10T18:17:17.139Z
-updated: 2024-10-12T22:58:03.645Z
+date: 2024-11-02T20:44:56.018Z
+updated: 2024-11-05T01:25:47.326Z
 tags:
   - ai video
   - ai youtube
@@ -60,22 +60,15 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
@@ -87,20 +80,13 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
@@ -113,6 +99,13 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -122,6 +115,13 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,22 +138,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-beyond-the-interface-secret-techniques-to-master-windows-11/"><u>[New] Beyond the Interface Secret Techniques to Master Windows 11</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-crafting-dynamic-fb-video-covers-a-step-by-step-guide/"><u>[Updated] 2024 Approved Crafting Dynamic FB Video Covers A Step-by-Step Guide</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-unlock-iphone-se-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>3 Ways to Unlock iPhone SE without Passcode or Face ID | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/9-effective-strategies-utilizing-chatgpt-for-improved-wellness/"><u>9 Effective Strategies: Utilizing ChatGPT for Improved Wellness</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/8iphone/"><u>顶级8张照片同步解决方案：iPhone和电脑之间的完美图库转移</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/evasion-techniques-for-youtube-bans/"><u>Evasion Techniques for YouTube Bans</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/exploring-platform-variations-youtube-vs-dailymention/"><u>Exploring Platform Variations YouTube Vs. DailyMention</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/hack-your-way-to-speedy-youtube-video-processing/"><u>Hack Your Way to Speedy YouTube Video Processing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-maximize-video-reach-with-effective-tags-titles/"><u>How to Maximize Video Reach with Effective Tags, Titles</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-poco-x5-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Poco X5 To Phone | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-a-guide-to-the-8-truly-effective-youtube-marketing-methods/"><u>In 2024, A Guide to the 8 Truly Effective Youtube Marketing Methods</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-academic-avenue-leading-educators-on-youtube/"><u>In 2024, Academic Avenue Leading Educators on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-building-audience-connection-with-empowerment-vlogs/"><u>In 2024, Building Audience Connection with Empowerment Vlogs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-conceal-dont-reveal-how-to-blur-faces-online/"><u>In 2024, Conceal, Don't Reveal How to Blur Faces Online</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-poco-c55-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Poco C55 Phones</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-tips-on-viewing-spider-man-no-way-home-through-streaming-services/"><u>Step-by-Step Tips on Viewing 'Spider Man: No Way Home' Through Streaming Services</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-skagen-falster-3-timeless-design-amidst-cutting-edge-smartwatch-innovations/"><u>Unveiling the Skagen Falster 3: Timeless Design Amidst Cutting-Edge Smartwatch Innovations</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-transformative-techniques-to-enhance-your-powerpoint-recordings/"><u>[New] 2024 Approved Transformative Techniques to Enhance Your PowerPoint Recordings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-capture-the-magic-our-list-of-top-12-cameras-for-exceptional-vlogs/"><u>[New] Capture the Magic Our List of Top 12 Cameras for Exceptional Vlogs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-tools-for-android-and-ios-users-seeking-playlist-extractors/"><u>[New] Essential Tools for Android & iOS Users Seeking Playlist Extractors</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-professionelle-winxvideo-ai-vollversion-kaufen-exklusives-upgrade-fur-premiumbenutzer/"><u>1. Professionelle WinxVideo-AI Vollversion Kaufen: Exklusives Upgrade Für Premiumbenutzer</u></a></li>
+<li><a href="https://extra-information.techidaily.com/achieving-stunning-light-conditions-with-an-iphone/"><u>Achieving Stunning Light Conditions with an iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/antonis-at-127-antenna-review-experience-unparalleled-television-viewing-with-our-sleek-free-digital-broadcast-receiver/"><u>ANTONIS At-127 Antenna Review: Experience Unparalleled Television Viewing With Our Sleek, Free Digital Broadcast Receiver!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-balancing-visual-elements-with-ideal-video-ratios/"><u>In 2024, Balancing Visual Elements with Ideal Video Ratios</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-realme-c55-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Realme C55 Phone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-toshiba-silvertown-graphics-card-drivers-for-windows-users/"><u>Latest Toshiba SILVERTOWN Graphics Card Drivers for Windows Users</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/low-cost-recording-choices-top-11-vlogger-essentials/"><u>Low-Cost Recording Choices Top 11 Vlogger Essentials</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-authenticity-on-instagrams-platform/"><u>Mastering Authenticity on Instagram's Platform</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/revenue-revolution-joining-elite-at-500-subs-level/"><u>Revenue Revolution Joining Elite at 500 Subs Level</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/scrutinizing-youtubes-top-viewed-community-inputs/"><u>Scrutinizing YouTube's Top Viewed Community Inputs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-by-step-legally-convert-youtube-to-mp4-format/"><u>Step-by-Step Legally Convert YouTube to MP4 Format</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/things-about-asmr-video-you-should-know-for-2024/"><u>Things About ASMR Video You Should Know for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/transform-your-in-game-identity-with-these-free-free-fire-vocal-hacks/"><u>Transform Your In-Game Identity with These Free Free Fire Vocal Hacks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/your-go-to-list-of-international-adventure-vids/"><u>Your Go-To List of International Adventure Vids</u></a></li>
 </ul></div>
 

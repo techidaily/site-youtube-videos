@@ -1,7 +1,7 @@
 ---
 title: "\"A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications for 2024\""
-date: 2024-08-23T19:47:31.132Z
-updated: 2024-08-24T19:47:31.132Z
+date: 2024-11-03T16:16:40.974Z
+updated: 2024-11-05T05:17:37.562Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/0afe9beb0b64de5cc7a966e66ff258745b01178cd
 
 # How to Add YouTube Annotations and Cards?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -49,26 +45,17 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
 * Click on the "Video Manager" tab
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -81,8 +68,12 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -93,13 +84,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -139,13 +141,18 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -154,5 +161,20 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-digital-dominance-youtubes-best-female-gamers/"><u>[New] In 2024, Digital Dominance YouTube's Best Female Gamers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-elevate-your-freefire-gameplay-on-youtube-channels/"><u>[Updated] 2024 Approved Elevate Your FreeFire Gameplay on YouTube Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-break-free-from-fee-free-youtube-start-at-500plus-subscriber-level/"><u>[Updated] Break Free From Fee-Free Youtube - Start at 500+ Subscriber Level</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-plating-perfection-tips-for-shooting-culinary-content/"><u>[Updated] Plating Perfection Tips for Shooting Culinary Content</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-impact-of-visual-client-reviews-on-business-image/"><u>2024 Approved Impact of Visual Client Reviews on Business Image</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/6-completely-different-places-to-get-youtube-icons-and-logos-for-2024/"><u>6 Completely Different Places to Get YouTube Icons and Logos for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/blueprint-for-creating-viral-trailers-in-the-world-of-youtube/"><u>Blueprint for Creating Viral Trailers in the World of YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-bank-balance-effective-tactics-for-mobile-video-money-making-for-2024/"><u>Boosting Bank Balance Effective Tactics for Mobile Video Money-Making for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-honor-magic-6-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Honor Magic 6 phone? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-find-n3-flip-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Oppo Find N3 Flip to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-thorough-breakdown-the-dji-inspire-1-features/"><u>In 2024, Thorough Breakdown The DJI Inspire 1 Features</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/making-sense-of-mukbangs-crafting-foodie-streams/"><u>Making Sense of Mukbangs Crafting Foodie Streams</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/maximize-your-workflow-with-efficient-use-of-macs-preview-tool-for-2024/"><u>Maximize Your Workflow with Efficient Use of Mac's Preview Tool for 2024</u></a></li>
+</ul></div>
 

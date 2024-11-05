@@ -1,7 +1,7 @@
 ---
 title: "\"Behind the Numbers  Deciphering How YouTube Measures Popularity\""
-date: 2024-08-16T08:45:22.674Z
-updated: 2024-08-17T08:45:22.674Z
+date: 2024-11-02T03:58:46.083Z
+updated: 2024-11-04T19:38:49.215Z
 tags:
   - ai video
   - ai youtube
@@ -49,8 +49,12 @@ YouTube doesn’t provide a clear definition of what counts as a view, but we kn
 ![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2\. How Does YouTube Count Views?
 
 YouTube wants to be sure that views are coming from humans and not bots. So, during the first couple of hours after you publish a video, YouTube seems to be stricter about what they count. The views which are counted are the ones that YouTube believes to be legitimate. Sometimes, it ends up skipping legitimate views for the sake of discretion.
@@ -79,8 +83,12 @@ We are adding ‘likely’ here because, despite this 30-second rule which has b
 Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Account Tracking Factors - Some Viewers Don't Count
 
 Something else that can affect whether a view is counted is the behavior of the account which watches it prior to landing on your video’s watch page. Sometimes, YouTube might feel that there is an increased chance a particular account is actually a bot, and then views from that account might not be added.
@@ -89,21 +97,28 @@ One way that [YouTube might flag an account as a potential bot](https://support.
 
 Any bot-like action will result in an account’s views do not be added to your view count.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. The Skip & Skim
 
 It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Frozen YouTube View Counts
 
 Sometimes YouTube will freeze a view count in order to check that it is accurate. When the count is unfrozen, the count may jump up as views are validated or it can go down if YouTube detects a problem.
 
 You can use [YouTube’s analytics reports](https://blog.hootsuite.com/youtube-analytics/) to monitor an estimate of your potential views, but there is no assurance that this data will completely match your official view count.
+
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. The 301 Mark
 
@@ -114,17 +129,18 @@ This is why view counts are often frozen at 301\. The employees at YouTube then 
 During the period when the view count is frozen every legitimate view is still counted, just not added immediately. Once the YouTube team is sure that your videos are not getting fake traffic, your view count will be updated to include views that were registered during the frozen phase. However, [YouTube says](https://www.theverge.com/2015/8/5/9100759/youtube-301-view-count-freeze-going-away) it won't flag videos at 301 views anymore.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 In short, we know YouTube expects a viewer to watch a video for around 30 seconds before it counts a view, that views from suspicious accounts are not counted, and that YouTube can decide to freeze your view count while they review your views. They are protecting the site from becoming saturated with videos that only look popular because of bots. Ultimately, ‘how does YouTube count views’ isn’t a question anyone but YouTube can answer for sure, but we do know it isn’t as simple as ‘a view is someone clicking on your video’.
 
 If you want to engage your audience with cool effects and Filmora is the best choice to make a split-screen and green screen video for YouTubers. Download it now to have a try!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -135,12 +151,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-seo-tactics-to-increase-youtube-traffic-and-views/"><u>[New] In 2024, SEO Tactics to Increase YouTube Traffic and Views</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-ace-your-marketing-game-top-5-youtube-techniques-unveiled/"><u>[Updated] Ace Your Marketing Game Top 5 YouTube Techniques Unveiled</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-becoming-a-vlogger-voice-confident-content-creation-strategies/"><u>[Updated] Becoming a Vlogger Voice Confident Content Creation Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-empower-your-content-advanced-techniques-in-youtube-editing/"><u>[Updated] Empower Your Content Advanced Techniques in YouTube Editing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-tech-savvy-show-saviors-advanced-tv-capture-tips/"><u>[Updated] In 2024, Tech-Savvy Show Saviors Advanced TV Capture Tips</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/asmr-mastery-your-guide-to-nighttime-relaxation/"><u>ASMR Mastery Your Guide to Nighttime Relaxation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/conquering-consumer-attention-metaverse-marketing-tips-for-2024/"><u>Conquering Consumer Attention Metaverse Marketing Tips for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-compelling-hooks-in-every-haul-post-for-2024/"><u>Crafting Compelling Hooks in Every Haul Post for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-youtube-marketing-techniques-ranked-from-best-to-worst-for-2024/"><u>Essential YouTube Marketing Techniques – Ranked From Best to Worst for 2024</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/guia-rapida-para-sincronizar-tu-carpeta-local-con-onedrive-en-windows-11/"><u>Guía Rápida Para Sincronizar Tu Carpeta Local Con OneDrive en Windows 11</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/harness-the-power-of-playback-speed-control-in-youtube/"><u>Harness the Power of Playback Speed Control in YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-frameforge-review-the-ultimate-guide-to-capturing-tech/"><u>In 2024, FrameForge Review The Ultimate Guide to Capturing Tech</u></a></li>
+<li><a href="https://solve-info.techidaily.com/natasha-mann-leading-visionary-on-the-abbyy-board/"><u>Natasha Mann - Leading Visionary on the ABBYY Board</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/seamless-content-curation-with-youtubes-watch-later-feature/"><u>Seamless Content Curation with YouTube’s Watch Later Feature</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streamline-your-youtube-thumbnail-process/"><u>Streamline Your YouTube Thumbnail Process</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-instructors-roadmap-to-youtube-success-10-crucial-steps/"><u>The Instructor's Roadmap to YouTube Success – 10 Crucial Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-with-mondlys-unmatched-app/"><u>Unlock Your Potential with Mondly's Unmatched App</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/what-are-ethical-alternatives-to-buying-likes/"><u>What Are Ethical Alternatives to Buying Likes?</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-vivo-y78plus-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Vivo Y78+ Hard Reset | Dr.fone</u></a></li>
+</ul></div>
 

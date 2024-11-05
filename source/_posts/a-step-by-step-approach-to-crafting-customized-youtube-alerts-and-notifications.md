@@ -1,7 +1,7 @@
 ---
 title: "\"A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications\""
-date: 2024-08-23T19:47:27.445Z
-updated: 2024-08-24T19:47:27.445Z
+date: 2024-10-31T07:14:58.286Z
+updated: 2024-11-04T22:46:31.588Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 
 # How to Add YouTube Annotations and Cards?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -66,16 +63,17 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -84,18 +82,26 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -133,18 +139,20 @@ The best outros also include a subscribe button, which can be created using anno
 
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -153,5 +161,18 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-hand-in-the-wind-understanding-its-types/"><u>[New] Hand-In-The-Wind Understanding Its Types</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-eyecatcher-studio-wx-series/"><u>[Updated] EyeCatcher Studio WX Series</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-iphone-night-scene-mastery-guide/"><u>[Updated] IPhone Night Scene Mastery Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-transform-your-footage-with-fast-and-flawless-trims-in-windows-11-for-2024/"><u>[Updated] Transform Your Footage with Fast & Flawless Trims in Windows 11 for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-timeless-videos-with-retro-filmmaking-skills/"><u>2024 Approved Crafting Timeless Videos with Retro Filmmaking Skills</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-features-and-mechanisms-after-uploading-content-for-2024/"><u>Dissecting YouTube’s Features and Mechanisms After Uploading Content for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-youtube-video-screens-without-barriers-for-2024/"><u>Enhancing YouTube Video Screens Without Barriers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-journey-to-numeral-knowledge-in-japan/"><u>Speedy Journey to Numeral Knowledge in Japan</u></a></li>
+<li><a href="https://win11.techidaily.com/the-peak-of-performance-top-6-applications-to-measure-your-fps-in-windows-11/"><u>The Peak of Performance: Top 6 Applications to Measure Your FPS in Windows 11</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-strategies-shared-by-industry-leaders-helping-female-professionals-excel-in-information-technology/"><u>Top Strategies Shared by Industry Leaders: Helping Female Professionals Excel in Information Technology</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/zero-intrusions-check-out-our-list-of-top-7-android-apps/"><u>Zero Intrusions? Check Out Our List of Top 7 Android Apps</u></a></li>
+</ul></div>
 

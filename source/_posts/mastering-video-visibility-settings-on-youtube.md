@@ -1,7 +1,7 @@
 ---
 title: "Mastering Video Visibility Settings on YouTube"
-date: 2024-10-29T07:42:44.731Z
-updated: 2024-10-29T16:28:45.073Z
+date: 2024-11-02T23:09:00.297Z
+updated: 2024-11-04T23:19:27.584Z
 tags:
   - ai video
   - ai youtube
@@ -60,13 +60,6 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -77,13 +70,6 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -91,16 +77,10 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
@@ -112,10 +92,10 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -124,7 +104,21 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -141,14 +135,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-clipcraft-designer/"><u>[New] ClipCraft Designer</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-decipher-youtubes-mysteries-with-advanced-insights-from-social-blade/"><u>[Updated] Decipher YouTube's Mysteries with Advanced Insights From Social Blade</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-affordable-tactics-for-combining-media-with-literature/"><u>2024 Approved Affordable Tactics for Combining Media with Literature</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/5-solutions-for-tecno-pova-6-pro-5g-unlock-without-password-by-drfone-android/"><u>5 Solutions For Tecno Pova 6 Pro 5G Unlock Without Password</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/earning-in-the-e-commerce-arena-via-engaging-reviews/"><u>Earning in the E-Commerce Arena via Engaging Reviews</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-itel-a60-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Itel A60 to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-bridging-photography-and-cinematography-creating-fusion-videos-using-pixiz/"><u>In 2024, Bridging Photography and Cinematography Creating Fusion Videos Using Pixiz</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-echo-music-into-your-whatsapp-narrative/"><u>In 2024, Echo Music Into Your WhatsApp Narrative</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-lava-storm-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Lava Storm 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-managing-excessive-tiktoks-mastering-edits-and-deletions/"><u>[New] Managing Excessive TikToks Mastering Edits & Deletions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-does-buying-youtube-likes-help-boost-your-channel/"><u>2024 Approved Does Buying YouTube Likes Help Boost Your Channel?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/elevating-your-existence-on-the-web-expanding-your-youtube-following/"><u>Elevating Your Existence on the Web Expanding Your Youtube Following</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/event-ensemble-curating-best-dj-templates-for-2024/"><u>Event Ensemble Curating Best DJ Templates for 2024</u></a></li>
+<li><a href="https://win-popular.techidaily.com/fonetool-anleitung-fur-das-klonen-ihres-iphones-auf-einem-ipad-drei-effektive-ansatze-erklart/"><u>FoneTool-Anleitung Für Das Klonen Ihres iPhones Auf Einem iPad – Drei Effektive Ansätze Erklärt</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/orchestrating-pictures-with-musical-accompaniment-for-2024/"><u>Orchestrating Pictures with Musical Accompaniment for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/producing-channel-trailer-synopses-a-guide/"><u>Producing Channel Trailer Synopses A Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/steps-for-confirming-youtube-identity/"><u>Steps for Confirming YouTube Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-community-control-facebooks-next-level-administration-features/"><u>Tailoring Community Control: Facebook's Next-Level Administration Features</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-complete-users-manual-to-youtube-editing-via-finalcut-pro/"><u>The Complete User's Manual to YouTube Editing via FinalCut Pro</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-rated-magsafe-power-solutions-comprehensive-testing-and-reviews-by-tech-gurus/"><u>Top-Rated MagSafe Power Solutions : Comprehensive Testing & Reviews by Tech Gurus</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unveiling-excellence-in-online-advertising-craftsmanship/"><u>Unveiling Excellence in Online Advertising Craftsmanship</u></a></li>
 </ul></div>
 

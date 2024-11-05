@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 10 YouTube Storytelling Techniques That Work"
-date: 2024-10-07T18:36:12.123Z
-updated: 2024-10-13T00:26:04.812Z
+date: 2024-10-30T20:09:48.650Z
+updated: 2024-11-04T18:58:53.204Z
 tags:
   - ai video
   - ai youtube
@@ -49,16 +49,22 @@ YouTuber Shameless Maya does an excellent job of this. She created a visually ap
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\.  Snapchat/Instagram Stories Q&A
 
@@ -73,16 +79,10 @@ Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\.  My Depression/Anxiety or Mental Health Story
@@ -97,6 +97,13 @@ Narrated Autobiopic videos are a great way to share your story or advice in a ci
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
@@ -105,26 +112,13 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -142,15 +136,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-masterful-adjustments-the-editors-guide-to-gopro-video-magic/"><u>[New] Masterful Adjustments The Editor's Guide to GoPro Video Magic</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-restore-natural-tones-reviving-overexposed-iphone-hdr-videos-in-premiere-pro/"><u>[Updated] 2024 Approved Restore Natural Tones Reviving Overexposed iPhone HDR Videos in Premiere Pro</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-pro-tips-to-enhance-your-use-of-instagrams-query-symbol/"><u>[Updated] In 2024, Pro Tips to Enhance Your Use of Instagram's Query Symbol</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-elite-circle-of-vr-innovation-experts/"><u>2024 Approved Elite Circle of VR Innovation Experts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/establishing-a-mac-based-sports-media-outlet/"><u>Establishing a Mac-Based Sports Media Outlet</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/fixed-youtube-shorts-lacking-in-sight/"><u>Fixed YouTube Shorts Lacking in Sight</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/flavor-forge-30-epicurean-titles-that-resonate/"><u>Flavor Forge 30 Epicurean Titles That Resonate</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-raw-to-refined-expert-techniques-for-youtube-content-creators/"><u>From Raw to Refined Expert Techniques for YouTube Content Creators</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-8-official-method-to-unlock-your-apple-iphone-8-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 8 Official Method to Unlock Your Apple iPhone 8</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-tecno-camon-30-pro-5g-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Tecno Camon 30 Pro 5G to Gmail | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-content-creators-revenue-gain-from-each-click/"><u>[New] In 2024, Content Creators' Revenue Gain From Each Click</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-animating-elegance-self-designed-tricks-and-effects/"><u>[Updated] Animating Elegance Self-Designed Tricks & Effects</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-create-memorable-thumbnails-discover-these-8-youtube-aids/"><u>[Updated] Create Memorable Thumbnails - Discover These 8 YouTube Aids</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-essential-visual-captures-on-apple-systems-limit-156-characters/"><u>[Updated] In 2024, Essential Visual Captures on Apple Systems (Limit 156 Characters)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-time-stretching-through-lenses-a-detailed-slomo-analysis-2024/"><u>[Updated] Time Stretching Through Lenses A Detailed SloMo Analysis, 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-10-action-cameras-for-surfing-2023-update/"><u>[Updated] Top 10 Action Cameras for Surfing -2023 Update</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-oneplus-12-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass OnePlus 12 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-xiaomi-redmi-12-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Xiaomi Redmi 12 Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/social-video-marketing-insights-for-small-business-infographic/"><u>Social Video Marketing Insights for Small Business [Infographic]</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streamline-your-income-youtubes-new-rules/"><u>Streamline Your Income YouTube's New Rules</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ultimate-guide-to-the-top-youtube-video-editors/"><u>Ultimate Guide to the Top YouTube Video Editors</u></a></li>
 </ul></div>
 

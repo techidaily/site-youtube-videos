@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Engaging Viewers with Ease  The Art of Confidently Filming\""
-date: 2024-08-23T19:48:53.916Z
-updated: 2024-08-24T19:48:53.916Z
+date: 2024-10-29T01:21:51.897Z
+updated: 2024-11-05T03:38:37.155Z
 tags:
   - ai video
   - ai youtube
@@ -16,18 +16,6 @@ thumbnail: https://www.lifewire.com/thmb/1ORENAcdpVO--HD2FOuod93e8Rw=/400x300/fi
 
 ## Engaging Viewers with Ease: The Art of Confidently Filming
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 # 8 Tips on How to Vlog Confidently Like Popular YouTubers ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -40,9 +28,6 @@ For most people, vlogging is not something that comes naturally. Like any skill,
 
 When we watch the most popular YouTubers, the traits that make them successful are often invisible, because we are so consumed by their vlog. In this article, I’ll highlight 8 tips from the most accomplished vloggers on the Internet, so that you can vlog confidently and make the best YouTube videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -63,18 +48,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -83,6 +56,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -90,6 +70,13 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -103,6 +90,13 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -113,9 +107,6 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -127,8 +118,12 @@ Consider your audience: they are coming home from school or work, where there we
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -153,10 +148,6 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -165,8 +156,6 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
@@ -174,5 +163,19 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevating-video-revenue-youtubes-path/"><u>[Updated] In 2024, Elevating Video Revenue YouTube's Path</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-effortless-subscriber-acquisition-for-enhanced-viewership/"><u>2024 Approved Effortless Subscriber Acquisition for Enhanced Viewership</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/convert-and-share-simplified-mp3-to-youtube-process-3-phases/"><u>Convert & Share Simplified MP3 to YouTube Process [3 Phases]</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/filmoras-blueprint-for-stellar-youtube-trailers/"><u>Filmora's Blueprint for Stellar YouTube Trailers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-realme-note-50-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Realme Note 50</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-mix-seamless-free-and-paid-blu-ray-playback-windows-macos/"><u>In 2024, Ultimate Mix Seamless Free & Paid Blu-Ray Playback (Windows, macOS)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/piecing-together-engaging-stream-previews-for-2024/"><u>Piecing Together Engaging Stream Previews for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/scripting-power-chatgpt-in-game-development/"><u>Scripting Power: ChatGPT in Game Development</u></a></li>
+<li><a href="https://howto.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-vivo-y100-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlock-advanced-features-with-linksys-wrt3200acm-the-premier-choice-for-enthusiasts-home-networking-solutions/"><u>Unlock Advanced Features with Linksys WRT3200ACM - The Premier Choice for Enthusiasts' Home Networking Solutions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/visionedit-ace/"><u>VisionEdit Ace</u></a></li>
+</ul></div>
 

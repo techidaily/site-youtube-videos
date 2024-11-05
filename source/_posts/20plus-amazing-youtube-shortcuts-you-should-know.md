@@ -1,7 +1,7 @@
 ---
 title: "20+ Amazing YouTube Shortcuts You Should Know"
-date: 2024-08-23T19:47:55.654Z
-updated: 2024-08-24T19:47:55.654Z
+date: 2024-10-28T18:31:11.592Z
+updated: 2024-11-04T19:59:10.012Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,6 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 
 ## 20+ Amazing YouTube Shortcuts You Should Know
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 # YouTube Shortcuts You Should Know in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -34,9 +31,12 @@ With that said, the following two-columned tables give you detailed information 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -74,9 +74,6 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -89,9 +86,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -103,8 +97,12 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↓'               | Decrease volume by 5% |
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -118,6 +116,13 @@ The shortcut keys given in this table enable you to switch between different scr
 Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
 
@@ -152,8 +157,12 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -162,8 +171,6 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
@@ -171,5 +178,22 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-earnings-from-a-million-youtube-globals/"><u>[New] Earnings From a Million YouTube Globals</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-steps-for-mp3-streams-on-youtube/"><u>[New] Essential Steps for MP3 Streams on Youtube</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-future-of-virtual-game-viewership-income/"><u>[New] In 2024, Future of Virtual Game Viewership Income</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-recollection-runway-your-easy-path-to-story-archives/"><u>[Updated] 2024 Approved Recollection Runway Your Easy Path to Story Archives</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-final-cut-pros-top-effect-enhancers-the-essential-10-for-2024/"><u>[Updated] Final Cut Pro's Top Effect Enhancers The Essential 10 for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-plunge-into-a-live-stream-on-tiktok-with-ease-for-2024/"><u>[Updated] Plunge Into a Live Stream on TikTok with Ease for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-proven-techniques-to-convert-and-download-pinterest-video-audio/"><u>[Updated] Proven Techniques to Convert and Download Pinterest Video Audio</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-audio-layers-for-professional-videography-premiere-pro-edition/"><u>2024 Approved Audio Layers for Professional Videography Premiere Pro Edition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/access-all-subtitles-top-10-free-tools-for-youtube-videos/"><u>Access All Subtitles Top 10 Free Tools for YouTube Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150184377-alert-recover-your-compromised-fb-profile-now/"><u>Alert: Recover Your Compromised FB Profile Now</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/correcting-failed-windows-updates-error-0x8024800c/"><u>Correcting Failed Windows Updates (Error 0X8024800C)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-minimizing-vr-nausea-effective-strategies/"><u>In 2024, Minimizing VR Nausea Effective Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/personalize-your-pixelated-world-the-ultimate-guide-to-discovering-creator-types-via-6-tests/"><u>Personalize Your Pixelated World The Ultimate Guide to Discovering Creator Types via 6 Tests</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/tactics-to-increase-youtube-video-engagement-and-views/"><u>Tactics to Increase YouTube Video Engagement and Views</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unboxing-the-secrets-to-stunning-shorts-thumbnails/"><u>Unboxing the Secrets to Stunning Shorts Thumbnails</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Analyzing Video Success  Self Vs. Rivals in the YouTube Arena\""
-date: 2024-08-16T08:45:52.788Z
-updated: 2024-08-17T08:45:52.788Z
+date: 2024-11-02T18:00:13.858Z
+updated: 2024-11-04T21:35:14.333Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
 # YouTube Analytics – How to analyze your and Competitor's YouTube Video
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,28 +38,18 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
  Views along with watch time turn out to be the best bet. Watch time sums up the total amount of time spent (in terms of minutes) on your brand' videos. With the updated dashboard it becomes easy to get the YouTube analytics and gauge the video's performance. Using the average view duration, you can know whether your video is being watched till the end or not.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-views.jpg)
 
 #### 2\.  Playback Location
 
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
 #### 3\.  Demographics
 
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
 
 #### 4\.  Traffic sources
@@ -75,9 +62,6 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
 #### 6\.  Devices
@@ -106,9 +90,6 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
  While considering YouTube Analytics, it is essential to understand that there are annotations to guide viewers to your business site for more content. It is not necessary that the content is video only, it might include a blog post as well. This will let you understand the click through rate and 'close' rates for every annotation. This in turn will assist you in optimizing how to reach your audience and where to place the annotations.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
 
 #### 10\.  Comments
@@ -121,9 +102,6 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
  Cards is a new feature in YouTube analytics and aimed at replacing annotations. This will improve user interactivity of any video and accelerate the engagement. They will act as call to action for informing visitors regarding playlists, videos, merchandising, fan funding, and associated website etc.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
 #### 12\.  Sharing
@@ -136,10 +114,14 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to analyze your competitors
 
@@ -153,10 +135,14 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
  InflueNex is a helpful influencer marketing tool for Analyzing, searching, and managing YouTubers. With the help of this YouTube analytics tool, you're able to learn your competitors' channels and videos with detailed information.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![InflueNex YouTube Marketing Paltform ](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. [Rival IQ](https://www.rivaliq.com/)
 
@@ -170,13 +156,18 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -184,4 +175,23 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-instagram-launch-your-live-session-for-2024/"><u>[New] Mastering Instagram Launch Your Live Session for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-top-fbx-capture-tools-beyond-traditional-recorders/"><u>[Updated] 2024 Approved Top FBX Capture Tools Beyond Traditional Recorders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-bright-beginnings-on-youtube-launching-and-revenue-strategies/"><u>[Updated] Bright Beginnings on YouTube Launching and Revenue Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-youtube-visibility-with-tubebuddy/"><u>2024 Approved Enhancing YouTube Visibility with TubeBuddy</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cut-to-perfection-premier-android-editing-software-for-2024/"><u>Cut to Perfection Premier Android Editing Software for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-insights-into-youtube-live-image-crafting/"><u>Essential Insights Into YouTube Live Image Crafting</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-aspect-ratios-unveiled-a-complete-youtube-manual/"><u>In 2024, Aspect Ratios Unveiled A Complete YOUTUBE Manual</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-apple-iphone-15-activation-lock-by-drfone-ios/"><u>In 2024, How to Remove Apple iPhone 15 Activation Lock</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-smooth-media-transition-pc-files-to-iphone/"><u>In 2024, Smooth Media Transition PC Files To iPhone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/precision-in-filming-high-quality-camera-stabilizers-guide-for-2024/"><u>Precision in Filming High-Quality Camera Stabilizers Guide for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/reigniting-your-bluetooth-mouse-link-with-windows-xp7/"><u>Reigniting Your Bluetooth Mouse Link with Windows XP/7</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ultimate-list-of-world-explorers-on-youtube/"><u>The Ultimate List of World Explorers on Youtube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-in-car-entertainment-a-comprehensive-review-of-the-lihan-lhfm1039-bluetooth-fm-transmitter/"><u>Transforming In-Car Entertainment: A Comprehensive Review of the LIHAN LHFM1039 Bluetooth FM Transmitter</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/count-rewards-on-youtube-per-million-in-2024/"><u>View Count Rewards on YouTube – Per Million, In 2024</u></a></li>
+</ul></div>
 

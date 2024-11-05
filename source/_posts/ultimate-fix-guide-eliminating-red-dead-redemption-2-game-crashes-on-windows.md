@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Fix Guide: Eliminating Red Dead Redemption 2 Game Crashes on Windows"
-date: 2024-10-26T18:46:05.641Z
-updated: 2024-10-29T21:12:20.149Z
+date: 2024-11-03T07:06:04.264Z
+updated: 2024-11-04T23:01:26.061Z
 tags:
   - win11
   - win10
@@ -30,13 +30,6 @@ Stop blaming yourself for losing your temper when the FPS (frame per second) dro
 7. **[Consider hardware upgrade](https://tools.techidaily.com/drivereasy/download/)**
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 1\. Check the system requirements
 
@@ -70,19 +63,19 @@ To do so:
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/image-48.png)
 2. Select each resource-hogging application and click **End Task** to close them one by one.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/image-49.png)
 3. Pay extra attention to**Intel Turbo Boost Technology** : if you have it running, please disable it as well.
 
  Then run your game again and see if the FPS dropping issue is fixed. If the problem still remains, please move on to the next fix below.
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Modify your network settings
 
@@ -109,6 +102,13 @@ To do so:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/run-cmd.png)
 3. Copy**ipconfig /flushdns** , and paste it in the pop-up window. Then press**Enter** .  
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/flushdns的副本.png)
 4. Your DNS cache is successfully cleared.  
 
@@ -124,47 +124,53 @@ To do so:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/change-adapter-options.png)
 3. Right-click**the network you’re using** , then click**Properties** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/click-ethernet.png)
 4. Select**Internet Protocol Version 4 (TCP/IPv4)** , then click**Properties** .  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/ipv4.png)
 5. Select**Use the following DNS server addresses** , fill in the Google DNS server addresses as below, then click**OK** .  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  **Preferred DNS server: 8.8.8.8**  
  **Alternate DNS server: 8.8.4.4**  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/change-to-google-dns.png)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Run your game again to see if the frame rate per second still drops. If the problem still persists, please move on.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Update graphics card and network card drivers
 
  Another reason why FPS drops in your games is probably outdated or incorrect drivers for your graphics and network cards. This is because outdated, incorrect, or missing drivers for your display card and network card could lead to unstable graphics rendering and slow network connection, and therefore the stuttering and the FPS dropping problems. So you should update your device drivers to see if it helps.
 
  There are mainly 2 ways you can update the drivers for your video card and network card: manually or automatically.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Option 1: Update your graphics and network drivers manually
 
@@ -207,10 +213,10 @@ and your network card manufacturer:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Modify the Power Mode
@@ -223,29 +229,23 @@ To change the power mode:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/run-dialog-powercfg.png)
 2. In the pop-up window, expand **Hide additional plans** and select **High performance** .  
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-power-options.png)
 3. Then run your game to see if the frame rate per second is higher. If the problem remains still, please move on to the next fix.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7\. Consider hardware upgrade
@@ -275,22 +275,18 @@ To change the power mode:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-boost-your-visibility-with-a-cutting-edge-set-of-banners/"><u>[New] 2024 Approved Boost Your Visibility with a Cutting-Edge Set of Banners!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-track-talkative-youtube-threads/"><u>[New] 2024 Approved Track Talkative YouTube Threads</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-breakthrough-strategies-for-peak-video-viewership-times/"><u>[New] Breakthrough Strategies for Peak Video Viewership Times</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-earning-through-online-beauty-networks/"><u>[New] Earning Through Online Beauty Networks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-11-zero-cost-youtube-moniker-makers/"><u>[New] Essential 11 Zero-Cost YouTube Moniker Makers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-outstanding-movies-overlooked-by-critics/"><u>[Updated] 2024 Approved Outstanding Movies Overlooked by Critics</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-premium-7-cameras-boosting-vlogging-creativity-and-viewership/"><u>[Updated] Premium 7 Cameras Boosting Vlogging Creativity & Viewership</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-earnings-expertise-on-streaming-services-the-ultimate-guide/"><u>2024 Approved Earnings Expertise on Streaming Services The Ultimate Guide</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-samsung-galaxy-a15-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Samsung Galaxy A15 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/breaking-the-mold-pushing-a-video-into-hot-water-for-2024/"><u>Breaking the Mold Pushing a Video Into Hot Water for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/rt-audio-online-mp3-to-youtube-live-upload-guide/"><u>Convert Audio Online MP3 to YouTube Live Upload Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-are-there-benefits-to-purchasing-youtube-engagement/"><u>In 2024, Are There Benefits to Purchasing YouTube Engagement?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/overcome-pacifica-drive-launch-obstacles-top-strategies-and-fixes/"><u>Overcome Pacifica Drive Launch Obstacles – Top Strategies and Fixes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/professional-level-content-structure-with-expert-templates/"><u>Professional-Level Content Structure with Expert Templates</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/splendid-screenplay-strategies-for-spectaculous-lights/"><u>Splendid Screenplay Strategies for Spectaculous Lights</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/visual-storytelling-in-business-marketing/"><u>Visual Storytelling in Business Marketing</u></a></li>
-<li><a href="https://win11.techidaily.com/win11s-control-panel-customizing-made-simple/"><u>Win11's Control Panel: Customizing Made Simple</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-examining-youtubes-noteworthy-chats/"><u>[New] Examining YouTube's Noteworthy Chats</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-scheduling-success-a-step-by-step-approach-to-google-meets/"><u>[New] Scheduling Success A Step-by-Step Approach to Google Meets</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-strategic-thinking-keywords-that-lead-to-online-victory/"><u>[New] Strategic Thinking Keywords that Lead to Online Victory</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-15-uncomplicated-vlog-ideas-to-ignite-creativity/"><u>[Updated] Top 15 Uncomplicated Vlog Ideas to Ignite Creativity</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-the-ultimate-guide-to-effective-youtube-banners/"><u>2024 Approved The Ultimate Guide to Effective YouTube Banners</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-creators-primer-to-understanding-major-content-providers/"><u>A Creator's Primer to Understanding Major Content Providers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/bite-sized-content-on-youtube-for-2024/"><u>Bite-Sized Content on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dynamic-subscriber-buttons-for-video-creators-filmora-edition/"><u>Dynamic Subscriber Buttons for Video Creators - Filmora Edition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-stream-a-comprehensive-ad-revenue-guide-on-youtube/"><u>Elevate Your Stream A Comprehensive Ad Revenue Guide on YouTube</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/finding-and-installing-the-latest-lenovo-t430-drivers-for-optimal-functionality-on-windows-1187-systems-comprehensive-guide/"><u>Finding and Installing the Latest Lenovo T430 Drivers for Optimal Functionality on Windows 11/8/7 Systems [Comprehensive Guide]</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-change-the-sound-for-new-messages-in-gmail-easily/"><u>How to Change the Sound for New Messages in Gmail Easily</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-review-of-huawei-p10s-multimedia-features-and-functionality/"><u>In 2024, Review of Huawei P10’s Multimedia Features & Functionality</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-understanding-the-dynamics-behind-youtubes-investment-in-shorts/"><u>In 2024, Understanding the Dynamics Behind YouTube's Investment in Shorts</u></a></li>
 </ul></div>
 

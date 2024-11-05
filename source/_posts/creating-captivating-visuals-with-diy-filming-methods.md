@@ -1,7 +1,7 @@
 ---
 title: "Creating Captivating Visuals with DIY Filming Methods"
-date: 2024-08-16T08:46:30.930Z
-updated: 2024-08-17T08:46:30.930Z
+date: 2024-11-02T19:55:22.886Z
+updated: 2024-11-04T22:04:31.976Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://www.lifewire.com/thmb/Ox6vAuLUV4dyE0jdhv92jjP32j8=/210x138/fi
 
 # 4 Ways To Set Up Your Talking-Head Shots For YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -34,24 +31,14 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | Table of Contents [1\. Close Quarters Wide-Angle Vlog Set-Up](#Close-Quarters-Wide-Angle-Vlog-Set-Up)[2\. Medium Vlog Set-Up](#Medium-Vlog-Set-Up)[3\. Two Person Vlog Set-Up](#Two-Person-Vlog-Set-Up)[4\. Long Teleprompter Vlog Set-Up](#Long-Teleprompter-Vlog-Set-Up) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -67,8 +54,18 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -83,6 +80,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -90,6 +94,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -113,10 +124,14 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -124,12 +139,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-finding-fixes-your-missing-video-suggestions-on-fb/"><u>[New] 2024 Approved Finding Fixes Your Missing Video Suggestions on FB</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-mastering-the-art-of-transforming-social-media-videos-to-gifs/"><u>[New] 2024 Approved Mastering the Art of Transforming Social Media Videos to GIFs</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unleash-potential-a-step-by-step-solo-podcast-creation/"><u>[New] Unleash Potential A Step-By-Step Solo Podcast Creation</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-3-creative-strategies-for-enhanced-heads-on-tiktok-videos/"><u>[Updated] 3 Creative Strategies for Enhanced Heads on TikTok Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-a-unique-online-presence-youtube-edition/"><u>2024 Approved Crafting a Unique Online Presence YouTube Edition</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/behind-the-scenes-creating-magic-with-magix/"><u>Behind-the-Scenes Creating Magic with Magix</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/downloading-your-youtube-watch-lists-step-by-step-for-2024/"><u>Downloading Your YouTube Watch Lists Step by Step for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/generating-wealth-with-makeup-channels/"><u>Generating Wealth with Makeup Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-creating-captivating-thumbnails-for-youtube/"><u>In 2024, Creating Captivating Thumbnails for YouTube</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-tecno-spark-10-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Tecno Spark 10 5G?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-motorola-moto-g24-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Motorola Moto G24 Phone Hassle-Free</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-ultimate-guide-securely-integrating-tiktok-profile-links/"><u>In 2024, Ultimate Guide Securely Integrating TikTok Profile Links</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/integrating-wirecast-into-your-youtube-livestream-strategy/"><u>Integrating WireCast Into Your YouTube Livestream Strategy</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-audio-extraction-youtube-to-mp3-in-macos/"><u>Mastering Audio Extraction YouTube to MP3 in MacOS</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-days-gone-bugs-and-glitches-expert-advice-for-a-better-playthrough/"><u>Overcoming 'Days Gone' Bugs and Glitches - Expert Advice for a Better Playthrough</u></a></li>
+<li><a href="https://win-community.techidaily.com/step-by-step-guide-transforming-mts-files-into-mp4-format-using-ffmpeg/"><u>Step-by-Step Guide: Transforming MTS Files Into MP4 Format Using FFmpeg</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-15-youtube-movies-channels-for-you-to-kill-time/"><u>Top 15 YouTube Movies Channels for You to Kill Time</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/who-are-you-unraveling-youtuber-personalities-in-6-quizzes/"><u>Who Are You? Unraveling YouTuber Personalities in 6 Quizzes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-style-essentials-download-for-free/"><u>YouTube Style Essentials - Download for FREE</u></a></li>
+</ul></div>
 

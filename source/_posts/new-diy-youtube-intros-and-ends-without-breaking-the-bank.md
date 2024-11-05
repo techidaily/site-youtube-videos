@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-10-23T03:15:58.820Z
-updated: 2024-10-30T04:32:27.064Z
+date: 2024-11-02T01:11:34.048Z
+updated: 2024-11-04T22:31:06.397Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,18 +141,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-decoding-the-payment-structure-on-youtube/"><u>[New] Decoding the Payment Structure on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-dslrs-rivalry-with-mirrorless-for-video-artistry/"><u>[New] DSLR's Rivalry with Mirrorless for Video Artistry</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-picture-perfection-the-ultimate-iosandroid-covers-app/"><u>[New] Picture Perfection The Ultimate iOS/Android Covers App</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-android-hacks-counterclockwise-video-stream/"><u>[Updated] Android Hacks Counterclockwise Video Stream</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-cosmetics-confidentials-building-a-beauty-channel-on-youtube/"><u>[Updated] Cosmetics Confidentials Building a Beauty Channel on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-counteract-vibration-for-clear-captures/"><u>[Updated] Counteract Vibration for Clear Captures</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-enrich-your-viewing-experience-with-these-leading-top-6-tools-to-download-youtubes-short-videos-for-2024/"><u>[Updated] Enrich Your Viewing Experience with These Leading Top 6 Tools to Download YouTubes' Short Videos for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Tecno Spark Go (2024) | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-recover-apple-iphone-12-mini-data-from-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Apple iPhone 12 mini Data From iCloud? | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-infographic-insights-small-business-video-mastery/"><u>In 2024, Infographic Insights Small Business Video Mastery</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-streamline-your-tiktok-experience-4-desktop-broadcast-strategies/"><u>In 2024, Streamline Your TikTok Experience 4 Desktop Broadcast Strategies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/step-by-step-imovie-videos-on-your-youtube-channel/"><u>Step-by-Step IMovie Videos on Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtubes-best-practices-amplifying-video-and-audio-clarity/"><u>YouTube's Best Practices Amplifying Video and Audio Clarity</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discovering-the-power-behind-youtube-statistics-interpretation/"><u>[New] In 2024, Discovering the Power Behind YouTube Statistics Interpretation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-art-of-preservation-digitizing-and-safeguarding-faded-family-memories/"><u>[Updated] 2024 Approved The Art of Preservation Digitizing & Safeguarding Faded Family Memories</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1-top-5-benefits-of-switching-from-wired-to-wireless-earphones/"><u>1. Top 5 Benefits of Switching From Wired to Wireless Earphones</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-chart-your-course-to-youtube-riches-the-essential-500-threshold/"><u>2024 Approved Chart Your Course to Youtube Riches The Essential 500 Threshold</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-pro-screen-reader-best-video-grabbing-picks/"><u>2024 Approved Pro Screen Reader Best Video Grabbing Picks</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-xiaomi-redmi-12-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Xiaomi Redmi 12</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-interest-with-budget-friendly-youtube-video-intros/"><u>Building Interest with Budget-Friendly YouTube Video Intros</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dominate-the-digital-space-youtube-leadership-for-2024/"><u>Dominate the Digital Space YouTube Leadership for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/duality-of-delivery-engaging-audiences-through-alternative-perspectives-for-reaction-videos-for-2024/"><u>Duality of Delivery Engaging Audiences Through Alternative Perspectives for Reaction Videos for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/enhance-your-digital-footprint-upload-tiktoks-on-twitter/"><u>Enhance Your Digital Footprint Upload TikToks on Twitter</u></a></li>
+<li><a href="https://fox-links.techidaily.com/gaming-meets-high-fidelity-review-of-logitech-g533/"><u>Gaming Meets High Fidelity: Review of Logitech G533</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-motorola-edge-2023-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Motorola Edge 2023 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovative-dialogues-the-key-to-listener-retention-for-2024/"><u>Innovative Dialogues The Key to Listener Retention for 2024</u></a></li>
 </ul></div>
 

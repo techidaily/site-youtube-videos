@@ -1,7 +1,7 @@
 ---
 title: "Building a Strong Online Presence with Attractive Video Thumbnails"
-date: 2024-08-16T08:46:35.552Z
-updated: 2024-08-17T08:46:35.552Z
+date: 2024-10-31T05:40:02.556Z
+updated: 2024-11-05T00:07:51.132Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/ff4b473fea2e89c79aee76abe0eab2251a21420b8
 
 # How to Make Video Thumbnails for YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,29 +38,44 @@ Here are 5 easy tips for creating thumbnails that get views.
 
  _Contest now closed._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Edit Your Videos Before Creating Video Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
 
 An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
 
@@ -93,10 +105,14 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -104,12 +120,25 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-avoid-buffering-switch-av1-codec-on-youtube/"><u>[New] Avoid Buffering Switch AV1 Codec on YouTube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-how-to-mute-people-on-google-meet-video-call/"><u>[Updated] How to Mute People on Google Meet Video Call</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-synchronizing-social-media-channels-for-broad-distribution/"><u>[Updated] In 2024, Synchronizing Social Media Channels for Broad Distribution</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-guide-to-hashtagging-for-game-focused-yt-channels/"><u>2024 Approved Essential Guide to Hashtagging for Game-Focused YT Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-step-by-step-guide-to-youtube-shorts-excellence/"><u>A Step-by-Step Guide to YouTube Shorts Excellence</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-lava-blaze-2-5g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Lava Blaze 2 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/counterclockwise-playback-in-instagram-videos-for-2024/"><u>Counterclockwise Playback in Instagram Videos for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/dual-display-dominance-top-videographer-verdict-for-2024/"><u>Dual Display Dominance Top Videographer Verdict for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/experience-the-ultimate-radio-station-siriusxm-perfect-for-both-sports-enthusiasts-and-melody-lovers/"><u>Experience the Ultimate Radio Station: SiriusXM - Perfect for Both Sports Enthusiasts and Melody Lovers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/harnessing-powerful-tools-for-effective-youtubers-seo/"><u>Harnessing Powerful Tools for Effective YouTubers' SEO</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streamlining-the-process-of-finding-your-own-musical-compilation-on-youtube/"><u>Streamlining the Process of Finding Your Own Musical Compilation on Youtube</u></a></li>
+</ul></div>
 

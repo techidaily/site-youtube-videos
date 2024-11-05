@@ -1,7 +1,7 @@
 ---
 title: "The Essential Guide to YouTube Video Lighting Tips"
-date: 2024-10-05T20:38:12.644Z
-updated: 2024-10-12T18:12:41.226Z
+date: 2024-11-03T17:23:21.006Z
+updated: 2024-11-04T22:12:40.341Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,13 @@ Window lighting for me was especially difficult to work with because I live in a
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Home Lighting
 
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
@@ -62,10 +69,10 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
@@ -89,10 +96,10 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
@@ -109,20 +116,13 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,22 +140,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-commanding-attention-crafting-podcast-starters-for-2024/"><u>[New] Commanding Attention Crafting Podcast Starters for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-ae-essentials-the-most-loved-templates/"><u>[New] Instagram AE Essentials The Most Loved Templates</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-ultimate-mic-selection-for-online-talent/"><u>[Updated] 2024 Approved Ultimate Mic Selection for Online Talent</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/des-astuces-faciles-et-sans-cout-convertissez-vos-fichiers-mts-en-mp4/"><u>Des Astuces Faciles Et Sans Coût: Convertissez Vos Fichiers MTS en MP4</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/exploring-the-reason-behind-no-spare-tires-in-evs-an-insight/"><u>Exploring the Reason Behind No Spare Tires in EVs: An Insight</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-make-your-own-youtube-closures-without-spending/"><u>How to Make Your Own YouTube Closures Without Spending</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-10-best-youtube-keyword-tools-to-get-more-views/"><u>In 2024, 10 Best YouTube Keyword Tools to Get More Views</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-channel-gain-strategies-for-youtube-aspirants/"><u>In 2024, Channel Gain Strategies for YouTube Aspirants</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-deciphering-youtubes-cost-per-mille-cpm-structure/"><u>In 2024, Deciphering YouTube’s Cost Per Mille (CPM) Structure</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-discover-the-tricks-to-recording-and-screencasting-your-youtube-views-without-cash/"><u>In 2024, Discover The Tricks to Recording & Screencasting Your YouTube Views without Cash</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-discovering-8-prime-video-advancement-aids/"><u>In 2024, Discovering 8 Prime Video Advancement Aids</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-effortless-video-integration-into-blog-posts-and-essays/"><u>In 2024, Effortless Video Integration Into Blog Posts & Essays</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-ethical-approaches-to-extract-mp4-from-youtube/"><u>In 2024, Ethical Approaches to Extract MP4 From YouTube</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-xiaomi-redmi-k70-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Xiaomi Redmi K70</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-consistent-sound-quality-tips-for-balancing-mp4-audio/"><u>Mastering Consistent Sound Quality: Tips for Balancing MP4 Audio</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/navigating-the-web-easier-the-secret-behind-cookiebot/"><u>Navigating the Web Easier: The Secret Behind Cookiebot</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unlocking-the-power-of-animated-special-effects-for-engaging-content/"><u>Unlocking the Power of Animated Special Effects for Engaging Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-17-best-lights-and-lighting-equipment-for-youtube/"><u>[New] 17 Best Lights and Lighting Equipment for YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-effortless-video-integration-into-blog-posts-and-essays/"><u>[New] Effortless Video Integration Into Blog Posts & Essays</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-how-to-use-luts-in-photoshop-cc/"><u>[New] In 2024, How to Use LUTs in PhotoShop CC</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eamless-transitions-in-vlogs-with-jump-cuts-magic/"><u>[New] Seamless Transitions in Vlogs with Jump Cuts Magic</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-captivating-subscription-making-an-animated-button-for-youtube-with-filmora/"><u>[Updated] Captivating Subscription Making an Animated Button for YouTube with Filmora</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-edu-odyssey-journey-through-top-learning-sites/"><u>[Updated] Edu-Odyssey Journey Through Top Learning Sites</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevate-your-yt-content-creation-with-windows-movie-maker/"><u>[Updated] Elevate Your YT Content Creation with Windows Movie Maker</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-holistic-capture-vs-structured-visual-space/"><u>[Updated] Holistic Capture vs Structured Visual Space</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-finding-the-social-beacons-in-your-interests-digital-landscape/"><u>[Updated] In 2024, Finding the Social Beacons in Your Interests’ Digital Landscape</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-mastering-mov-to-mpeg-4-conversion-on-win-11/"><u>[Updated] In 2024, Mastering MOV to MPEG-4 Conversion on Win 11</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-selecting-premium-steadicams-to-improve-your-dslr-videos/"><u>2024 Approved Selecting Premium Steadicams to Improve Your DSLR Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-ultimate-choice-top-5-pro-fish-action-cameras/"><u>2024 Approved Ultimate Choice Top 5 Pro-Fish Action Cameras</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-recommended-steadicams-for-drone-videography-for-2024/"><u>Expert-Recommended Steadicams for Drone Videography for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-kid-friendly-video-editors-10-fun-and-easy-to-use-apps/"><u>New 2024 Approved Kid-Friendly Video Editors 10 Fun and Easy-to-Use Apps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/revisiting-lost-content-2-methods-for-retrieving-yt-deletions/"><u>Revisiting Lost Content 2 Methods for Retrieving YT Deletions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-by-step-guide-to-perfecting-videos-on-a-pc-for-youtubers/"><u>Step-by-Step Guide to Perfecting Videos on a PC for YouTubers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-4-techniques-for-turning-youtube-watchlists-upside-down/"><u>Top 4 Techniques for Turning YouTube Watchlists Upside Down</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-youtube-revenue-essential-view-count-milestones/"><u>Unlocking YouTube Revenue Essential View Count Milestones</u></a></li>
 </ul></div>
 

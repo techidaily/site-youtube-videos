@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] End-Screen Design Made Easy with Our Templates & Tutorials\""
-date: 2024-10-26T16:19:52.230Z
-updated: 2024-10-30T11:18:07.077Z
+date: 2024-10-30T19:54:45.031Z
+updated: 2024-11-04T17:12:58.068Z
 tags:
   - ai video
   - ai youtube
@@ -86,10 +86,10 @@ Here’s one for the Minecraft fans:
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
@@ -112,15 +112,22 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
@@ -136,20 +143,13 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -166,22 +166,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-10-leading-biz-youtube-sites-why-they-rule/"><u>[New] 10 Leading Biz YouTube Sites Why They Rule</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-a-step-by-step-guide-to-your-profit-share-in-youtube-shorts/"><u>[New] A Step-by-Step Guide to Your Profit Share in YouTube Shorts</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unveiling-innovative-cloud-storage-options-in-2s024/"><u>[New] Unveiling Innovative Cloud Storage Options in 2S024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-financial-worth-one-million-youtube-eyes-for-2024/"><u>[Updated] The Financial Worth One Million YouTube Eyes for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1kplus-followers-in-a-flash-the-youtube-ultimate-playbook/"><u>1K+ Followers in a Flash The YouTube Ultimate Playbook</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-joining-google-meet-easily-anytime-anywhere/"><u>2024 Approved Joining Google Meet Easily, Anytime, Anywhere</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/city-planning-for-climate-action-a-comprehensive-guide-for-2024/"><u>City Planning for Climate Action A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/deciphering-the-divergent-aspects-of-youtubes-and-dailymentions-for-2024/"><u>Deciphering the Divergent Aspects of YouTubes & DailyMentions for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/essential-guide-crafting-and-refining-windows-11-videos-for-2024/"><u>Essential Guide Crafting & Refining Windows 11 Videos for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-travel-vloggers-the-ultimate-10-list/"><u>Essential Travel Vloggers The Ultimate 10 List</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/frei-konvertieren-sie-ihre-dvds-pal-region-2-in-aktuelleen-videokonvertern-verwenden/"><u>Frei Konvertieren Sie Ihre DVDs (PAL, Region 2) in Aktuelleen Videokonvertern Verwenden!</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-correct-cygwin1dll-not-found-bugs-successfully/"><u>How to Correct 'cygwin1.dll Not Found' Bugs Successfully</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-restore-a-bricked-oneplus-nord-ce-3-5g-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked OnePlus Nord CE 3 5G Back to Operation | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/key-10-acoustic-amplifiers-for-android-ios/"><u>Key 10 Acoustic Amplifiers for Android, iOS</u></a></li>
-<li><a href="https://network-issues.techidaily.com/lenovo-monitor-troubleshooting-no-light/"><u>Lenovo Monitor: Troubleshooting No-Light</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/step-by-step-guide-to-integrate-youtube-media-into-gslides/"><u>Step-by-Step Guide to Integrate YouTube Media Into GSlides</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unbeatable-tech-bargain-snag-meta-quest-2-for-just-200-this-holiday-your-ultimate-guide-by-zdnet/"><u>Unbeatable Tech Bargain: Snag Meta Quest 2 for Just $200 This Holiday - Your Ultimate Guide by ZDNet</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-overcoming-biometric-blockades-in-iphone-x-fixing-face-id/"><u>[New] 2024 Approved Overcoming Biometric Blockades in iPhone X - Fixing Face ID</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-seven-superior-cameras-defy-the-elements-waterproof/"><u>[New] Seven Superior Cameras Defy the Elements (Waterproof)</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/2-step-by-step-guide-downloading-laughter-extracting-giggles-from-leading-humor-websites/"><u>2. Step-by-Step Guide: Downloading Laughter – Extracting Giggles From Leading Humor Websites!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-curtail-unexpected-youtube-recommendations/"><u>2024 Approved Curtail Unexpected YouTube Recommendations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-endless-eradication-guide-bypassing-youtubes-snappy-content/"><u>2024 Approved Endless Eradication Guide Bypassing YouTube's Snappy Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-compreayers-guide-to-monetizing-videos-critical-view-figures/"><u>A Compreayer's Guide to Monetizing Videos Critical View Figures</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-viewer-interest-with-optimal-video-thumbnail-sizes-for-2024/"><u>Boosting Viewer Interest with Optimal Video Thumbnail Sizes for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/deciphering-the-differences-between-youtubes-and-dailymentions-for-2024/"><u>Deciphering the Differences Between YouTubes & DailyMentions for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/descargar-la-herramienta-de-conversion-de-archivos-pbm-a-linea-libre-un-acceso-sin-costes-con-movavi/"><u>Descargar La Herramienta De Conversión De Archivos PBM a Línea Libre: Un Acceso Sin Costes Con Movavi</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/direct-hit-the-techno-friendly-way-to-upload-your-short-clips-for-2024/"><u>Direct Hit The Techno-Friendly Way to Upload Your Short Clips for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-your-videos-status-on-youtube-for-2024/"><u>Elevating Your Video's Status on YouTube for 2024</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/find-a-balance-scale/"><u>Find a Balance Scale</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/hack-the-art-of-instagram-reels-creation-for-2024/"><u>Hack the Art of Instagram Reels Creation for 2024</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/herstelde-bijna-vergeten-exterieure-harde-schijffseiten-voorbekomst-zoek-na-de-knotsen/"><u>Herstelde Bijna Vergeten Exterieure Harde Schijffseiten Voorbekomst - Zoek Na De Knotsen!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-zte-nubia-z60-ultra-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 ZTE Nubia Z60 Ultra Android SIM Unlock APK</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-poco-x5-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Poco X5 Users</u></a></li>
 </ul></div>
 

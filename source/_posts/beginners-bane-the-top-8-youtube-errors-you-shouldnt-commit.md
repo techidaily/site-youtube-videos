@@ -1,7 +1,7 @@
 ---
 title: "\"Beginner's Bane  The Top 8 Youtube Errors You Shouldn't Commit\""
-date: 2024-08-16T08:46:22.254Z
-updated: 2024-08-17T08:46:22.254Z
+date: 2024-10-31T07:03:27.905Z
+updated: 2024-11-04T20:32:25.999Z
 tags:
   - ai video
   - ai youtube
@@ -28,14 +28,8 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
 In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I learned from those mistakes and have helped many new YouTubers start their own channels. Here is a list of eight common mistakes that new YouTubers should avoid, along with tips to do things in a better way.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  
 
 ### 1\. Failing to have a long-term vision
@@ -59,17 +53,18 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -79,8 +74,12 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
@@ -88,8 +87,12 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
@@ -106,13 +109,18 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -120,4 +128,25 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-best-practices-in-choosing-the-perfect-format-for-youtube-videos/"><u>[New] Best Practices in Choosing the Perfect Format for YouTube Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-boosting-bank-balance-effective-tactics-for-mobile-video-money-making/"><u>[Updated] Boosting Bank Balance Effective Tactics for Mobile Video Money-Making</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-choosing-your-gopro-an-exhaustive-comparison/"><u>[Updated] Choosing Your GoPro An Exhaustive Comparison</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-step-by-step-converting-webp-to-jpeg/"><u>[Updated] Step-by-Step Converting WebP to JPEG</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unparalleled-20-anime-series-themes/"><u>[Updated] Unparalleled 20 Anime Series Themes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-details-on-creating-effective-yt-shorts/"><u>2024 Approved Essential Details on Creating Effective YT Shorts</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-infinix-smart-8-plus-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Infinix Smart 8 Plus to Roku | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/correct-windows-11s-no-error-zero-error-flaw-quickly/"><u>Correct Windows 11'S No Error, Zero-Error Flaw Quickly</u></a></li>
+<li><a href="https://techtrends.techidaily.com/cutting-college-costs-with-tidals-scholarly-discount-offers/"><u>Cutting College Costs with Tidal's Scholarly Discount Offers</u></a></li>
+<li><a href="https://win-latest.techidaily.com/effizientes-wiederherstellungsprogramm-von-aomei-professionell-und-intuitiv-fur-windows-nutzer/"><u>Effizientes Wiederherstellungsprogramm Von AOMEI - Professionell Und Intuitiv Für Windows-Nutzer</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/expert-strategies-on-calculating-your-youtube-audience-impact-and-revenue/"><u>Expert Strategies on Calculating Your YouTube Audience Impact and Revenue</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-on-iphone-15-pro-max-by-drfone-ios/"><u>How to Bypass iCloud Lock on iPhone 15 Pro Max</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-conquering-viewersphere-channels-that-rule-the-net/"><u>In 2024, Conquering Viewersphere Channels that Rule the Net</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-narrative-mastery-essential-tactics-for-youtube-success/"><u>In 2024, Narrative Mastery Essential Tactics for YouTube Success</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/optimizing-privacy-for-your-online-videography/"><u>Optimizing Privacy for Your Online Videography</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streamlined-search-for-personalized-song-collection-on-youtube/"><u>Streamlined Search for Personalized Song Collection on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-premier-league-of-youtubes-most-watched-shorters/"><u>The Premier League of YouTube's Most Watched Shorters</u></a></li>
+</ul></div>
 

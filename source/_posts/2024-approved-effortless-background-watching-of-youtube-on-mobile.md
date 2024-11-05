@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Effortless Background Watching of YouTube on Mobile\""
-date: 2024-08-23T19:49:18.235Z
-updated: 2024-08-24T19:49:18.235Z
+date: 2024-11-01T07:32:52.921Z
+updated: 2024-11-05T02:35:30.498Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
 # How to Play YouTube in Background on iPhone and Android
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -33,9 +30,6 @@ Another reason why people may want to listen to YouTube in the background could 
 
 With that said, here you will learn how to **play YouTube in the background on iPhone** **or Android** both with and without any specific app.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Best Paid Solution for Playing YouTube in Background: YouTube Premium
 
 YouTube Premium, formerly YouTube Red, is a paid subscription with three types of plans namely ‘Individual’, ‘Family’, and ‘Student’ offered by the streaming giant for $11.99, $17.99, and $6.99 per month respectively. All the plans give you ad-free and uninterrupted streaming experience.
@@ -51,30 +45,38 @@ What makes YouTube Music popular among the premium subscribers is its ability to
 Once you have subscribed for the YouTube Premium Individual plan, and downloaded and installed the YouTube Music app, you can follow the instructions given below to **play YouTube in background Android or iPhone** smartphone.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Step 1: Launch YouTube Music and Start Streaming
 
 Launch **YouTube Music**, search for your favorite music using the **Search** icon at the top-right corner, tap the song in the suggestions list, and then tap the name of the track to start playing.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 2: Switch to Audio Only (Optional)
 
 Tap anywhere on the video player window, and tap **Audio** from the top of the screen to switch to the audio only mode where the video of the song won’t be played.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Step 3: Play YouTube in Background
 
 Use your phone-specific button or option to minimize YouTube Music. You can then either continue using your smartphone normally, or turn off the screen to **play YouTube in background**.
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Play YouTube Videos in Background on iPhone
 
@@ -94,9 +96,6 @@ Tap the **All Tabs** icon from the bottom-right corner of the browser, and tap *
 
 Press the **Home** button or swipe up on iPhone X or above to get to the Home screen. You can notice how YouTube still continues to stream. From this point onward, you can either start using your iPhone normally, or turn off the screen and let your device **play YouTube in background**.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Play YouTube Videos in Background on Android
 
 The process to **play YouTube in background** on an Android smartphone is slightly different than what it is on an iPhone if you don’t have a Premium subscription. To get this done on your Android, you must:
@@ -105,30 +104,51 @@ The process to **play YouTube in background** on an Android smartphone is slight
 
 Launch Google Chrome (default) on your Android phone, and go to [**www.youtube.com**](https://www.youtube.com). Click the **More options** icon (with three vertically aligned dots) from the top-right corner of the browser, and check the **Desktop site** box from the menu that appears.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Search for and Stream a Video
 
 Use the **Search** bar at the top of the interface to search for and tap the video you want to stream.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Step 3: Play YouTube in Background
 
 Once the video starts streaming, get back to the Home screen, pull down the **Notification** bar from the top (if the streaming stops), and press the **Play** button to **play YouTube in background** on your Android smartphone.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3 Best Apps to Play YouTube Videos in Background on Android
 
@@ -150,6 +170,13 @@ Yet another app available on Google Play Store that lets you search for your fav
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching YouTube videos has become a part of people’s day-to-day life now. While many of them use the platform to learn new skills through the tutorials that are available for free, others love the idea of having unlimited and unrestricted access to the gigantic database of music videos that they can dig in to find and play their favorite tracks. For the latter scenario, the processes explained above are likely to come in handy in order to **play YouTube in background** so the users can take full advantage of their iPhone or Android smartphone in case they only want to listen to the audio, and are not interested in watching the video while streaming.
@@ -162,8 +189,6 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
@@ -171,5 +196,18 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-beginning-your-blog-journey-for-financial-gain/"><u>2024 Approved Beginning Your Blog Journey for Financial Gain</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-practical-pathway-for-profit-tracking-the-straightforward-steps-to-analyze-youtube-earnings-for-2024/"><u>A Practical Pathway for Profit Tracking The Straightforward Steps to Analyze YouTube Earnings for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beginner-friendly-why-the-top-amazonbasics-tripod-wins/"><u>Beginner-Friendly: Why the Top AmazonBasics Tripod Wins</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-techkey-bluetooth-usb-drivers-for-win10-win7-and-win8-at-no-cost-instant-downloads-available/"><u>Get Your Techkey Bluetooth USB Drivers for Win10, Win7 & Win8 at No Cost - Instant Downloads Available</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-iphone-13-mini-passcode-easily-video-inside-drfone-by-drfone-ios/"><u>How to Bypass iPhone 13 mini Passcode Easily Video Inside | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-from-apple-iphone-6ipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock from Apple iPhone 6/iPad/iPod</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-essential-3d-toolkit-creating-engaging-video-beginnings/"><u>In 2024, Essential 3D Toolkit Creating Engaging Video Beginnings</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Motorola Defy 2? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/peering-into-tseries-earnings-processes-on-youtube-networks/"><u>Peering Into TSeries' Earnings Processes on YouTube Networks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/thriving-online-finding-compatible-co-stars-for-youtube/"><u>Thriving Online Finding Compatible Co-Stars for YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/video-fabrication-suite/"><u>Video Fabrication Suite</u></a></li>
+</ul></div>
 

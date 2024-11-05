@@ -1,7 +1,7 @@
 ---
 title: Tackling Back 4 Blood's Infamous UE4 Error in Desert Wastelands of Gobi
-date: 2024-10-24T09:47:27.226Z
-updated: 2024-10-30T07:28:08.413Z
+date: 2024-10-29T19:33:52.804Z
+updated: 2024-11-04T22:58:08.430Z
 tags:
   - win11
   - win10
@@ -31,25 +31,11 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 6. **[Lower your graphics settings](https://tools.techidaily.com/drivereasy/download/)**
 7. **[Run the game in Windowed mode](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 1 – Ran the game as administrator
 
  Your PC may not give**Elite Dangerous or the game launcher** the necessary permissions they need to work correctly. You might run into game issues like game crashing in this case.
 
  Try running the game and the game launcher as administrator to see if it helps. If not, try the next solution.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 2 – Verify the integrity of game files
 
@@ -61,9 +47,23 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/02/2020-02-14_17-15-17.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **3)** Right-click **Elite Dangerous**  and select **Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-09_10-38-23.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **4)** Click the **LOCAL FILES** tab, then click **VERIFY INTEGRITY OF GAME FILES** .
 
@@ -96,28 +96,27 @@ This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-58-08.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  Relaunch the game to test your issue. If the crash still occurs, try the next fix below.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 4 – Stop overclocking
 
  An unstable overclock will crash your game and the whole system. So, **if you’re overclocking your CPU or GPU, set the clock speed rate back to the default** to see if that resolves the crash issue. If it doesn’t, move on to the fix below.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 5 – Disable unnecessary programs
 
@@ -135,6 +134,13 @@ This could take several minutes. Wait for the process to be complete.
 
 Your game still won’t work correctly? Read on and try Fix 5.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 6 – Lower your graphics settings
 
  If you’re playing Elite Dangerous on higher graphics settings than your PC can handle, you may run into crashing issues. To see if that’s the core issue, try lowering your graphics settings.
@@ -148,10 +154,10 @@ Your game still won’t work correctly? Read on and try Fix 5.
 If the crashing still happens, continue with the next solution below.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 7 – Run the game in Windowed mode
@@ -193,20 +199,17 @@ If the crashing still happens, continue with the next solution below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-apex-artists-among-online-video-titans/"><u>[New] Apex Artists Among Online Video Titans</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-stealthy-spectator-of-online-tales/"><u>[Updated] 2024 Approved Stealthy Spectator of Online Tales</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-debugging-techniques-identifying-and-resolving-common-javascript-errors/"><u>[Updated] Debugging Techniques Identifying and Resolving Common JavaScript Errors</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-precision-and-power-players-top-5-martial-arts-rpgs/"><u>2024 Approved Precision & Power Players Top 5 Martial Arts RPGs</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-pictures-files-on-poco-m6-5g-by-fonelab-android-recover-pictures/"><u>Complete guide for recovering pictures files on Poco M6 5G.</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-change-youtube-video-playback-speed-desktopmobile-for-2024/"><u>How to Change YouTube Video Playback Speed [Desktop/Mobile] for 2024</u></a></li>
-<li><a href="https://win-hot.techidaily.com/how-to-migrate-your-dells-hard-drive-to-a-new-ssd-using-windows-backup-tools-boot-method/"><u>How to Migrate Your Dell's Hard Drive to a New SSD Using Windows Backup Tools (Boot Method)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-achieving-professional-level-youtube-streams-using-wirecast/"><u>In 2024, Achieving Professional-Level Youtube Streams Using WireCast</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-top-picks-for-downloading-fb-videos-on-firefox-the-ultimate-addons-and-plugins-list-2023/"><u>In 2024, Top Picks for Downloading FB Videos on Firefox The Ultimate Addons and Plugins List, 2023</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/making-an-impact-on-youtube-tips-on-banners-and-art-dimensions/"><u>Making an Impact on YouTube Tips on Banners and Art Dimensions</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-data-security-adopt-daily-windows-backup-habits/"><u>Mastering Data Security: Adopt Daily Windows Backup Habits</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/revealing-the-identity-of-viewers-on-youtube/"><u>Revealing the Identity of Viewers on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/streamlined-success-top-10-youtube-channels-to-start-your-biz-today/"><u>Streamlined Success Top 10 YouTube Channels to Start Your Biz Today</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/top-10-tips-recording-your-youtube-livestreams-for-2024/"><u>Top 10 Tips Recording Your Youtube Livestreams for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-tivo-vs-comcast-x1-which-dvr-offers-the-most-bang-for-your-buck/"><u>Updated 2024 Approved TiVo vs Comcast X1 Which DVR Offers the Most Bang for Your Buck ?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/10-most-inspiring-yoga-channels-on-the-web-for-2024/"><u>10 Most Inspiring Yoga Channels on the Web for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-youtube-equipment-for-starting-your-channel-what-do-you-really-need/"><u>2024 Approved Essential YouTube Equipment For Starting Your Channel - What Do You Really Need?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-how-to-create-gifs-from-youtube-videos-on-desktop-and-mobile-devices/"><u>2024 Approved How to Create GIFs From YouTube Videos on Desktop and Mobile Devices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-youtube-shorts-description-everything-you-need-to-know/"><u>2024 Approved YouTube Shorts Description Everything You Need to Know</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-12-pro-max-by-drfone-ios/"><u>7 Top Ways To Resolve Apple ID Not Active Issue For iPhone 12 Pro Max</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/beginners-guide-video-setup-must-haves-for-2024/"><u>Beginner's Guide Video Setup Must-Haves for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/discover-the-bargain-streaming-device-roku-express-packed-with-content-low-cost/"><u>Discover the Bargain Streaming Device: Roku Express Packed with Content, Low-Cost!</u></a></li>
+<li><a href="https://article-files.techidaily.com/exploring-shades-insights-from-the-best-11-color-guides/"><u>Exploring Shades Insights From the Best 11 Color Guides</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Motorola Edge 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-detailed-guide-on-removing-apple-iphone-se-2020-activation-lock-without-previous-owner-by-drfone-ios/"><u>In 2024, Detailed Guide on Removing Apple iPhone SE (2020) Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-initiate-integrate-and-interact-the-basics-of-zoom-for-android/"><u>In 2024, Initiate, Integrate, and Interact The Basics of Zoom for Android</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-configuring-automatic-user-authentication-on-windows/"><u>Step-by-Step Guide: Configuring Automatic User Authentication on Windows</u></a></li>
 </ul></div>
 

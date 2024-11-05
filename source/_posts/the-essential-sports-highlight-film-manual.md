@@ -1,7 +1,7 @@
 ---
 title: "The Essential Sports Highlight Film Manual"
-date: 2024-10-25T11:53:46.596Z
-updated: 2024-10-30T00:25:16.700Z
+date: 2024-11-03T20:06:59.086Z
+updated: 2024-11-05T06:43:28.637Z
 tags:
   - ai video
   - ai youtube
@@ -81,18 +81,18 @@ To start with, just launch Filmora on your computer and add the video that you w
 
 ![Import Media File](https://images.wondershare.com/filmora/guide/import-media-file-to-filmora-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 2: Edit the Sports Video
 
 In order to create a sports highlight video, the first thing that people do is trim any unwanted part. Once the video is loaded, you can view it on the timeline of the interface. Now, go to the timeline and get the trim tool to manually select the part of the video you wish to trim. After selecting the desired fragment, you can trim the clip or just delete it by clicking on their respective icons.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In the same way, you can also split your video and make other changes in it. You can also include multiple videos together and include them in your timeline as well.
 
@@ -101,10 +101,16 @@ If you are including multiple videos, then make sure they have the same dimensio
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Most of the game highlights that we see have different speeds for various sections. That is, some actions would be fast-forwarded while some would be in slow motion. To apply this, simply select the section in the timeline, right-click, and go to the Speed and Duration settings. This will open a dedicated interface from where you can change the speed of the sports video.
@@ -112,6 +118,13 @@ Most of the game highlights that we see have different speeds for various sectio
 Apart from manually setting the speed, you can also take the assistance of the custom speed options that are available in the timeline tools.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 3: Make Advanced Edits in your Sports Video
 
@@ -127,22 +140,15 @@ Lastly, make sure that you added sound or voiceover to your video. You can add a
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 4: Export your video in the desired format
 
 That’s it! Once your sports highlight video is ready, you can export it in different formats. Just go to the Export option and select the location to save the video and a preferred resolution. You can save your video in formats like MP4, WMV, AVI, FLV, MKV, and so on.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Expert Tips for Creating Highlight Videos
@@ -184,20 +190,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-dive-into-the-world-of-enhanced-youtube-content-with-premium-subscription/"><u>[New] Dive Into the World of Enhanced YouTube Content with Premium Subscription</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-learn-to-sharpen-images-blur-and-excise-background-edges/"><u>[New] In 2024, Learn to Sharpen Images Blur and Excise Background Edges</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-5-pro-tips-to-perfectly-tag-videos-and-maximize-views/"><u>[Updated] 5 Pro Tips to Perfectly Tag Videos and Maximize Views</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-decoding-youtube-income-how-much-does-each-1000-viewer-earn/"><u>[Updated] Decoding YouTube Income How Much Does Each 1,000 Viewer Earn?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-charting-success-with-youtube-income-streams/"><u>2024 Approved Charting Success with YouTube Income Streams</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
-<li><a href="https://win-answers.techidaily.com/guide-to-overcoming-hurdles-preventing-human-progress-and-advancement/"><u>Guide to Overcoming Hurdles Preventing Human Progress and Advancement</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-xiaomi-14-ultra-devices-by-drfone-android/"><u>How to Reset Gmail Password on Xiaomi 14 Ultra Devices</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-samsung-galaxy-a34-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Samsung Galaxy A34 5G to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-any-oppo-find-x7-ultra-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Oppo Find X7 Ultra Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/le-guide-definitif-aux-editeurs-video-premium-sur-iphone-classement-officiel-des-meilleurs-dix-trois-de-movavi/"><u>Le Guide Definitif Aux Éditeurs Vidéo Premium Sur iPhone - Classement Officiel Des Meilleurs Dix-Trois De Movavi</u></a></li>
-<li><a href="https://win-lab.techidaily.com/mengubah-jenis-pusat-pelayanan-data-anda-dari-hdd-menjadi-ssd-di-windows-11-alamat-tiga-langkah/"><u>Mengubah Jenis Pusat Pelayanan Data Anda Dari HDD Menjadi SSD Di Windows 11 - Alamat Tiga Langkah</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-unleash-your-creativity-how-to-make-a-professional-looking-video-from-photos/"><u>New 2024 Approved Unleash Your Creativity How to Make a Professional-Looking Video From Photos</u></a></li>
-<li><a href="https://win11.techidaily.com/techniques-for-clearing-black-pixels-in-winsteam/"><u>Techniques for Clearing Black Pixels in WinSteam</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-30-pro-freefire-hashtags-for-boosting-video-popularity/"><u>Top 30 Pro-FreeFire Hashtags for Boosting Video Popularity</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-final-act-steps-for-permanent-instagram-account-removal/"><u>[New] The Final Act Steps for Permanent Instagram Account Removal</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-game-on-steps-for-crafting-an-influential-online-gamers-channel-for-2024/"><u>[Updated] Game On Steps for Crafting an Influential Online Gamers' Channel for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-10-premium-online-yoga-classrooms-for-physical-transformation/"><u>2024 Approved 10 Premium Online Yoga Classrooms for Physical Transformation</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-add-fun-to-youtube-comments-a-quick-guide-to-emojis/"><u>2024 Approved Add Fun to YouTube Comments A Quick Guide to Emojis</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-filming-flair-with-free-green-screen-insights-from-4-youtube-authorities/"><u>2024 Approved Elevate Your Filming Flair with Free Green Screen Insights From 4 YouTube Authorities</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-oneplus-ace-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/access-exclusive-stock-images-through-vital-4-youtube-sources-for-2024/"><u>Access Exclusive Stock Images Through Vital 4 YouTube Sources for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-bw-16d1x-u-reviewed-a-stylish-blu-ray-drive-with-intriguing-quirks-explored/"><u>Asus BW-16D1X-U Reviewed - A Stylish Blu-Ray Drive with Intriguing Quirks Explored</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boost-your-channels-top-5-youtube-tricks-for-increased-visibility/"><u>Boost Your Channels Top 5 YouTube Tricks for Increased Visibility</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effortless-fusion-of-youtube-videos-with-flv-format/"><u>Effortless Fusion of YouTube Videos with FlV Format</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effortless-guide-to-designing-youtube-follow-links-for-2024/"><u>Effortless Guide to Designing YouTube Follow Links for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-2023s-top-rated-vr-game-engines-exposed/"><u>In 2024, 2023'S Top-Rated VR Game Engines Exposed</u></a></li>
+<li><a href="https://fox-within.techidaily.com/schritt-fur-schritt-anleitung-wiederauffinden-verlorener-gopro-aufnahmen/"><u>Schritt-Für-Schritt-Anleitung: Wiederauffinden Verlorener GoPro-Aufnahmen</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-samsung-galaxy-s21-fe-5g-2023-by-drfone-android/"><u>Three Ways to Sim Unlock Samsung Galaxy S21 FE 5G (2023)</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
 </ul></div>
 

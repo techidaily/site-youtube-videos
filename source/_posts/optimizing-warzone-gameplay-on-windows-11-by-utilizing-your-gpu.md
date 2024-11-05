@@ -1,7 +1,7 @@
 ---
 title: Optimizing Warzone Gameplay on Windows 11 by Utilizing Your GPU
-date: 2024-10-28T07:50:54.844Z
-updated: 2024-10-30T04:00:20.769Z
+date: 2024-10-29T18:36:20.331Z
+updated: 2024-11-05T07:33:08.070Z
 tags:
   - win11
   - win10
@@ -42,23 +42,16 @@ If you’re experiencing Dota 2 FPS drops on your Windows computer, don’t worr
 ![Dota 2 verify the integrity of the game files](https://images.drivereasy.com/wp-content/uploads/2021/04/Dota-2-verify-the-integrity-of-the-game-files.jpg)
 3. It may take some time to finish verifying the game files.  
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://www.drivereasy.com/wp-content/uploads/2021/04/image-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Launch Dota 2 after the verifying process is completed to see if this fix works. If not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 2: Update your drivers
 
@@ -89,6 +82,13 @@ There are mainly two methods for you to update the graphics driver:
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 3: Install the latest game patch
 
  The developers of Dota 2 release regular game patches to fix bugs and improve gaming performance. It’s possible that a recent patch has caused the game crash issue, and that a new patch is required to fix it.
@@ -107,6 +107,13 @@ There are mainly two methods for you to update the graphics driver:
 
 ![Disable steam overlay in Dota 2](https://images.drivereasy.com/wp-content/uploads/2021/04/Disable-steam-overlay-in-Dota-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Launch Dota 2 to see if the game runs smoothly. If the issue persists, try the next fix, below.
 
 ## Fix 5: Modify Steam launch options for Dota 2
@@ -117,13 +124,6 @@ There are mainly two methods for you to update the graphics driver:
 2. In the **GENERAL** section, enter the command into the textbox under **SET LAUNCH OPTIONS** .  
 `**-map dota -high -dx11 +fps_max #**`  
 ![modify dota 2 steam launch options](https://images.drivereasy.com/wp-content/uploads/2021/04/modify-dota-2-steam-launch-options1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Explanation** :
 
@@ -161,13 +161,6 @@ There are mainly two methods for you to update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/nividia-control-panel.jpg)
 4. Click **Manage 3D Settings** on the left, then navigate to the**Program Settings** tab. In the**Select a program to customize:** part, add Dota 2 from the program list.  
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Dota 2 modify Nvidia control panel](https://images.drivereasy.com/wp-content/uploads/2021/04/Dota-2-modify-Nvidia-control-panel.jpg)
 5. In the**Specify the settings for this program** : part, modify the following settings:  
 
@@ -182,6 +175,13 @@ There are mainly two methods for you to update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/run-dialog-control-panel-2.jpg)
 2. View the Control Panel by **Large icons** .  
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-category.jpg)
 3. Select your **AMD Radeon Settings** to open it.
 4. Go to **Gaming** **\>** **Global Settings** . Then modify the settings the same way you see on the screenshot below.  
@@ -192,13 +192,6 @@ There are mainly two methods for you to update the graphics driver:
 1. On your keyboard, press **the Windows logo key** and **R** at the same time to open the Run dialog. Then type **control**  and press **Enter**  to open the Control Panel.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/run-dialog-control-panel-2.jpg)
 2. View the Control Panel by **Large icons** .  
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-category.jpg)
 3. Select **Intel Graphics Settings**  to open it.  
@@ -211,13 +204,6 @@ There are mainly two methods for you to update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-graphics-3D-settings-2.png)
 6. Modify the settings the same way you see in the screenshot below.  
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-graphics-3D-settings-3.png)
 7. Click **Apply** to save the settings.  
@@ -248,13 +234,26 @@ To modify Windows OS graphics settings, follow the steps below:
 3. Select**Dota 2** from the list of apps, and select**High performance** .  
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/image-56.png)
+
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 3: Modify in-game graphics settings
 
@@ -301,13 +300,6 @@ Set the rendering API that is recommended by Steam.
 * **Game Screen Render Quality** : set to around**90%**
 * **Maximum frames per second allowed** : set to a value above the refresh rate of your monitor and below the maximum FPS you can get.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 7: Set Dota 2 to High priority
 
  By setting Dota 2 to High priority, you can allocate more resources to play in the game and it should increase your performance especially if you have other programs running in the background.
@@ -320,6 +312,13 @@ To set Dota 2 to High priority:
 ![set High priority yo dota2.exe](https://images.drivereasy.com/wp-content/uploads/2021/04/set-High-priority-yo-dota2.exe_.jpg)
 
  Run Dota 2 to see if the in-game FPS improves. If the FPS is still the same, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 8: Restrict applications and downloads in the background
 
@@ -344,6 +343,19 @@ To set Dota 2 to High priority:
 2. In the pop-up window, expand **Hide additional plans** and select **High performance** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-power-options.png)
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Launch Dota 2 to see if you resolve the FPS drops issue.
 
@@ -370,19 +382,17 @@ Launch Dota 2 to see if you resolve the FPS drops issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-elevating-video-revenue-youtubes-path/"><u>[New] Elevating Video Revenue YouTube's Path</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-navigating-the-future-vrs-role-in-business-strategy/"><u>[Updated] Navigating the Future VR's Role in Business Strategy</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-bringing-your-ideas-to-life-vo-plus-ppt-perfection/"><u>2024 Approved Bringing Your Ideas to Life VO + PPT Perfection</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-illumination-strategies-for-filming/"><u>2024 Approved Essential Illumination Strategies for Filming</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211142896-9798887638409-anayas-journey-to-the-fifth-dimension/"><u>Anaya's Journey to the Fifth Dimension | Free Book</u></a></li>
-<li><a href="https://video-capture.techidaily.com/best-3ip-top-audio-capture-apps/"><u>Best 3iP Top Audio Capture Apps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/complete-blueprint-for-tracking-yt-viewsrevenue-for-2024/"><u>Complete Blueprint for Tracking YT Views/Revenue for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-popular-free-cinema-hits-on-youtube-in-july-2024/"><u>Discover Popular Free Cinema Hits on YouTube in July 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-view-count-prime-hashtags-strategy/"><u>Elevate View Count Prime Hashtags Strategy</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhancing-viewers-interest-with-innovative-valorant-thumbnail-ideas-for-2024/"><u>Enhancing Viewers' Interest with Innovative Valorant Thumbnail Ideas for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-on-your-iphone-14-pro-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID On your iPhone 14 Pro?</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-meizu-21-pro-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Meizu 21 Pro | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-best-waterproof-gopro-filters-for-undersea-film/"><u>In 2024, Best Waterproof GoPro Filters for Undersea Film</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-pivotal-point-in-view-count-for-online-earning/"><u>The Pivotal Point in View Count for Online Earning</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-express-faster-window-photo-sorter/"><u>[New] 2024 Approved Express Faster Window Photo Sorter</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nfographic-social-strategies-for-budget-brands/"><u>[New] Infographic Social Strategies for Budget Brands</u></a></li>
+<li><a href="https://fox-making.techidaily.com/access-exclusive-content-pinkbikes-athletic-footage-melodies-and-cinematic-previews/"><u>Access Exclusive Content: Pinkbike's Athletic Footage, Melodies & Cinematic Previews</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/balancing-main-and-supplemental-filmmaking-elements/"><u>Balancing Main & Supplemental Filmmaking Elements</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/fostering-self-assurance-against-virtual-hostility/"><u>Fostering Self-Assurance Against Virtual Hostility</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/free-youtube-intros-a-comprehensive-instructional-guide/"><u>Free YouTube Intros A Comprehensive Instructional Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-creators-profit-from-youtube-shorts/"><u>How Creators Profit From YouTube Shorts</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-repair-and-get-your-samsung-bd-player-back-in-action/"><u>How to Repair and Get Your Samsung BD Player Back in Action</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-audio-artisans-crafting-a-personal-library-with-6-best-free-youtube-apps/"><u>In 2024, Audio Artisans Crafting a Personal Library with 6 Best Free YouTube Apps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-easier-than-ever-top-9-uncomplicated-no-cost-video-tools-for-you/"><u>In 2024, Easier Than Ever Top 9 Uncomplicated, No-Cost Video Tools for You</u></a></li>
+<li><a href="https://change-location.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-oneplus-11r-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 OnePlus 11R Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
 </ul></div>
 

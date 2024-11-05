@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevating YouTube Productions with Effective Video Lighting"
-date: 2024-09-27T21:47:11.846Z
-updated: 2024-10-01T20:25:16.272Z
+date: 2024-11-02T07:10:33.445Z
+updated: 2024-11-04T18:01:40.747Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,19 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1.  Window Lighting
 
 The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
@@ -47,14 +60,14 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
@@ -77,16 +90,10 @@ If you rather not deal with all the window and home lighting challenges, you can
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
@@ -94,13 +101,6 @@ The first thing you’ll want to do to set up studio lighting in your home is to
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -125,10 +125,16 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -146,21 +152,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-focusing-on-fine-details-a-minecraft-journey/"><u>[Updated] Focusing on Fine Details A Minecraft Journey</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-asus-mg28uq-monitor-unpacking-the-ultra-high-resolution-experience/"><u>[Updated] In 2024, ASUS MG28UQ Monitor Unpacking the Ultra High-Resolution Experience</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-quick-guide-to-moving-videos-from-youtube-to-dailymotion/"><u>2024 Approved A Quick Guide to Moving Videos From YouTube to Dailymotion</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevating-views-amplifying-impact-a-youtube-case-study/"><u>2024 Approved Elevating Views, Amplifying Impact A Youtube Case Study</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/editing-workshop-portal/"><u>Editing Workshop Portal</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-vivo-v29-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Vivo V29 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/icy-images-cozier-cinematics-best-bgs-selection/"><u>Icy Images, Cozier Cinematics Best Bgs Selection</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-audio-matters-ensuring-excellent-sound-in-your-youtube-shots/"><u>In 2024, Audio Matters Ensuring Excellent Sound in Your YouTube Shots</u></a></li>
-<li><a href="https://techtrends.techidaily.com/innovative-audio-tricks-for-videos-adding-fun-voices-of-robots-radio-broadcasts-and-chipmunks/"><u>Innovative Audio Tricks for Videos: Adding Fun Voices of Robots, Radio Broadcasts, and Chipmunks</u></a></li>
-<li><a href="https://program-issues.techidaily.com/keyboard-troubles-in-pathfinder-tips-for-getting-your-game-working-again/"><u>Keyboard Troubles in Pathfinder: Tips for Getting Your Game Working Again</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mastering-tough-emails-leveraging-chatgpt-at-your-desk/"><u>Mastering Tough Emails: Leveraging ChatGPT at Your Desk</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-rewind-and-play-the-quintet-of-best-opposite-direction-melodies/"><u>New 2024 Approved Rewind and Play The Quintet of Best Opposite-Direction Melodies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/precision-conversion-hub-top-10-online-audio-devices/"><u>Precision Conversion Hub Top 10 Online Audio Devices</u></a></li>
-<li><a href="https://driver-error.techidaily.com/repair-right-click-failure-in-windows-11-touchpad-system/"><u>Repair Right Click Failure in Windows 11 Touchpad System</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-financial-worth-one-million-youtube-eyes/"><u>The Financial Worth One Million YouTube Eyes</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/top-picks-for-novice-gopro-enthusiasts-for-2024/"><u>Top Picks for Novice GoPro Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-10-top-must-have-gear-items-for-youtubers/"><u>[New] 10 Top Must-Have Gear Items for YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ssessing-the-value-of-4-second-rapid-subscriptions-on-youtube/"><u>[New] Assessing the Value of 4-Second Rapid Subscriptions on Youtube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dissecting-the-revenue-sharing-mechanisms-in-youtube-shorts-economy/"><u>[New] Dissecting the Revenue-Sharing Mechanisms in YouTube Shorts Economy</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-collaborative-listening-made-simple-on-youtube/"><u>[Updated] Collaborative Listening Made Simple on YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-editorial-powerhouses-free-for-web-enthusiasts/"><u>[Updated] Editorial Powerhouses Free for Web Enthusiasts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enhance-creativity-on-a-budget-pick-from-these-8-zero-price-edits/"><u>[Updated] Enhance Creativity on a Budget Pick From These 8 Zero Price Edits</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-googles-ar-stickers-an-overview-with-comparison-to-rival-products/"><u>[Updated] Google's AR Stickers An Overview with Comparison to Rival Products</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-selecting-the-perfect-footage-editor-hero-vs-the-cube/"><u>[Updated] Selecting the Perfect Footage Editor Hero Vs. The Cube</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-sprint-to-quicker-vimeo-streams-for-2024/"><u>[Updated] Sprint to Quicker Vimeo Streams for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/avoid-disruption-bypass-game-glitches-immediately/"><u>Avoid Disruption - Bypass Game Glitches Immediately</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-lava-blaze-2-pro-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Lava Blaze 2 Pro Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/real-time-viewership-counter-systems/"><u>Real-Time Viewership Counter Systems</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/troubleshooting-steps-for-resolving-apricorn-ez-gig-iv-cloning-failures/"><u>Troubleshooting Steps for Resolving Apricorn EZ Gig IV Cloning Failures</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-high-profile-discussions/"><u>Unlocking High-Profile Discussions</u></a></li>
 </ul></div>
 

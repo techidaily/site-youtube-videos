@@ -1,7 +1,7 @@
 ---
 title: "Direction and Intensity in Video Lighting"
-date: 2024-08-16T08:46:30.044Z
-updated: 2024-08-17T08:46:30.044Z
+date: 2024-11-03T21:34:12.941Z
+updated: 2024-11-05T02:03:35.610Z
 tags:
   - ai video
   - ai youtube
@@ -28,14 +28,8 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Video Lighting Basics: Three Point Lighting
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -50,11 +44,28 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -79,28 +90,45 @@ This is by far the best option if you want to be in complete control of the ligh
 
 Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,12 +136,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-a-closer-look-at-earnings-comparing-dailymotion-and-youtube-revenues/"><u>[New] A Closer Look at Earnings Comparing Dailymotion and YouTube Revenues</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-break-through-boundaries-15plus-best-free-video-starters/"><u>[New] Break Through Boundaries 15+ Best Free Video Starters</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-steps-to-ensure-whole-sound-in-fb-video-playbacks/"><u>[New] Steps to Ensure Whole Sound in FB Video Playbacks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tream-youtube-in-the-background-using-iphone-and-android/"><u>[New] Stream YouTube in the Background Using iPhone & Android</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-unlocking-potential-the-best-non-vimeo-editors-listed/"><u>[New] Unlocking Potential The Best Non-Vimeo Editors Listed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-chart-topping-video-content-on-youtube/"><u>2024 Approved Chart-Topping Video Content on YouTube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-list-of-microsoft-office-substitutes/"><u>Comprehensive List of Microsoft Office Substitutes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/discover-the-latest-2023-features-of-samsung-bd-j5900/"><u>Discover the Latest 2023 Features of Samsung BD-J5900</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-vivo-y200-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Vivo Y200 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-take-your-videos-to-the-next-level-6-expert-adobe-premiere-tips/"><u>New In 2024, Take Your Videos to the Next Level 6 Expert Adobe Premiere Tips</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-hevc-h-265-on-galaxy-xcover-7-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Galaxy XCover 7, is it possible?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/prolific-photography-and-video-app-selection-iphone-vs-android/"><u>Prolific Photography & Video App Selection IPhone vs Android</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/quantifying-the-fortune-of-mr-beast/"><u>Quantifying the Fortune of Mr. Beast</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unwind-with-laughter-curating-15-hilarious-youtube-masterpieces/"><u>Unwind with Laughter Curating 15 Hilarious YouTube Masterpieces</u></a></li>
+</ul></div>
 

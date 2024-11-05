@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Discovering the Hidden Truth Behind YouTube's Viewer Numbers\""
-date: 2024-08-23T19:49:46.339Z
-updated: 2024-08-24T19:49:46.339Z
+date: 2024-10-31T18:19:36.645Z
+updated: 2024-11-04T18:16:54.553Z
 tags:
   - ai video
   - ai youtube
@@ -36,30 +36,18 @@ How does YouTube count views? It’s not as simple as the number of clicks your 
 6. [Frozen YouTube View Counts](#six)
 7. [The 301 Mark](#seven)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Best YouTube Video Editor - Filmora
 
 After you have created your YouTube channel, do you want to edit videos and upload your first video? Here we recommend using Filmora to easily edit YouTube videos.
 
 You can use Filmora to make YouTube videos with built-in royalty-free audio. Filmora also can help you make YouTube intros. It includes more than 500 templates, transitions, effects, and text resources.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 1\. Not Everyone Who Clicks Adds to Your View Count
 
 YouTube doesn’t provide a clear definition of what counts as a view, but we know that someone clicks on your video, and clicking right away doesn’t count. That’s how we know that watch time is a factor. Some studies conclude that a [full 30 seconds need to be viewed](https://buffer.com/library/social-video-metrics/#9) to register as one view, but there is no way to know for sure.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. How Does YouTube Count Views?
 
 YouTube wants to be sure that views are coming from humans and not bots. So, during the first couple of hours after you publish a video, YouTube seems to be stricter about what they count. The views which are counted are the ones that YouTube believes to be legitimate. Sometimes, it ends up skipping legitimate views for the sake of discretion.
@@ -87,9 +75,6 @@ We are adding ‘likely’ here because, despite this 30-second rule which has b
 
 Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Account Tracking Factors - Some Viewers Don't Count
 
 Something else that can affect whether a view is counted is the behavior of the account which watches it prior to landing on your video’s watch page. Sometimes, YouTube might feel that there is an increased chance a particular account is actually a bot, and then views from that account might not be added.
@@ -98,9 +83,23 @@ One way that [YouTube might flag an account as a potential bot](https://support.
 
 Any bot-like action will result in an account’s views do not be added to your view count.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. The Skip & Skim
 
 It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Frozen YouTube View Counts
 
@@ -117,9 +116,12 @@ This is why view counts are often frozen at 301\. The employees at YouTube then 
 During the period when the view count is frozen every legitimate view is still counted, just not added immediately. Once the YouTube team is sure that your videos are not getting fake traffic, your view count will be updated to include views that were registered during the frozen phase. However, [YouTube says](https://www.theverge.com/2015/8/5/9100759/youtube-301-view-count-freeze-going-away) it won't flag videos at 301 views anymore.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 In short, we know YouTube expects a viewer to watch a video for around 30 seconds before it counts a view, that views from suspicious accounts are not counted, and that YouTube can decide to freeze your view count while they review your views. They are protecting the site from becoming saturated with videos that only look popular because of bots. Ultimately, ‘how does YouTube count views’ isn’t a question anyone but YouTube can answer for sure, but we do know it isn’t as simple as ‘a view is someone clicking on your video’.
@@ -130,13 +132,18 @@ If you want to engage your audience with cool effects and Filmora is the best ch
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -145,5 +152,18 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-best-5-ios-apps-for-efficient-podcasting-for-2024/"><u>[New] Best 5 iOS Apps for Efficient Podcasting for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-video-popularity-with-strategic-hashtags/"><u>[New] Elevate Video Popularity with Strategic #Hashtags</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1728507869335-aomei/"><u>一元化バックアップツール | AOMEI統合バックアッパー</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/efficiently-balancing-professional-commitments-and-creativity/"><u>Efficiently Balancing Professional Commitments & Creativity</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-mobile-media-apps-for-high-quality-photographyvideography-for-2024/"><u>Essential Mobile Media Apps for High-Quality Photography/Videography for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-perfection-from-afar-with-the-newly-revised-dji-phantom-4-pro-v2-an-in-depth-guide/"><u>Experience Perfection From Afar with The Newly Revised DJI Phantom 4 Pro V2 - An In-Depth Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/extension-on-whatsapps-revised-terms-implementation-date/"><u>Extension on WhatsApp's Revised Terms Implementation Date</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-investors-handbook-for-monetized-youtubers/"><u>The Investor's Handbook for Monetized Youtubers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-beginners-guide-to-earning-success/"><u>YouTube Beginners' Guide to Earning Success</u></a></li>
+</ul></div>
 

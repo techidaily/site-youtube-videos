@@ -1,7 +1,7 @@
 ---
 title: "\"A Time Traveler’s Guide to YouTube Queue  Watch From End to Start for 2024\""
-date: 2024-08-23T19:47:36.893Z
-updated: 2024-08-24T19:47:36.893Z
+date: 2024-11-01T17:56:30.915Z
+updated: 2024-11-05T00:31:45.641Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,14 @@ The ["Iridium for YouTube"](https://chrome.google.com/webstore/detail/iridium-fo
 Here's how to install the "Iridium for YouTube" extension on your Chrome browser to reverse the playlist:  
 Step 1: In the first step, launch a browser on your computer and click the three dots (ellipsis icon) in the top-right corner of the screen. Scroll down, select "More Tools," and click Extensions."
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![access google web store](https://images.wondershare.com/filmora/article-images/accessing-google-web-store.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 2:
 
@@ -54,18 +58,25 @@ Step 3:
 * Click"Add to Chrome."
 * Click the"Add Extension"option in the pop-up menu.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![add extension on youtube](https://images.wondershare.com/filmora/article-images/adding-iridium-for-youtube-to-chrome.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up window will appear. Select"Close"to terminate it, and clickthe"Menu"(hamburger) icon in the top left corner of the screen. Next, scroll down and open your savedPlaylistthat you want to reverse.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![iridium for youtube](https://images.wondershare.com/filmora/article-images/iridium-for-youtube.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
 
@@ -73,9 +84,6 @@ Step 5: Click the "Play All" option in the details section of the playlist and c
 
 That's about it. You will now be able to watch a YouTube playlist in reverse order.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### Using The Third Website
 
 Several trusted and reliable third-party websites, such as "Playlist. tools," can help you reverse your YouTube playlists quickly. The platform is free and fully dedicated to instantly changing the order of your Playlist.
@@ -90,9 +98,6 @@ Step 2: In the next step, open a new tab and visit the ["Playlist.Tools"](https:
 
 Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Changing the Ordering in Settings
 
 If you are a content creator on YouTube and want to reverse the videos' order in a playlist on your channel, do the following steps in sequence:
@@ -121,10 +126,14 @@ Step 2: In the next step, click your Profile at the top right of the screen and 
 
 Step 3: Scroll down on your channel's dashboard, select a video, and click the three dots next to it. Next, click "Add to Playlist" from the drop-down list and select the "Create a New Playlist" option to make a new one.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube playlist reverse order](https://images.wondershare.com/filmora/article-images/adding-playlist-to-private-playlist-to-reverse-order.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Next, provide a name, set the privacy settings to "Private," and click "Create."
 
@@ -133,8 +142,12 @@ Step 4: In the final step, head to the Playlist tab, click "View Full Playlist" 
 You can now add more videos to your playlist, and each one will be added to the top. This method helps you arrange the YouTube playlist as you desire.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The Bottom Line
 
 In this article, we've provided four different step-by-step solutions to show you how to reverse a YouTube playlist on your PC and mobile device using Chrome extension, a third-party website, changing settings, and adding videos to a new private playlist.
@@ -147,8 +160,6 @@ Surprisingly, there is no built-in way to do this on YouTube. However, four simp
 
 So, keep reading to learn how to reverse a YouTube playlist so you can watch the videos in the order you want!
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
@@ -156,5 +167,24 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-express-yourself-accessibility-available-for-free/"><u>[New] Express Yourself, Accessibility Available for Free</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-pinpointing-video-picks-s-social-landscape-facebook-for-2024/"><u>[New] Pinpointing Video Picks 'S Social Landscape (Facebook) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nveiling-aspect-ratios-your-pathway-to-youtube-excellence-for-2024/"><u>[New] Unveiling Aspect Ratios Your Pathway to YouTube Excellence for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-captivating-viewers-top-10-creative-yt-reaction-tactics/"><u>2024 Approved Captivating Viewers Top 10 Creative YT Reaction Tactics</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-dive-deep-into-youtube-shorts-essentials/"><u>2024 Approved Dive Deep Into YouTube Shorts Essentials</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-launch-your-brands-professional-chapter-with-instagram/"><u>2024 Approved Launch Your Brand's Professional Chapter with Instagram</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-a-path-to-monthly-earnings-from-youtube/"><u>Charting a Path to Monthly Earnings From YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-channels-templates-at-no-charge/"><u>Elevate Your Channels - Templates at No Charge</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-a-beginners-guide-to-interpreting-youtube-analytics-scores/"><u>In 2024, A Beginner’s Guide to Interpreting Youtube Analytics Scores</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-accelerated-pathway-through-keying-fundamentals/"><u>In 2024, Accelerated Pathway Through Keying Fundamentals</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-guidelines-to-broaden-youtube-content-area/"><u>In 2024, Guidelines to Broaden YouTube Content Area</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Oppo A59 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-artisan-writes-crafting-hdr-magic-with-iphone/"><u>In 2024, The Artisan’ Writes Crafting HDR Magic with iPhone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-the-circuit-with-tom-top-tier-pc-and-laptop-guides/"><u>Navigating the Circuit with Tom: Top-Tier PC and Laptop Guides</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-xiaomi-redmi-note-12-proplus-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Xiaomi Redmi Note 12 Pro+ 5G</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/trailblazers-creating-engaging-marvellous-universe/"><u>Trailblazers Creating Engaging Marvellous Universe</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-aesthetics-advanced-video-hue-balancing/"><u>YouTube Aesthetics Advanced Video Hue Balancing</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Charting Success  Navigating YouTube Statistics with Social Blade\""
-date: 2024-08-23T19:51:29.088Z
-updated: 2024-08-24T19:51:29.088Z
+date: 2024-10-29T20:13:22.536Z
+updated: 2024-11-05T02:30:14.575Z
 tags:
   - ai video
   - ai youtube
@@ -33,9 +33,6 @@ While many of the stats you can find on Social Blade are also available right on
 1. [**Your YouTube Analytics**](#yourstats)
 2. [**Spying on Other Channels**](#spy)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Your YouTube Analytics
 
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
@@ -58,9 +55,6 @@ If you scroll down to the second section you will be able to see your views, sub
 
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Spying on Other Channels
 
 When you check your stats, you type your channel name into the search bar. If you want to use Social Blade to monitor somebody else’s stats, type their channel name instead.
@@ -73,16 +67,10 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 
  That's how you can use Social Blade for YouTube - have you ever used it?
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Make Your Videos Stand Out with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -104,9 +92,6 @@ While many of the stats you can find on Social Blade are also available right on
 1. [**Your YouTube Analytics**](#yourstats)
 2. [**Spying on Other Channels**](#spy)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Your YouTube Analytics
 
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
@@ -129,9 +114,6 @@ If you scroll down to the second section you will be able to see your views, sub
 
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Spying on Other Channels
 
 When you check your stats, you type your channel name into the search bar. If you want to use Social Blade to monitor somebody else’s stats, type their channel name instead.
@@ -146,14 +128,15 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 
 ## Make Your Videos Stand Out with Powerful Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -175,9 +158,6 @@ While many of the stats you can find on Social Blade are also available right on
 1. [**Your YouTube Analytics**](#yourstats)
 2. [**Spying on Other Channels**](#spy)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Your YouTube Analytics
 
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
@@ -200,9 +180,6 @@ If you scroll down to the second section you will be able to see your views, sub
 
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Spying on Other Channels
 
 When you check your stats, you type your channel name into the search bar. If you want to use Social Blade to monitor somebody else’s stats, type their channel name instead.
@@ -215,17 +192,18 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 
  That's how you can use Social Blade for YouTube - have you ever used it?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## Make Your Videos Stand Out with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -246,10 +224,6 @@ While many of the stats you can find on Social Blade are also available right on
 1. [**Your YouTube Analytics**](#yourstats)
 2. [**Spying on Other Channels**](#spy)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Your YouTube Analytics
 
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
@@ -272,6 +246,13 @@ If you scroll down to the second section you will be able to see your views, sub
 
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spying on Other Channels
 
 When you check your stats, you type your channel name into the search bar. If you want to use Social Blade to monitor somebody else’s stats, type their channel name instead.
@@ -286,12 +267,16 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 
 ## Make Your Videos Stand Out with Powerful Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -310,21 +295,45 @@ Follow @Richard Bennett
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fostering Resilience in the Face of Cyber Haters
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -432,10 +441,14 @@ Follow @Richard Bennett
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -496,9 +509,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-contrasting-youtubes-ownership-norms-with-cc-ideals/"><u>[New] Contrasting YouTube's Ownership Norms with CC Ideals</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-effortless-volume-taming-gradual-dimming-in-digital-realm-for-2024/"><u>[New] Effortless Volume Taming Gradual Dimming in Digital Realm for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-scriptwriting-mastery-elevate-your-youtube-channels-content-quality/"><u>[New] In 2024, Scriptwriting Mastery Elevate Your YouTube Channel's Content Quality</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-confirmation-procedures-for-youtube-users/"><u>[Updated] Confirmation Procedures for YouTube Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-elevating-aerial-photography-with-gopro-karma/"><u>[Updated] In 2024, Elevating Aerial Photography with GoPro Karma</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-channel-branding-made-simple-and-free/"><u>2024 Approved Channel Branding Made Simple & Free</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/build-your-brand-with-dynamic-haul-videography-for-2024/"><u>Build Your Brand with Dynamic Haul Videography for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/direct-to-mp3-ease-select-10-video-to-audio-devices/"><u>Direct to Mp3 Ease Select 10 Video-to-Audio Devices</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/google-hangouts-recording-guide-for-2024/"><u>Google Hangouts Recording Guide for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/high-paying-creator-status-on-youtube-for-2024/"><u>High-Paying Creator Status on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/prime-picks-easy-youtube-template-downloads/"><u>Prime Picks Easy YouTube Template Downloads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/put-a-stay-to-unsolicited-youtube-trails/"><u>Put a Stay to Unsolicited YouTube Trails</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/stable-shootings-top-brands-for-online-filmmaking/"><u>Stable Shootings - Top Brands for Online Filmmaking</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722976090434-successful-installation-mbox2-driver-updates-and-downloads-for-windows-no-more-issues/"><u>Successful Installation: MBox2 Driver Updates & Downloads for Windows - No More Issues!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-silent-calls-a-guide-for-discord-users/"><u>Troubleshooting Silent Calls: A Guide for Discord Users</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-your-videos-potential-with-these-youtube-seo-insights/"><u>Unlock Your Videos' Potential with These YouTube SEO Insights</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unveiling-the-latest-in-computer-gear-with-tom-a-comprehensive-guide/"><u>Unveiling the Latest in Computer Gear with Tom - A Comprehensive Guide</u></a></li>
+</ul></div>
 

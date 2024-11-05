@@ -1,7 +1,7 @@
 ---
 title: "\"Step Into the Spotlight  Learning YouTube Vlogger Etiquette\""
-date: 2024-10-24T07:43:08.651Z
-updated: 2024-10-29T19:14:13.313Z
+date: 2024-11-01T03:57:44.762Z
+updated: 2024-11-04T18:19:04.390Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,10 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
@@ -65,6 +65,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -72,6 +79,13 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -95,13 +109,6 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -111,6 +118,13 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -136,21 +150,7 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -167,21 +167,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-building-custom-auto-subscribe-hyperlink-for-channels/"><u>[New] Building Custom Auto Subscribe Hyperlink for Channels</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-quick-and-easy-iphone-screen-capture-techniques-for-2024/"><u>[New] Quick and Easy iPhone Screen Capture Techniques for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-best-practices-for-writing-testable-maintainable-javascript-code/"><u>[Updated] Best Practices for Writing Testable, Maintainable JavaScript Code</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-decode-and-resolve-youtube-short-errors/"><u>[Updated] Decode and Resolve YouTube Short Errors</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-building-a-broad-spectrum-audience-with-multichannel-strategy/"><u>[Updated] In 2024, Building a Broad-Spectrum Audience with Multichannel Strategy</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-immersive-memories-a-compreeved-guide-to-saving-your-vr-gaming-journey/"><u>[Updated] In 2024, Immersive Memories A Compreeved Guide to Saving Your VR Gaming Journey</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-capture-the-season-wardrobe-top-5-winter-yt-scenes/"><u>2024 Approved Capture the Season' Wardrobe Top 5 Winter YT Scenes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-effortless-guide-to-adding-banners-on-gaming-channels/"><u>2024 Approved Effortless Guide to Adding Banners on Gaming Channels</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-honor-70-lite-5g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Honor 70 Lite 5G is off? | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-xiaomi-14-ultra-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Xiaomi 14 Ultra | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-audio-visual-caption-builder/"><u>In 2024, Audio Visual Caption Builder</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-sierra-users-meet-the-future-of-video-editing-tools/"><u>In 2024, Sierra Users, Meet the Future of Video Editing Tools</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-realme-12-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Realme 12 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/regulations-on-capturing-youtube-playbacks/"><u>Regulations on Capturing YouTube Playbacks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/share-your-picture-posting-to-youtube-basics/"><u>Share Your Picture Posting to YouTube Basics</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-approach-to-overcome-windows-11-kb4056892-installation-challenges/"><u>Step-by-Step Approach to Overcome Windows 11 KB4056892 Installation Challenges</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-digital-makeup-mastering-youtubes-chromatic-alignment/"><u>2024 Approved Digital Makeup Mastering Youtube's Chromatic Alignment</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-your-content-with-effortlessly-added-youtube-subtitles/"><u>2024 Approved Enhancing Your Content with Effortlessly Added YouTube Subtitles</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-voice-from-images-turning-instagram-into-mp3s/"><u>2024 Approved Voice From Images Turning Instagram Into MP3s</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-treasure-trove-sifting-through-the-top-10-economical-online-art-hubs-for-2024/"><u>A Treasure Trove Sifting Through the Top 10 Economical Online Art Hubs for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-asmr-apps-for-android-and-ios-for-2024/"><u>Best ASMR Apps for Android and iOS for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/calculate-the-circumference-of-the-earth-using-the-formula-for-the-circumference-of-a-circle-which-is-c-2pi-r-where-r-is-the-radius-of-the-earth-we-will-con1/"><u>Calculate the Circumference of the Earth Using the Formula for the Circumference of a Circle, Which Is $C = 2 Pi R$, Where $R$ Is the Radius of the Earth. We Will Convert the Radius From Miles to Kilometers (Since 1 Mile = 1.60934 Kilometers).</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/download-free-mcb-skin-designs/"><u>Download Free MCB Skin Designs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-high-staking-habitats-critical-commentary/"><u>In 2024, HIGH-STAKING HABITATS Critical Commentary</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-apple-iphone-xs-without-him-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Two Ways to Track My Boyfriends Apple iPhone XS without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/transform-your-digital-works-into-blockchain-treasures-with-these-tools-for-2024/"><u>Transform Your Digital Works Into Blockchain Treasures with These Tools for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweeted-timeline-capture-securing-your-social-media-videos/"><u>Tweeted Timeline Capture Securing Your Social Media Videos</u></a></li>
 </ul></div>
 

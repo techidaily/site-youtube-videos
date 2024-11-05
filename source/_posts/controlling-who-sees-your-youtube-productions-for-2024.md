@@ -1,7 +1,7 @@
 ---
 title: "Controlling Who Sees Your Youtube Productions for 2024"
-date: 2024-08-23T19:46:19.686Z
-updated: 2024-08-24T19:46:19.686Z
+date: 2024-11-01T03:27:43.411Z
+updated: 2024-11-04T17:07:29.244Z
 tags:
   - ai video
   - ai youtube
@@ -34,16 +34,10 @@ thumbnail: https://thmb.techidaily.com/533486c883f0e15f79a205d8fe00d7b629c80c76e
 
  Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -67,8 +61,18 @@ thumbnail: https://thmb.techidaily.com/533486c883f0e15f79a205d8fe00d7b629c80c76e
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -79,16 +83,27 @@ thumbnail: https://thmb.techidaily.com/533486c883f0e15f79a205d8fe00d7b629c80c76e
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
@@ -96,19 +111,19 @@ thumbnail: https://thmb.techidaily.com/533486c883f0e15f79a205d8fe00d7b629c80c76e
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -117,12 +132,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-avoid-common-mistakes-mastering-youtube-tags-wisely/"><u>[New] Avoid Common Mistakes - Mastering YouTube Tags Wisely</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-crafting-an-apple-powered-athletic-broadcast-platform/"><u>[New] Crafting an Apple-Powered Athletic Broadcast Platform</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-democratize-music-distribution-via-social-media/"><u>[New] Democratize Music Distribution via Social Media</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-effortless-hd-ready-turning-your-fb-videos-into-mp4-instantly-for-2024/"><u>[New] Effortless HD-Ready Turning Your FB Videos Into MP4 Instantly for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-perfect-your-channel-imagery-youtube-thumbnail-dos-and-donts/"><u>[New] Perfect Your Channel Imagery YouTube Thumbnail Do's & Don'ts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-makeup-tutorials-launching-your-glam-vlog/"><u>[Updated] In 2024, Mastering Makeup Tutorials Launching Your Glam Vlog</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1-apple-slashes-mac-mini-prices-new-m2-model-now-just-479-tech-news/"><u>1. Apple Slashes Mac Mini Prices: New M2 Model Now Just $479 - Tech News</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/balancing-acts-in-youtube-music-mixes/"><u>Balancing Acts in YouTube Music Mixes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-a-revenue-generating-online-presence-for-2024/"><u>Crafting a Revenue-Generating Online Presence for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-supercharging-video-views-fbs-secrets-revealed/"><u>In 2024, Supercharging Video Views FB's Secrets Revealed</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/mastering-iservice-control-operations-a-comprehensive-guide/"><u>Mastering IService Control Operations: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-money-policy-overhaul-details/"><u>Mastering YouTube Money Policy Overhaul Details</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/optimizing-videos-for-mobile-viewing-and-sharing-on-platforms-like-youtube-and-via-email/"><u>Optimizing Videos for Mobile Viewing and Sharing on Platforms Like YouTube & Via Email</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/prime-selection-of-7-top-rated-android-adblocking-apps/"><u>Prime Selection of 7 Top-Rated Android AdBlocking Apps</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-top-ranked-ringtones-to-enhance-your-call-experience-for-2024/"><u>Updated Top-Ranked Ringtones to Enhance Your Call Experience for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+</ul></div>
 

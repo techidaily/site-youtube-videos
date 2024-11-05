@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Secrets to Engaging YouTube Live Thumbnails"
-date: 2024-10-23T08:54:46.008Z
-updated: 2024-10-30T08:58:04.973Z
+date: 2024-10-28T18:29:49.529Z
+updated: 2024-11-05T05:17:50.438Z
 tags:
   - ai video
   - ai youtube
@@ -47,13 +47,6 @@ YouTube Studio is the place where you edit most of your videos on YouTube. It's 
 
 ![going to youtube studio](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click "Create" > "Go Live."
 
 ![starting live stream on youtube studio](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-3.JPG)
@@ -61,6 +54,19 @@ YouTube Studio is the place where you edit most of your videos on YouTube. It's 
 * Edit the metadata for the live video.
 
 ![editing youtube live metada](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-4.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Click "UPLOAD CUSTOM THUMBNAIL."
 
@@ -93,10 +99,10 @@ Suppose you want to change the YouTube live stream thumbnail the uld-fashioned w
 ![going to youtube studio](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-classic-5.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Select the thumbnail image you have prepared. Click "Open."
@@ -138,13 +144,6 @@ Perhaps you are live-streaming a trip somewhere. There are other ways to do it n
 
 ![going live on mobile with custom thumbneil](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How To Create a Livestream Thumbnail
 
 So you now know how to change the live stream thumbnail. There's one more thing we need to address. Where will you get the custom thumbnails? There are a number of good YouTube thumbnail makers out there. Let's discuss this.
@@ -171,16 +170,16 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 ![effects tab on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-2.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Drag the "Human Segmentation" effect to your image on the timeline. Do the same with "Human Border." Alternatively, click "Touls" > "Video" > "AI Portrait" > "Ok."
 
 ![adding human segmentation effect on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the photo on the timeline. Scale it and move it to where you want it to be.
 
@@ -214,6 +213,13 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 ![choosing a template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Edit the sample image and text. Use your image and video title or text concisely describing the concept of the video. Edit other aspects of the image as needed.
 
 ![editing chosen template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-5.JPG)
@@ -225,13 +231,6 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 * Set up your image. Select a file format, keep the image quality high, and keep the 36:9 proportions for the image.
 
 ![setting up the image on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-7.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Click "Generate."
 * Please wait for it to finish, then click "Download."
@@ -254,13 +253,6 @@ If you're not new to YouTube, you have probably seen the "YouTube thumbnail face
 
 Add simple text with clear, buld, easy-to-read font.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Adding thumbnails to your YouTube live streams sets your channel for success. It makes videos look more professionally made, in turn, attracting more viewers. So, we recommend always adding thumbnails to your YouTube Live.
@@ -268,6 +260,19 @@ Adding thumbnails to your YouTube live streams sets your channel for success. It
 For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video editor with touls that can help you make attention-grabbing YouTube thumbnails. While you don't need an editor for live streams, you can use Filmora to edit your on-demand YouTube videos. It's hitting two birds with one stone!
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Steps to Make an Amazing YouTube Livestream Thumbnail
 
@@ -297,11 +302,25 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 ![taking a snapshot on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-6.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Right-click the screenshot on the Media panel. Select "Reveal in Explorer." That will open the fulder where the thumbnail image is saved.
 
 ![revealing thumbnail image in explorer](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-7.jpg)
 
 Do you want to know more tips about making YouTube thumbnails using Wondershare Filmora? If so, watch this video:
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How To Customize YouTube Livestream Thumbnail Online
 
@@ -320,13 +339,6 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 * Edit the sample image and text. Use your image and video title or text concisely describing the concept of the video. Edit other aspects of the image as needed.
 
 ![editing chosen template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-5.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Click "Publish" > "Current frame as image."
 
@@ -587,10 +599,10 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -687,20 +699,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/nraveling-the-complexity-of-youtube-analytics-analysis-for-2024/"><u>[New] Unraveling the Complexity of YouTube Analytics Analysis for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-building-engagement-with-professional-fb-video-techniques/"><u>[Updated] 2024 Approved Building Engagement with Professional FB Video Techniques</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-master-11-key-seo-steps-to-promote-your-videos/"><u>[Updated] 2024 Approved Master 11 Key SEO Steps to Promote Your Videos</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-scouting-the-best-screenshot-and-recorders-of-today/"><u>[Updated] 2024 Approved Scouting the Best Screenshot & Recorders of Today</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-ban-unwanted-youtube-recommended-titles/"><u>[Updated] Ban Unwanted YouTube Recommended Titles</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-radiant-tone-refactoring-pro/"><u>[Updated] Radiant Tone Refactoring Pro</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-cutting-down-on-workload-the-ultimate-mac-mp4-apps-list/"><u>2024 Approved Cutting Down on Workload The Ultimate Mac MP4 Apps List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-cross-promotion-the-art-of-collaborative-co-stars/"><u>Channel Cross-Promotion The Art of Collaborative Co-Stars</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/finalcut-pro-tutorials-for-top-tier-youtube-video-editing/"><u>FinalCut Pro Tutorials for Top-Tier YouTube Video Editing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-architects-of-online-marvel-adventures/"><u>In 2024, Architects of Online Marvel Adventures</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-demystifying-how-tseries-capitalizes-on-youtube-audience-reach/"><u>In 2024, Demystifying How TSeries Capitalizes on YouTube Audience Reach</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-poco-c65frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Poco C65FRP Lock</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-guide-installing-the-epson-wf-3540-drivers-in-windows/"><u>Step-by-Step Guide: Installing the Epson WF-3540 Drivers in Windows</u></a></li>
-<li><a href="https://win11.techidaily.com/the-guide-to-pairing-classic-gaming-and-windows-memories/"><u>The Guide to Pairing Classic Gaming and Windows Memories</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-the-secrets-of-earning-via-youtube/"><u>Unlocking the Secrets of Earning via YouTube</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-mastering-video-file-management-movs-on-windows-10/"><u>[Updated] Mastering Video File Management MOVs on Windows 10</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-overhaul-overflow-cutting-edge-techniques-for-massive-tiktok-drafts/"><u>[Updated] Overhaul Overflow Cutting-Edge Techniques for Massive TikTok Drafts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-transform-your-visual-storytelling-with-clear-backdrops-in-figma/"><u>[Updated] Transform Your Visual Storytelling with Clear Backdrops in Figma</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-dispelling-dark-pixels-youtube-solution-guide/"><u>2024 Approved Dispelling Dark Pixels YouTube Solution Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-channels-popularity-with-12-key-growth-techniques/"><u>2024 Approved Elevate Your Channel's Popularity with 12 Key Growth Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-use-luts-in-adobe-after-effect/"><u>2024 Approved How to Use LUTs in Adobe After Effect</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-step-by-step-approach-to-crafting-customized-youtube-alerts-and-notifications/"><u>A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/balancing-creativity-and-monetization-in-youtube-shorts/"><u>Balancing Creativity and Monetization in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cutting-edge-techniques-for-youtube-video-production-with-sony-vegas-for-2024/"><u>Cutting-Edge Techniques for YouTube Video Production with Sony Vegas for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discovering-the-top-tools-for-engaging-video-beginnings/"><u>Discovering the Top Tools for Engaging Video Beginnings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/does-immediate-subscription-enhance-user-engagement-on-youtube/"><u>Does Immediate Subscription Enhance User Engagement on Youtube?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-engagement-discover-these-top-12-techniques-for-video-success-for-2024/"><u>Elevate Engagement - Discover These Top 12 Techniques for Video Success for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/elevate-your-ark-beyond-sanctuary-frames-per-second-in-pc-gaming-a-complete-guide/"><u>Elevate Your ARK: Beyond Sanctuary Frames Per Second in PC Gaming - A Complete Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-step-by-step-guide-capturing-youtube-live-on-multiple-devices/"><u>In 2024, Step-by-Step Guide Capturing YouTube Live on Multiple Devices</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-iphone-12-by-drfone-ios/"><u>In 2024, Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From iPhone 12</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/spark-creativity-get-to-know-windows-11s-movie-maker-app/"><u>Spark Creativity Get to Know Windows 11'S Movie Maker App</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-final-verdict-on-vegas-pro-21-a-sports-enthusiasts-review/"><u>The Final Verdict on Vegas Pro '21 - A Sports Enthusiast's Review</u></a></li>
 </ul></div>
 
