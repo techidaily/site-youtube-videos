@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Secrets to Engaging YouTube Live Thumbnails"
-date: 2024-10-28T18:29:49.529Z
-updated: 2024-11-05T05:17:50.438Z
+date: 2024-11-12T05:35:47.969Z
+updated: 2024-11-15T05:41:35.406Z
 tags:
   - ai video
   - ai youtube
@@ -55,19 +55,6 @@ YouTube Studio is the place where you edit most of your videos on YouTube. It's 
 
 ![editing youtube live metada](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-4.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click "UPLOAD CUSTOM THUMBNAIL."
 
 ![uploading custom thumbnnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-5.JPG)
@@ -98,13 +85,6 @@ Suppose you want to change the YouTube live stream thumbnail the uld-fashioned w
 
 ![going to youtube studio](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-classic-5.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Select the thumbnail image you have prepared. Click "Open."
 * Wait for the thumbnail image to refresh.
 
@@ -134,6 +114,13 @@ Perhaps you are live-streaming a trip somewhere. There are other ways to do it n
 * Select "Upload thumbnail."
 
 ![upload thumbnail option](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-8.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the thumbnail image you have prepared.
 * Crop the image if you like. Click "Save."
@@ -174,13 +161,6 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 ![adding human segmentation effect on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Select the photo on the timeline. Scale it and move it to where you want it to be.
 
 ![adjusting your photo](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-4.JPG)
@@ -213,13 +193,6 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 ![choosing a template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-4.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Edit the sample image and text. Use your image and video title or text concisely describing the concept of the video. Edit other aspects of the image as needed.
 
 ![editing chosen template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-5.JPG)
@@ -237,6 +210,13 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 ![downloading the custom thumbnail from wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-9.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making an Amazing YouTube Live Thumbnail
 
 Here are some tips to fullow.
@@ -248,6 +228,13 @@ Marketing experts say that adding a photo of yourself to the thumbnail makes it 
 ### Expressions
 
 If you're not new to YouTube, you have probably seen the "YouTube thumbnail face." YouTuber's faces on their thumbnails show an expression. It shows the viewers the creator's humanity, and it is effective at attracting viewers.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Text
 
@@ -261,19 +248,6 @@ For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video e
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Steps to Make an Amazing YouTube Livestream Thumbnail
 
 Here is a tutorial on how to create a YouTube Livestream thumbnail using Wondershare Filmora.
@@ -281,6 +255,13 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 * Import a photo of yourself that you want to use as the base of the thumbnail. Drag it into the timeline.
 
 ![adding your photo to filmora timeline](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-1.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Click "Effect."
 
@@ -302,25 +283,11 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 ![taking a snapshot on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-6.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Right-click the screenshot on the Media panel. Select "Reveal in Explorer." That will open the fulder where the thumbnail image is saved.
 
 ![revealing thumbnail image in explorer](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-7.jpg)
 
 Do you want to know more tips about making YouTube thumbnails using Wondershare Filmora? If so, watch this video:
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How To Customize YouTube Livestream Thumbnail Online
 
@@ -353,6 +320,13 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 ![downloading the custom thumbnail from wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-9.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making an Amazing YouTube Live Thumbnail
 
 Here are some tips to fullow.
@@ -364,6 +338,13 @@ Marketing experts say that adding a photo of yourself to the thumbnail makes it 
 ### Expressions
 
 If you're not new to YouTube, you have probably seen the "YouTube thumbnail face." YouTuber's faces on their thumbnails show an expression. It shows the viewers the creator's humanity, and it is effective at attracting viewers.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Text
 
@@ -443,168 +424,26 @@ The people viewing your trailer did not come to YouTube for the purpose of watch
 
 Thirty seconds should be long enough to tell people what your channel is about, show off your personality, and ask them to subscribe. If you take much longer, viewers will click away before they hear your full pitch.
 
-## Part 2: How to Add a Channel Trailer Using Wondershare Filmora
-
-Here are a few simple steps to setting up your channel trailer.
-
-1. Turn on channel customization. Go to My Channel and click the gear icon over your channel’s banner. Switch **Customize the layout of your channel** from off to on.
-2. Upload your trailer video like you would any other video.
-3. Go to your channel and click on the **For new visitors** tab, which should appear after you’ve turned on customization.
-4. Click **Channel trailer** and choose your video, or paste in its URL.
-
-If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Your channel trailer is the video viewers who are not already subscribed to you will see when they visit your channel page. It is your chance to make a quick pitch to them about why they should subscribe. You can use your channel trailer to let new visitors to your channel know what kind of videos you make and to convince them to subscribe. Here are 5 tips to make an effective YouTube channel trailer.
-
-## Part 1: 5 Tips for Making a Great Channel Trailer
-
-Here are our top 5 recommendations for anybody creating a YouTube channel trailer:
-
-#### Reach Out – It’s All About Your Viewers
-
-Use your channel trailer to try to connect to the individual viewer watching it. Greet that one person as one person, as a ‘you’, instead of as a member of a group (i.e., avoid saying ‘you guys’).
-
-The more you can make your trailer about the person watching it, the better. You are telling them about yourself, but you are doing it for their benefit. Address them directly (i.e. ‘If you like…’ or ‘you don’t want to miss’.) and make everything you say about them. For example, instead of saying ‘I post tutorials about’, try ‘you can learn about’.
-
-#### Flaunt Your Personality – It’s All About You
-
-One of the golden rules of YouTube is ‘be yourself’. People will subscribe because they enjoy your personality and want to see more of it.
-
-Use your trailer as an opportunity to showcase your unique perspective. Be yourself, and be the person that is excited to be making great YouTube videos. You are at your best when you let people see how much you care about something, so show your viewers how much you care about delivering great video content. This is what will make people want to subscribe.
-
-#### Talk about All the Cool Stuff You Do
-
-The best channel trailers give viewers a window into your channel. You need to show people what to expect from you as a personality, but you also need to tell them what to expect in terms of your videos.
-
-Your channel trailer should include information like: what kinds of videos you make, why you make them, and what your upload schedule is.
-
-Be specific. Instead of saying you make videos about makeup, say you make look tutorials and talk about your favorite styles. Instead of saying you are a gamer, tell your potential subscribers what games you post about and what some of your favorites are.
-
-A specific schedule is important for getting people to subscribe. Generally, viewers do not subscribe to channels that have not posted in a long time. They subscribe because they do not want to miss out on new content, and if you follow a schedule, they will trust that that new content is on its way.
-
-#### Ask Them to Subscribe
-
-Do not forget to ask the person to view your trailer to subscribe.
-
-A lot of people go into YouTube thinking people will subscribe if they like their videos, and so making great videos is the only way to get people to subscribe. This is not true.
-
-Making great videos is the first step to getting subscribers, but the second step is to ask for them. Not everyone subscribes to every channel they visit and enjoy. A person who enjoys your videos is more likely to subscribe if you prompt them to.
-
-#### 30 Seconds
-
-The ideal length for a YouTube channel trailer is 30 seconds, or between 30 seconds and 1 minute.
-
-The people viewing your trailer did not come to YouTube for the purpose of watching it. They are unlikely to give it much time before they continue browsing. This means you need to grab their attention tightly right away, but it also means you need to keep your trailer bite-sized.
-
-Thirty seconds should be long enough to tell people what your channel is about, show off your personality, and ask them to subscribe. If you take much longer, viewers will click away before they hear your full pitch.
-
-## Part 2: How to Add a Channel Trailer Using Wondershare Filmora
-
-Here are a few simple steps to setting up your channel trailer.
-
-1. Turn on channel customization. Go to My Channel and click the gear icon over your channel’s banner. Switch **Customize the layout of your channel** from off to on.
-2. Upload your trailer video like you would any other video.
-3. Go to your channel and click on the **For new visitors** tab, which should appear after you’ve turned on customization.
-4. Click **Channel trailer** and choose your video, or paste in its URL.
-
-If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Your channel trailer is the video viewers who are not already subscribed to you will see when they visit your channel page. It is your chance to make a quick pitch to them about why they should subscribe. You can use your channel trailer to let new visitors to your channel know what kind of videos you make and to convince them to subscribe. Here are 5 tips to make an effective YouTube channel trailer.
-
-## Part 1: 5 Tips for Making a Great Channel Trailer
-
-Here are our top 5 recommendations for anybody creating a YouTube channel trailer:
-
-#### Reach Out – It’s All About Your Viewers
-
-Use your channel trailer to try to connect to the individual viewer watching it. Greet that one person as one person, as a ‘you’, instead of as a member of a group (i.e., avoid saying ‘you guys’).
-
-The more you can make your trailer about the person watching it, the better. You are telling them about yourself, but you are doing it for their benefit. Address them directly (i.e. ‘If you like…’ or ‘you don’t want to miss’.) and make everything you say about them. For example, instead of saying ‘I post tutorials about’, try ‘you can learn about’.
-
-#### Flaunt Your Personality – It’s All About You
-
-One of the golden rules of YouTube is ‘be yourself’. People will subscribe because they enjoy your personality and want to see more of it.
-
-Use your trailer as an opportunity to showcase your unique perspective. Be yourself, and be the person that is excited to be making great YouTube videos. You are at your best when you let people see how much you care about something, so show your viewers how much you care about delivering great video content. This is what will make people want to subscribe.
-
-#### Talk about All the Cool Stuff You Do
-
-The best channel trailers give viewers a window into your channel. You need to show people what to expect from you as a personality, but you also need to tell them what to expect in terms of your videos.
-
-Your channel trailer should include information like: what kinds of videos you make, why you make them, and what your upload schedule is.
-
-Be specific. Instead of saying you make videos about makeup, say you make look tutorials and talk about your favorite styles. Instead of saying you are a gamer, tell your potential subscribers what games you post about and what some of your favorites are.
-
-A specific schedule is important for getting people to subscribe. Generally, viewers do not subscribe to channels that have not posted in a long time. They subscribe because they do not want to miss out on new content, and if you follow a schedule, they will trust that that new content is on its way.
-
-#### Ask Them to Subscribe
-
-Do not forget to ask the person to view your trailer to subscribe.
-
-A lot of people go into YouTube thinking people will subscribe if they like their videos, and so making great videos is the only way to get people to subscribe. This is not true.
-
-Making great videos is the first step to getting subscribers, but the second step is to ask for them. Not everyone subscribes to every channel they visit and enjoy. A person who enjoys your videos is more likely to subscribe if you prompt them to.
-
-#### 30 Seconds
-
-The ideal length for a YouTube channel trailer is 30 seconds, or between 30 seconds and 1 minute.
-
-The people viewing your trailer did not come to YouTube for the purpose of watching it. They are unlikely to give it much time before they continue browsing. This means you need to grab their attention tightly right away, but it also means you need to keep your trailer bite-sized.
-
-Thirty seconds should be long enough to tell people what your channel is about, show off your personality, and ask them to subscribe. If you take much longer, viewers will click away before they hear your full pitch.
-
-## Part 2: How to Add a Channel Trailer Using Wondershare Filmora
-
-Here are a few simple steps to setting up your channel trailer.
-
-1. Turn on channel customization. Go to My Channel and click the gear icon over your channel’s banner. Switch **Customize the layout of your channel** from off to on.
-2. Upload your trailer video like you would any other video.
-3. Go to your channel and click on the **For new visitors** tab, which should appear after you’ve turned on customization.
-4. Click **Channel trailer** and choose your video, or paste in its URL.
-
-If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+## Part 2: How to Add a Channel Trailer Using Wondershare Filmora
+
+Here are a few simple steps to setting up your channel trailer.
+
+1. Turn on channel customization. Go to My Channel and click the gear icon over your channel’s banner. Switch **Customize the layout of your channel** from off to on.
+2. Upload your trailer video like you would any other video.
+3. Go to your channel and click on the **For new visitors** tab, which should appear after you’ve turned on customization.
+4. Click **Channel trailer** and choose your video, or paste in its URL.
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -677,6 +516,155 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Your channel trailer is the video viewers who are not already subscribed to you will see when they visit your channel page. It is your chance to make a quick pitch to them about why they should subscribe. You can use your channel trailer to let new visitors to your channel know what kind of videos you make and to convince them to subscribe. Here are 5 tips to make an effective YouTube channel trailer.
+
+## Part 1: 5 Tips for Making a Great Channel Trailer
+
+Here are our top 5 recommendations for anybody creating a YouTube channel trailer:
+
+#### Reach Out – It’s All About Your Viewers
+
+Use your channel trailer to try to connect to the individual viewer watching it. Greet that one person as one person, as a ‘you’, instead of as a member of a group (i.e., avoid saying ‘you guys’).
+
+The more you can make your trailer about the person watching it, the better. You are telling them about yourself, but you are doing it for their benefit. Address them directly (i.e. ‘If you like…’ or ‘you don’t want to miss’.) and make everything you say about them. For example, instead of saying ‘I post tutorials about’, try ‘you can learn about’.
+
+#### Flaunt Your Personality – It’s All About You
+
+One of the golden rules of YouTube is ‘be yourself’. People will subscribe because they enjoy your personality and want to see more of it.
+
+Use your trailer as an opportunity to showcase your unique perspective. Be yourself, and be the person that is excited to be making great YouTube videos. You are at your best when you let people see how much you care about something, so show your viewers how much you care about delivering great video content. This is what will make people want to subscribe.
+
+#### Talk about All the Cool Stuff You Do
+
+The best channel trailers give viewers a window into your channel. You need to show people what to expect from you as a personality, but you also need to tell them what to expect in terms of your videos.
+
+Your channel trailer should include information like: what kinds of videos you make, why you make them, and what your upload schedule is.
+
+Be specific. Instead of saying you make videos about makeup, say you make look tutorials and talk about your favorite styles. Instead of saying you are a gamer, tell your potential subscribers what games you post about and what some of your favorites are.
+
+A specific schedule is important for getting people to subscribe. Generally, viewers do not subscribe to channels that have not posted in a long time. They subscribe because they do not want to miss out on new content, and if you follow a schedule, they will trust that that new content is on its way.
+
+#### Ask Them to Subscribe
+
+Do not forget to ask the person to view your trailer to subscribe.
+
+A lot of people go into YouTube thinking people will subscribe if they like their videos, and so making great videos is the only way to get people to subscribe. This is not true.
+
+Making great videos is the first step to getting subscribers, but the second step is to ask for them. Not everyone subscribes to every channel they visit and enjoy. A person who enjoys your videos is more likely to subscribe if you prompt them to.
+
+#### 30 Seconds
+
+The ideal length for a YouTube channel trailer is 30 seconds, or between 30 seconds and 1 minute.
+
+The people viewing your trailer did not come to YouTube for the purpose of watching it. They are unlikely to give it much time before they continue browsing. This means you need to grab their attention tightly right away, but it also means you need to keep your trailer bite-sized.
+
+Thirty seconds should be long enough to tell people what your channel is about, show off your personality, and ask them to subscribe. If you take much longer, viewers will click away before they hear your full pitch.
+
+## Part 2: How to Add a Channel Trailer Using Wondershare Filmora
+
+Here are a few simple steps to setting up your channel trailer.
+
+1. Turn on channel customization. Go to My Channel and click the gear icon over your channel’s banner. Switch **Customize the layout of your channel** from off to on.
+2. Upload your trailer video like you would any other video.
+3. Go to your channel and click on the **For new visitors** tab, which should appear after you’ve turned on customization.
+4. Click **Channel trailer** and choose your video, or paste in its URL.
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Your channel trailer is the video viewers who are not already subscribed to you will see when they visit your channel page. It is your chance to make a quick pitch to them about why they should subscribe. You can use your channel trailer to let new visitors to your channel know what kind of videos you make and to convince them to subscribe. Here are 5 tips to make an effective YouTube channel trailer.
+
+## Part 1: 5 Tips for Making a Great Channel Trailer
+
+Here are our top 5 recommendations for anybody creating a YouTube channel trailer:
+
+#### Reach Out – It’s All About Your Viewers
+
+Use your channel trailer to try to connect to the individual viewer watching it. Greet that one person as one person, as a ‘you’, instead of as a member of a group (i.e., avoid saying ‘you guys’).
+
+The more you can make your trailer about the person watching it, the better. You are telling them about yourself, but you are doing it for their benefit. Address them directly (i.e. ‘If you like…’ or ‘you don’t want to miss’.) and make everything you say about them. For example, instead of saying ‘I post tutorials about’, try ‘you can learn about’.
+
+#### Flaunt Your Personality – It’s All About You
+
+One of the golden rules of YouTube is ‘be yourself’. People will subscribe because they enjoy your personality and want to see more of it.
+
+Use your trailer as an opportunity to showcase your unique perspective. Be yourself, and be the person that is excited to be making great YouTube videos. You are at your best when you let people see how much you care about something, so show your viewers how much you care about delivering great video content. This is what will make people want to subscribe.
+
+#### Talk about All the Cool Stuff You Do
+
+The best channel trailers give viewers a window into your channel. You need to show people what to expect from you as a personality, but you also need to tell them what to expect in terms of your videos.
+
+Your channel trailer should include information like: what kinds of videos you make, why you make them, and what your upload schedule is.
+
+Be specific. Instead of saying you make videos about makeup, say you make look tutorials and talk about your favorite styles. Instead of saying you are a gamer, tell your potential subscribers what games you post about and what some of your favorites are.
+
+A specific schedule is important for getting people to subscribe. Generally, viewers do not subscribe to channels that have not posted in a long time. They subscribe because they do not want to miss out on new content, and if you follow a schedule, they will trust that that new content is on its way.
+
+#### Ask Them to Subscribe
+
+Do not forget to ask the person to view your trailer to subscribe.
+
+A lot of people go into YouTube thinking people will subscribe if they like their videos, and so making great videos is the only way to get people to subscribe. This is not true.
+
+Making great videos is the first step to getting subscribers, but the second step is to ask for them. Not everyone subscribes to every channel they visit and enjoy. A person who enjoys your videos is more likely to subscribe if you prompt them to.
+
+#### 30 Seconds
+
+The ideal length for a YouTube channel trailer is 30 seconds, or between 30 seconds and 1 minute.
+
+The people viewing your trailer did not come to YouTube for the purpose of watching it. They are unlikely to give it much time before they continue browsing. This means you need to grab their attention tightly right away, but it also means you need to keep your trailer bite-sized.
+
+Thirty seconds should be long enough to tell people what your channel is about, show off your personality, and ask them to subscribe. If you take much longer, viewers will click away before they hear your full pitch.
+
+## Part 2: How to Add a Channel Trailer Using Wondershare Filmora
+
+Here are a few simple steps to setting up your channel trailer.
+
+1. Turn on channel customization. Go to My Channel and click the gear icon over your channel’s banner. Switch **Customize the layout of your channel** from off to on.
+2. Upload your trailer video like you would any other video.
+3. Go to your channel and click on the **For new visitors** tab, which should appear after you’ve turned on customization.
+4. Click **Channel trailer** and choose your video, or paste in its URL.
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -699,22 +687,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/updated-mastering-video-file-management-movs-on-windows-10/"><u>[Updated] Mastering Video File Management MOVs on Windows 10</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-overhaul-overflow-cutting-edge-techniques-for-massive-tiktok-drafts/"><u>[Updated] Overhaul Overflow Cutting-Edge Techniques for Massive TikTok Drafts</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-transform-your-visual-storytelling-with-clear-backdrops-in-figma/"><u>[Updated] Transform Your Visual Storytelling with Clear Backdrops in Figma</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-dispelling-dark-pixels-youtube-solution-guide/"><u>2024 Approved Dispelling Dark Pixels YouTube Solution Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-channels-popularity-with-12-key-growth-techniques/"><u>2024 Approved Elevate Your Channel's Popularity with 12 Key Growth Techniques</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-use-luts-in-adobe-after-effect/"><u>2024 Approved How to Use LUTs in Adobe After Effect</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-step-by-step-approach-to-crafting-customized-youtube-alerts-and-notifications/"><u>A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/balancing-creativity-and-monetization-in-youtube-shorts/"><u>Balancing Creativity and Monetization in YouTube Shorts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cutting-edge-techniques-for-youtube-video-production-with-sony-vegas-for-2024/"><u>Cutting-Edge Techniques for YouTube Video Production with Sony Vegas for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discovering-the-top-tools-for-engaging-video-beginnings/"><u>Discovering the Top Tools for Engaging Video Beginnings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/does-immediate-subscription-enhance-user-engagement-on-youtube/"><u>Does Immediate Subscription Enhance User Engagement on Youtube?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-engagement-discover-these-top-12-techniques-for-video-success-for-2024/"><u>Elevate Engagement - Discover These Top 12 Techniques for Video Success for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/elevate-your-ark-beyond-sanctuary-frames-per-second-in-pc-gaming-a-complete-guide/"><u>Elevate Your ARK: Beyond Sanctuary Frames Per Second in PC Gaming - A Complete Guide</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-step-by-step-guide-capturing-youtube-live-on-multiple-devices/"><u>In 2024, Step-by-Step Guide Capturing YouTube Live on Multiple Devices</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-iphone-12-by-drfone-ios/"><u>In 2024, Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From iPhone 12</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/spark-creativity-get-to-know-windows-11s-movie-maker-app/"><u>Spark Creativity Get to Know Windows 11'S Movie Maker App</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/the-final-verdict-on-vegas-pro-21-a-sports-enthusiasts-review/"><u>The Final Verdict on Vegas Pro '21 - A Sports Enthusiast's Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-creating-content-earning-currency-launching-your-vlog/"><u>[New] Creating Content, Earning Currency Launching Your Vlog</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-effortless-shuffle-of-your-youtube-playlists/"><u>[Updated] Effortless Shuffle of Your YouTube Playlists</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagrams-essential-quick-tutorial-for-chat-for-2024/"><u>[Updated] Instagram's Essential Quick Tutorial for Chat for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlocking-the-power-of-time-lapse-with-samsung-smartphones/"><u>[Updated] Unlocking the Power of Time Lapse with Samsung Smartphones</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-discovering-your-favorite-makeup-vloggers-on-youtube/"><u>2024 Approved Discovering Your Favorite Makeup Vloggers on YouTube</u></a></li>
+<li><a href="https://os-tips.techidaily.com/complete-tutorial-how-to-restore-erased-imessages-on-ipads-including-air-and-pro-models/"><u>Complete Tutorial: How to Restore Erased iMessages on iPads, Including Air and Pro Models</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-view-gpx-files-online-and-offline-solutions-of-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How to View GPX Files Online and Offline Solutions Of Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-decoding-revenue-how-much-do-creators-earn-on-youtube/"><u>In 2024, Decoding Revenue How Much Do Creators Earn on Youtube?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/professional-video-grabber-high-res-recordings-for-2024/"><u>Professional Video Grabber High-Res Recordings for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-best-laptops-for-video-editing-you-should-know/"><u>The Best Laptops For Video Editing You Should Know</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-linksys-ea9500-experience-high-performance-internet-gateway-with-smart-connectivity/"><u>The Linksys EA9500 Experience: High-Performance Internet Gateway with Smart Connectivity</u></a></li>
+<li><a href="https://win-dash.techidaily.com/webmmkv/"><u>WebM動画をMKVフォーマットに簡単な手順でリニアコンバージョン</u></a></li>
 </ul></div>
 

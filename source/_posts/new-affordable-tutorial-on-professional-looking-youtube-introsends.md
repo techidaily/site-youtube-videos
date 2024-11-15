@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2024-11-03T16:25:47.876Z
-updated: 2024-11-04T19:00:19.920Z
+date: 2024-11-11T22:46:55.067Z
+updated: 2024-11-15T12:50:36.179Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,17 +141,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ios-screen-recording-the-updated-process/"><u>[New] In 2024, IOS Screen Recording The Updated Process</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-art-of-influencing-amplifying-instagram-post-reach/"><u>[New] The Art of Influencing Amplifying Instagram Post Reach</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-ad-profits-unveiled-how-much-do-creators-make-on-youtube-in-2024/"><u>[Updated] Ad Profits Unveiled How Much Do Creators Make on Youtube, In 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-eliminate-cacophony-perfecting-sound-quality-for-youtube/"><u>2024 Approved Eliminate Cacophony Perfecting Sound Quality for YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-in-class-streaming-capture-software-for-youtubers-for-2024/"><u>Best-in-Class Streaming Capture Software For YouTubers for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/capture-and-store-videos-effortlessly-with-our-top-list/"><u>Capture & Store Videos Effortlessly with Our Top List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/conquering-competition-crafting-standout-youtube-advertising-banners-for-2024/"><u>Conquering Competition Crafting Standout YouTube Advertising Banners for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/final-goodbye-to-the-social-networking-empire/"><u>Final Goodbye to the Social Networking Empire</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/from-sky-to-framing-a-compreenasive-review-of-the-drone-dji-spark-for-2024/"><u>From Sky to Framing A Compreenasive Review of the Drone DJI Spark for 2024</u></a></li>
-<li><a href="https://win-best.techidaily.com/meilleur-logiciel-de-sauvegarde-compact-et-pratique-pour-cles-usb-sous-windows-10/"><u>Meilleur Logiciel De Sauvegarde Compact Et Pratique Pour Clés USB Sous Windows 10</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcoming-cannot-connect-to-server-glitch-in-lost-ark-expert-tips-and-tricks/"><u>Overcoming 'Cannot Connect to Server' Glitch in Lost Ark: Expert Tips & Tricks</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-power-of-tags-boost-traffic-with-top-genres-and-keywords-for-2024/"><u>The Power of Tags Boost Traffic with Top Genres & Keywords for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-chucklechief-your-1-tool-for-tweeting-gifs/"><u>[New] ChuckleChief Your #1 Tool for Tweeting Gifs</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-essential-guide-to-capturing-vr-gaming-sessions/"><u>[New] Essential Guide to Capturing VR Gaming Sessions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-iphone-camera-techniques-for-quality-shots/"><u>[New] IPhone Camera Techniques for Quality Shots</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-race-away-slow-motion-on-your-android-device/"><u>[New] Race Away Slow Motion on Your Android Device</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-master-your-most-watched-videos-on-fb-today-and-beyond-2023/"><u>[Updated] In 2024, Master Your Most-Watched Videos on FB Today & Beyond 2023</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-average-gain-for-youtubers-per-ad-exposure/"><u>2024 Approved Average Gain for YouTubers per Ad Exposure?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-guide-to-finding-hidden-youtube-treasures-for-2024/"><u>A Guide to Finding Hidden YouTube Treasures for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/banter-bonanza-the-best-comedians-on-the-web-for-2024/"><u>Banter Bonanza The Best Comedians on the Web for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-creators-fortune-revenue-generated-from-youtube-advertisements/"><u>Charting Creator's Fortune Revenue Generated From Youtube Advertisements?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-new-territory-youtubes-revised-policies-for-2024/"><u>Charting New Territory YouTube's Revised Policies for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-captivating-content-for-the-first-moments-in-audios-for-2024/"><u>Crafting Captivating Content for the First Moments in Audios for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/creative-freedom-with-free-top-rated-facebook-photo-and-video-maker/"><u>Creative Freedom with Free, Top-Rated Facebook Photo & Video Maker</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-dive-into-the-dos-and-donts-of-youtube-beauty-channels/"><u>In 2024, Dive Into the Do's and Don'ts of YouTube Beauty Channels</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-to-overcome-issues-with-your-instagram-stories/"><u>Step-by-Step Guide to Overcome Issues With Your Instagram Stories</u></a></li>
 </ul></div>
 

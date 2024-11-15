@@ -1,7 +1,7 @@
 ---
 title: "[New] 20 Essentials Every New Creator Should Own"
-date: 2024-11-03T22:55:34.819Z
-updated: 2024-11-05T05:06:28.997Z
+date: 2024-11-11T03:10:30.558Z
+updated: 2024-11-14T16:50:16.827Z
 tags:
   - ai video
   - ai youtube
@@ -61,10 +61,10 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lights for YouTube
@@ -78,13 +78,6 @@ Sometimes, it is enough to film near windows and/or bring more household lamps i
 If you have the budget available to get some lighting equipment, you can find softbox lights or LED panel lights available fairly inexpensively online. Softbox lights are great because they provide even, diffused, light.
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tripods and Camera Stands
 
@@ -100,6 +93,13 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
 **The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
@@ -108,31 +108,25 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,20 +143,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-capturing-stills-in-time-a-guide-to-slow-motion-on-ig-for-2024/"><u>[New] Capturing Stills in Time A Guide to Slow Motion on IG for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-leading-stock-pictures-tales-and-internet-fame/"><u>[New] Leading Stock Pictures' Tales and Internet Fame</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-curating-soundscapes-a-detailed-look-at-youtube-playlists/"><u>2024 Approved Curating Soundscapes A Detailed Look at YouTube Playlists</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-diverging-paths-youtube-licensing-and-creative-commons/"><u>2024 Approved Diverging Paths YouTube Licensing & Creative Commons</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-unseen-fb-video-tactics-unlock-all-sharing-options/"><u>2024 Approved Unseen FB Video Tactics Unlock All Sharing Options</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-comparative-analysis-of-youtubes-ownership-vs-cc-licenses-for-2024/"><u>A Comparative Analysis of Youtube's Ownership Vs. CC Licenses for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-practices-for-designing-compelling-youtube-video-thumbnails-for-2024/"><u>Best Practices for Designing Compelling YouTube Video Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/captivating-crafting-writing-intriguing-youtube-descriptions-with-templates/"><u>Captivating Crafting Writing Intriguing Youtube Descriptions with Templates</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/charting-out-your-audience-youtubes-blueprint/"><u>Charting Out Your Audience YouTube's Blueprint</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/essential-guide-to-enjoying-lesbian-gay-bisexual-and-transgender-films-on-netflix-in-jul-2024/"><u>Essential Guide to Enjoying Lesbian, Gay, Bisexual & Transgender Films on Netflix in Jul 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-review-on-stanleys-j5c09-big-machine-with-surprising-abilities/"><u>Expert Review on Stanley's J5C09 - Big Machine with Surprising Abilities</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-poco-f5-pro-5g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Poco F5 Pro 5G</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-clipcomposers-evaluation-full-breakdown-of-video-editing-software/"><u>In 2024, ClipComposer's Evaluation – Full Breakdown of Video Editing Software</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/navigating-the-features-of-the-brainy-yet-stylish-tcl-32s325-led-tv-with-built-in-roku-a-detailed-examination/"><u>Navigating the Features of the Brainy Yet Stylish TCL 32S325 LED TV with Built-In Roku - A Detailed Examination</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-the-complete-starters-kit-for-podcast-edits-your-pathway-to-audio-excellence/"><u>New 2024 Approved The Complete Starters Kit for Podcast Edits Your Pathway to Audio Excellence</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-build-a-metaverse-identity-a-streamlined-design-process/"><u>[New] Build a Metaverse Identity A Streamlined Design Process</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevating-income-with-mobile-video-monetization-techniques-for-youtubers/"><u>[New] Elevating Income with Mobile Video Monetization Techniques for YouTubers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-crafting-the-ideal-youtube-playlist-an-easy-step-by-step-method/"><u>[Updated] Crafting the Ideal YouTube Playlist An Easy, Step-by-Step Method</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-effortless-engagement-how-to-craft-a-direct-subscribe-link/"><u>[Updated] Effortless Engagement How to Craft a Direct Subscribe Link</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-step-by-step-approach-to-generating-income-with-trailers/"><u>2024 Approved A Step-by-Step Approach to Generating Income with Trailers</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/2024s-ultimate-iphone-selection-in-depth-testing-and-expert-opinions-featured-on-zdnet/"><u>2024'S Ultimate iPhone Selection: In-Depth Testing & Expert Opinions Featured on ZDNET</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-oppo-a78-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ais-top-talkers-picking-best-generative-bot-between-gpt-and-bing/"><u>AI's Top Talkers: Picking Best Generative Bot Between GPT & Bing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-ipad-pro-and-microsoft-surface-pro-key-features-and-differences/"><u>Comparing iPad Pro and Microsoft Surface Pro: Key Features & Differences</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/delve-into-youtube-metrics-using-the-power-of-social-blade-for-2024/"><u>Delve Into YouTube Metrics Using the Power of Social Blade for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/engaging-audiences-on-multiple-digital-landscapes/"><u>Engaging Audiences on Multiple Digital Landscapes</u></a></li>
+<li><a href="https://win-blog.techidaily.com/leveraging-excels-power-comprehensive-techniques-for-utilizing-the-image-feature/"><u>Leveraging Excel's Power: Comprehensive Techniques for Utilizing the Image Feature</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/masterclass-in-length-management-youtube-vids/"><u>Masterclass in Length Management YouTube Vids</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-asus-rog-phone-7-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Asus ROG Phone 7 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://techidaily.com/top-8-iphone-14-pro-smsmessagetext-recovery-software-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Top 8 iPhone 14 Pro SMS/Message/Text Recovery Software | Stellar</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/vlog-glow-achieving-professional-video-setup/"><u>Vlog Glow Achieving Professional Video Setup</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-honor-magic5-ultimate-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Honor Magic5 Ultimate Device</u></a></li>
 </ul></div>
 

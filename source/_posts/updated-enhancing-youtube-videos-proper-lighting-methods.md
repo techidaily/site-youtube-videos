@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing YouTube Videos  Proper Lighting Methods\""
-date: 2024-11-02T17:46:21.004Z
-updated: 2024-11-04T19:08:54.342Z
+date: 2024-11-09T04:43:40.998Z
+updated: 2024-11-15T08:46:46.055Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 ### 2. Home Lighting
@@ -55,18 +62,18 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
 
@@ -82,25 +89,11 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -109,6 +102,19 @@ As a YouTuber, you may not only want yourself to be seen optimally with proper l
 What you’ll need to ensure that your background is sufficiently lit is 4-point lighting setup. The 4-point lighting setup is the same as a 3-point lighting setup, but with an additional light shining at your background.
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
 
@@ -119,10 +125,10 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,16 +146,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-covert-content-creation-how-to-invisibly-alter-videos/"><u>[New] Covert Content Creation How to Invisibly Alter Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-pinterests-top-free-tools-effortless-video-downloads-online/"><u>[Updated] Pinterest’s Top Free Tools Effortless Video Downloads Online</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-briefvideo-creator/"><u>2024 Approved BriefVideo Creator</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/5-steps-to-crafting-engaging-cost-effective-youtube-ads/"><u>5 Steps to Crafting Engaging, Cost-Effective YouTube Ads</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-drivers-with-windows-device-manager-on-windows-11-by-drivereasy-guide/"><u>How to identify missing drivers with Windows Device Manager on Windows 11</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-from-your-iphone-7-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID From Your iPhone 7</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-accelerate-your-arts-journey-with-these-7-nft-converters/"><u>In 2024, Accelerate Your Art's Journey with These 7 NFT Converters</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-choosing-the-right-platform-a-look-at-vimeo-youtube-and-dailymotion/"><u>In 2024, Choosing the Right Platform A Look at Vimeo, YouTube & DailyMotion</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-youtube-visual-impact-mastering-thumbnail-dimensions/"><u>In 2024, YouTube Visual Impact Mastering Thumbnail Dimensions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unveiling-the-secrets-to-youtube-success-titles-and-tags/"><u>Unveiling the Secrets to Youtube Success Titles & Tags</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/zen-zapped-grooves-top-20-soothing-country-music-for-easy-dancing-tiktok-for-2024/"><u>Zen-Zapped Grooves Top 20 Soothing Country Music for Easy Dancing (TikTok) for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-evaluating-tseries-business-model-with-youtube-viewership-metrics/"><u>[New] Evaluating TSeries' Business Model with YouTube Viewership Metrics</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-comprehensive-users-manual-for-precision-playback/"><u>[New] The Comprehensive User's Manual for Precision Playback</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enhance-visibility-on-yt-key-aspects-of-channel-art-and-banner-size/"><u>[Updated] Enhance Visibility on YT Key Aspects of Channel Art & Banner Size</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-step-by-step-burning-movies-to-mac-dvds-for-2024/"><u>[Updated] Step-by-Step Burning Movies to Mac DVDs for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/deciphering-youtubes-processing-after-uploading-for-2024/"><u>Deciphering YouTube's Processing After Uploading for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-tips-and-tricks-eliminating-werfaultexe-error-messages-in-windows/"><u>Effective Tips and Tricks: Eliminating werfault.exe Error Messages in Windows</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-raw-footage-to-final-cut-chroma-mastery/"><u>From Raw Footage to Final Cut Chroma Mastery</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-hero5-black-vs-hero5-the-duel-for-durability/"><u>In 2024, Hero5 Black vs Hero5, The Duel for Durability</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/insights-into-the-playstation-evolution-ps5-slim-announcements-cost-details-and-debut-predictions/"><u>Insights Into the PlayStation Evolution: PS5 Slim Announcements, Cost Details & Debut Predictions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/nighttime-iphone-photography-secrets-revealed/"><u>Nighttime iPhone Photography Secrets Revealed</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/super-bowls-greatest-halftime-moments-viewing-guide-and-free-downloads-available-now/"><u>Super Bowl's Greatest Halftime Moments - Viewing Guide & Free Downloads Available Now</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-checklist-to-amplify-video-income-on-youtube/"><u>The Essential Checklist to Amplify Video Income on YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/trasforma-file-wmv-a-formato-mkv-online-gratuitamente-convertitore-di-video/"><u>Trasforma File WMV a Formato MKV Online Gratuitamente - Convertitore Di Video</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/tuning-into-trends-effective-music-uploads/"><u>Tuning Into Trends Effective Music Uploads</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-your-hp-laptop-drivers-easily-with-our-step-by-step-guide-for-windows-users/"><u>Update Your HP Laptop Drivers Easily with Our Step-by-Step Guide for Windows Users</u></a></li>
 </ul></div>
 

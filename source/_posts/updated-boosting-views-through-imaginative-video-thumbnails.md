@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Boosting Views Through Imaginative Video Thumbnails"
-date: 2024-11-02T17:25:16.019Z
-updated: 2024-11-04T18:27:05.469Z
+date: 2024-11-09T01:16:05.235Z
+updated: 2024-11-15T11:37:19.892Z
 tags:
   - ai video
   - ai youtube
@@ -51,10 +51,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -64,10 +64,10 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -76,13 +76,6 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
@@ -90,10 +83,10 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -107,6 +100,13 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -123,15 +123,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-compre-points-for-a-smooth-and-compliant-4k-youtube-file-transfer/"><u>[New] Compre Points for a Smooth and Compliant 4K Youtube File Transfer</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/aximizing-impact-using-youtube-analytics-for-content-strategy-for-2024/"><u>[New] Maximizing Impact Using YouTube Analytics for Content Strategy for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-comprehen-word-limit-reached-continuation-in-the-next-step/"><u>[New] The Comprehen... (Word Limit Reached, Continuation in the Next Step)</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-uninterrupted-playback-capture/"><u>[Updated] 2024 Approved Uninterrupted Playback Capture</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-entering-the-fullscreen-realm-choosing-a-cms/"><u>[Updated] In 2024, Entering the Fullscreen Realm Choosing a CMS</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-can-a-brief-subscribe-boost-your-content-viewing/"><u>2024 Approved Can a Brief Subscribe Boost Your Content Viewing?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/bringing-heartwarmth-to-the-winter-5-snug-cinematographic-tips-for-2024/"><u>Bringing Heartwarmth to the Winter 5 Snug Cinematographic Tips for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/effective-techniques-to-deep-clean-and-maintain-your-mechanical-keyboard/"><u>Effective Techniques to Deep Clean and Maintain Your Mechanical Keyboard</u></a></li>
-<li><a href="https://techidaily.com/how-to-hard-reset-samsung-galaxy-f04-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Samsung Galaxy F04 Without Password | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-earn-big-on-youtube-shorts-tips-for-profitable-content-creation/"><u>In 2024, Earn Big on YouTube Shorts Tips for Profitable Content Creation</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-diy-unleashing-creative-power-in-animation-effects/"><u>[New] DIY Unleashing Creative Power in Animation Effects</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-download-free-mcb-logo-templates/"><u>[New] Download Free MCB Logo Templates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-privacy-first-sending-your-personal-youtube-link-via-google/"><u>[Updated] 2024 Approved Privacy First Sending Your Personal YouTube Link via Google</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-circumnavigating-youtubes-block-list/"><u>[Updated] Circumnavigating YouTube's Block List</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-discovering-the-stars-of-youtubes-best-music-videos-2023/"><u>[Updated] Discovering the Stars of YouTube's Best Music Videos, 2023</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-download-unlimited-mcb-visual-elements/"><u>[Updated] In 2024, Download Unlimited MCB Visual Elements</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-launching-zoom-sessions-smoothly-with-android/"><u>[Updated] Launching Zoom Sessions Smoothly with Android</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-brief-but-impactful-music-shorts-on-youtube-unveiled/"><u>2024 Approved Brief but Impactful Music Shorts on YouTube Unveiled</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-comprehensive-guide-the-triad-technique-for-assessing-youtube-revenue-streams/"><u>2024 Approved Comprehensive Guide The Triad Technique for Assessing YouTube Revenue Streams</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-allure-in-online-visuals-for-beauty/"><u>2024 Approved Crafting Allure in Online Visuals for Beauty</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/disable-unsolicited-youtube-video-listings-for-2024/"><u>Disable Unsolicited YouTube Video Listings for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/elite-gamers-165hz-visual-edge/"><u>Elite Gamer's 165Hz Visual Edge</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-honor-100-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Honor 100 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-hash-tactics-for-thriving-gaming-vids/"><u>Mastering Hash Tactics for Thriving Gaming Vids</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/maximizing-your-network-with-the-tp-link-ac1200-range-extender-re305-detailed-insights-and-performance-testing/"><u>Maximizing Your Network with the TP-Link AC1200 Range Extender RE305: Detailed Insights and Performance Testing</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-maximize-your-user-engagement-with-instagram-live-shopping-expert-tips-for-2024/"><u>New Maximize Your User Engagement With Instagram Live Shopping Expert Tips for 2024</u></a></li>
+<li><a href="https://win-data.techidaily.com/schnell-versus-volle-formatierungsverfahren-verstehen-unterscheidungsmerkmale-and-anwendungsleitfaden-dargestellt/"><u>Schnell versus Volle Formatierungsverfahren Verstehen: Unterscheidungsmerkmale & Anwendungsleitfaden Dargestellt</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-your-computer-newest-targus-displaylink-drivers-for-windows-operating-systems/"><u>Update Your Computer: Newest Targus DisplayLink Drivers for Windows Operating Systems</u></a></li>
 </ul></div>
 

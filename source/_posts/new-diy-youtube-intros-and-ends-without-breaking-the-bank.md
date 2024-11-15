@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-11-02T01:11:34.048Z
-updated: 2024-11-04T22:31:06.397Z
+date: 2024-11-07T22:45:57.986Z
+updated: 2024-11-15T01:07:37.960Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,18 +141,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discovering-the-power-behind-youtube-statistics-interpretation/"><u>[New] In 2024, Discovering the Power Behind YouTube Statistics Interpretation</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-art-of-preservation-digitizing-and-safeguarding-faded-family-memories/"><u>[Updated] 2024 Approved The Art of Preservation Digitizing & Safeguarding Faded Family Memories</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1-top-5-benefits-of-switching-from-wired-to-wireless-earphones/"><u>1. Top 5 Benefits of Switching From Wired to Wireless Earphones</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-chart-your-course-to-youtube-riches-the-essential-500-threshold/"><u>2024 Approved Chart Your Course to Youtube Riches The Essential 500 Threshold</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-pro-screen-reader-best-video-grabbing-picks/"><u>2024 Approved Pro Screen Reader Best Video Grabbing Picks</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-xiaomi-redmi-12-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Xiaomi Redmi 12</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/building-interest-with-budget-friendly-youtube-video-intros/"><u>Building Interest with Budget-Friendly YouTube Video Intros</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dominate-the-digital-space-youtube-leadership-for-2024/"><u>Dominate the Digital Space YouTube Leadership for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/duality-of-delivery-engaging-audiences-through-alternative-perspectives-for-reaction-videos-for-2024/"><u>Duality of Delivery Engaging Audiences Through Alternative Perspectives for Reaction Videos for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/enhance-your-digital-footprint-upload-tiktoks-on-twitter/"><u>Enhance Your Digital Footprint Upload TikToks on Twitter</u></a></li>
-<li><a href="https://fox-links.techidaily.com/gaming-meets-high-fidelity-review-of-logitech-g533/"><u>Gaming Meets High Fidelity: Review of Logitech G533</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-motorola-edge-2023-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Motorola Edge 2023 without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/innovative-dialogues-the-key-to-listener-retention-for-2024/"><u>Innovative Dialogues The Key to Listener Retention for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-analyzing-tseries-income-via-subscriber-engagement-on-youtube/"><u>[New] Analyzing TSeries’ Income via Subscriber Engagement on YouTube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-dissecting-tunefabs-technology-for-flawless-capture/"><u>2024 Approved Dissecting Tunefab's Technology for Flawless Capture</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-fixing-intermittent-frames-in-obs-recordings/"><u>2024 Approved Fixing Intermittent Frames in OBS Recordings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/does-rapid-subscription-improve-video-watching-in-2024/"><u>Does Rapid Subscription Improve Video Watching, In 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/easily-preview-website-content-before-going-live-online/"><u>Easily Preview Website Content Before Going Live Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ephemeral-clip-creator/"><u>Ephemeral Clip Creator</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-edit-youtube-videos-in-adobe-premiere/"><u>How to Edit YouTube Videos in Adobe Premiere</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-missing-drivers-with-windows-device-manager-on-windows-11107-by-drivereasy-guide/"><u>Identify missing drivers with Windows Device Manager on Windows 11/10/7</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cloaking-in-content-an-introduction-to-video-smoothing/"><u>In 2024, Cloaking in Content An Introduction to Video Smoothing</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/inside-look-3d-lut-creation-process-for-2024/"><u>Inside Look 3D LUT Creation Process for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/maximizing-impact-partnering-with-influencers-on-youtube-for-2024/"><u>Maximizing Impact Partnering with Influencers on YouTube for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/resolving-invalid-profiles-on-microsoft-oses-win1011-fix/"><u>Resolving Invalid Profiles on Microsoft OSes: Win10/11 Fix</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/sync-your-screen-time-concurrent-youtube-content-consumption/"><u>Sync Your Screen Time Concurrent YouTube Content Consumption</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ultimate-youtube-money-making-blueprints/"><u>The Ultimate YouTube Money-Making Blueprints</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-choosing-a-portable-battery-pack-spotlight-on-halo-bolt-product/"><u>Ultimate Guide to Choosing a Portable Battery Pack: Spotlight on Halo Bolt Product</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-movie-maker-a-beginner-friendly-video-editing-companion/"><u>YouTube Movie Maker A Beginner-Friendly Video Editing Companion</u></a></li>
+<li><a href="https://program-issues.techidaily.com/zoom-no-signal-end-black-screen-woes-with-our-expert-tips-for-windows-and-macs-latest-guide-2024/"><u>Zoom No Signal? End Black Screen Woes with Our Expert Tips for Windows and Macs (Latest Guide, 2024)</u></a></li>
 </ul></div>
 
