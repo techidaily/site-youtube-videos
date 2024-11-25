@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beginner's Guide to Video Production  Free Course Series\""
-date: 2024-11-14T12:00:04.638Z
-updated: 2024-11-15T03:59:30.011Z
+date: 2024-11-20T23:40:17.633Z
+updated: 2024-11-24T21:54:48.917Z
 tags:
   - ai video
   - ai youtube
@@ -55,24 +55,25 @@ Amy Landino is a YouTuber, author, and keynote speaker. She is an expert on vlog
 
 To access the video course, you will need to subscribe to her email newsletter or if you would like the guide without receiving future emails, you can send an email to <meg@vlogboss.com>.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. [YouTube Creator Academy](https://creatoracademy.youtube.com/page/home)
 
 Once you’ve got your channel setup and you have a feel for YouTube, it’s time to expand your knowledge of the whole platform. YouTube has generously created a whole Academy to teach you all the fundamentals. From content creation to analytics to brand deals, the YouTube Creator Academy is one of the most valuable free resources. Before you start paying for any course online or in person, review all the content in the Academy first to get yourself to the next level.
 
 Many of the courses featured in YouTube Creator Academy are hosted by well-known YouTube creators, who have built a large following with their content. Some of the courses include: Make money on YouTube, Create great content, Copyright on YouTube, and many more.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Jump Cut: [YouTube Influencer 101 Crash Course](https://jumpcut.com/)
 
 Jump Cut is founded by Kong and Jesse, two YouTubers who have succeeded on the platform by mastering viral content. Jump Cut offers multiple paid courses, but the initial course is free. This course consists of 4 emails each one with a link to a video where Jesse, the instructor, walks you through 4 ideologies of creating compelling content that expands your reach and grows our channel.
 
 If you are a YouTuber looking to push your content creation capabilities, this is a course you must try. Be warned, after you sign up, the emails and the video have an expiration date and will eventually become unavailable. This is designed to stop you from procrastinating. So this course is serious business.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Alison: [Introduction to Digital Photography](https://alison.com/course/introduction-to-digital-photography)
 
@@ -87,10 +88,7 @@ In this free social media course from Hootsuite, you will learn the benefits of 
 As you start making videos for YouTube, you will discover that one of the best ways of sharing them is on social media. The thing is creating content on YouTube is different from Facebook, Twitter, and other channels. Understanding the native content of each platform, the behavior of the audience, and how to best optimize and schedule content on other channels will ensure that you not only get views to your YouTube video but build a lasting fanbase.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Moz: [SEO Training Course](https://www.udemy.com/whiteboard-seo/)
@@ -99,24 +97,15 @@ At the start, one of the most effective ways for your videos to get discovered i
 
 Understanding the fundamentals of SEO will put you leaps and bounds ahead of other YouTubers who are merely creating content out of random ideas they pluck from their heads.
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. FutureLearn: [The Secret Power of Brands](https://www.futurelearn.com/courses/the-secret-power-of-brands)
 
 After you have found a comfortable niche for your YouTube channel to flourish in, it’s time to start thinking of your channel and your personality as a brand. What is a brand exactly? This free course from FutureLearn highlights some of the most fundamental aspects of branding and gives you a broad understanding of how to brand your channel and how good branding can make all the difference.
 
 This free course gives you 8-weeks of free access, which includes articles, videos, peer reviews, and quizzes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Leadpages: [The Affiliate Marketing System](https://lps.leadpages.net/affiliate-marketing-course/)
 
@@ -129,16 +118,7 @@ In this golden age of information, we can learn anything online. Sometimes we ha
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -156,17 +136,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/updated-achieve-seamless-video-playback-by-removing-bars-in-youtube/"><u>[Updated] Achieve Seamless Video Playback by Removing Bars in YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-cultivate-inner-peace-and-physical-strength-with-these-channels/"><u>[Updated] Cultivate Inner Peace & Physical Strength with These Channels</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-master-the-skill-of-learning-behind-screen-scenes/"><u>[Updated] Master the Skill of Learning Behind Screen Scenes</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-joining-jpegs-effortlessly-on-your-pc/"><u>2024 Approved Joining JPEGs Effortlessly on Your PC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-monetization-showdown-dailymotion-vs-youtubes-financial-gains/"><u>2024 Approved Video Monetization Showdown Dailymotion vs Youtube's Financial Gains</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/creative-video-ends-top-6-budget-friendly-options/"><u>Creative Video Ends Top 6 Budget-Friendly Options</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Tecno Spark 20 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-xs-to-pc-via-usb-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone XS to PC via USB? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/quick-fix-guide-resurrect-your-chrome-browser-in-w11/"><u>Quick Fix Guide: Resurrect Your Chrome Browser in W11</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/recommendations-on-multipurpose-gadgets-and-clothing-that-can-adapt-to-various-climates-and-situations/"><u>Recommendations on Multipurpose Gadgets and Clothing that Can Adapt to Various Climates and Situations.</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-complete-guide-to-youtubes-movie-maker-features/"><u>The Complete Guide to YouTube's Movie Maker Features</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/ultimate-video-streaming-channel-lists-films-and-series/"><u>Ultimate Video Streaming Channel Lists Films & Series</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-guide-top-10-steps-for-instructors-on-youtube-channels/"><u>[New] Essential Guide Top 10 Steps for Instructors on YouTube Channels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-guide-incorporating-tunes-into-instagram-reels-for-2024/"><u>[New] Step-by-Step Guide Incorporating Tunes Into Instagram Reels for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-secrets-to-10-music-video-fame-on-facebook/"><u>[Updated] 2024 Approved The Secrets to #10 Music Video Fame on Facebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-average-earnings-per-view-whats-the-income-for-youtubers-per-ad-playback/"><u>[Updated] Average Earnings Per View What's the Income for YouTubers per Ad Playback?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-diving-into-video-quality-dslr-vs-mirrorless-cameras/"><u>[Updated] Diving Into Video Quality DSLR vs Mirrorless Cameras</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exploring-adsense-revenue-streams-on-youtube-for-every-1k-watcher/"><u>[Updated] Exploring AdSense Revenue Streams on YouTube for Every 1K Watcher</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-samsung-galaxy-s24-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Samsung Galaxy S24 Fingerprint Lock</u></a></li>
+<li><a href="https://extra-information.techidaily.com/breaking-barriers-with-brightness-the-comprehensive-guide-to-the-lg-31mu97-b-screen-for-2024/"><u>Breaking Barriers with Brightness – The Comprehensive Guide to the LG 31MU97-B Screen for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/implementing-exact-timestamp-features-for-youtube/"><u>Implementing Exact Timestamp Features for YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-elevate-your-teams-productivity-with-slack-plus-filmora-harmony/"><u>In 2024, Elevate Your Team's Productivity with Slack + Filmora Harmony</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/intelligent-workout-blueprinting-with-ai-partnership/"><u>Intelligent Workout Blueprinting with AI Partnership</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-youtube-cards-and-tags/"><u>Navigating YouTube Cards and Tags</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/quickframe-editor/"><u>QuickFrame Editor</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/social-video-marketing-insights-for-small-business-infographic/"><u>Social Video Marketing Insights for Small Business [Infographic]</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/superior-audio-options-for-video-makers/"><u>Superior Audio Options for Video Makers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ultimate-compilation-of-top-10-free-youtube-spaces-for-digital-illustrators/"><u>The Ultimate Compilation of Top 10 Free YouTube Spaces for Digital Illustrators</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/ultimate-guide-converting-dvds-into-stunning-1080p-full-hd-videos-a-step-by-step-tutorial/"><u>Ultimate Guide: Converting DVDs Into Stunning 1080P Full HD Videos - A Step-by-Step Tutorial</u></a></li>
 </ul></div>
 

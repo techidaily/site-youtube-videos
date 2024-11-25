@@ -1,7 +1,7 @@
 ---
 title: "Transforming Your Videos with Captivating Youtube Thumbnails, Using a Mac"
-date: 2024-10-31T06:30:42.603Z
-updated: 2024-11-04T22:43:26.639Z
+date: 2024-11-19T16:06:25.769Z
+updated: 2024-11-24T20:08:20.389Z
 tags:
   - ai video
   - ai youtube
@@ -42,9 +42,17 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
 
@@ -58,44 +66,21 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -111,13 +96,14 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -135,21 +121,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-beginners-bible-to-your-youtube-audio-visual-arsenal/"><u>[New] Beginner's Bible to Your YouTube Audio-Visual Arsenal</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-techniques-for-youtube-end-screen-designs/"><u>[New] Essential Techniques for YouTube End Screen Designs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-optimal-webcam-solutions-for-audio-professionals/"><u>[Updated] 2024 Approved Optimal Webcam Solutions for Audio Professionals</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-access-your-favorites-anytime-the-leading-6-free-video-downloaders/"><u>[Updated] Access Your Favorites Anytime The Leading 6 Free Video Downloaders</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-12-flipscreen-cam-titles-for-optimal-vlogging/"><u>[Updated] Essential 12 Flipscreen Cam Titles for Optimal Vlogging</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-how-to-add-music-to-youtubevideo-with-youtube-video-editor/"><u>[Updated] How to Add Music to YouTubeVideo with YouTube Video Editor</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/1728490155290-uefigptssd/"><u>如何使用UEFI进行GPT磁盘的SSD备份与可引导性转移</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-vivo-v29-pro-phone-by-drfone-android/"><u>How to Unlock a Network Locked Vivo V29 Pro Phone?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-oneplus-ace-2v-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does OnePlus Ace 2V Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-tips-to-share-pre-recorded-videos-live-on-facebook/"><u>In 2024, Tips to Share Pre-Recorded Videos Live on Facebook</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/learn-to-record-your-xbox-games-with-ease/"><u>Learn to Record Your Xbox Games with Ease</u></a></li>
-<li><a href="https://fox-access.techidaily.com/mastering-the-art-of-b-roll-filming-techniques/"><u>Mastering the Art of B Roll Filming Techniques</u></a></li>
-<li><a href="https://network-issues.techidaily.com/seamless-integration-of-geforce-210-with-windows-10-os/"><u>Seamless Integration of GeForce 210 with Windows 10 OS</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-guide-to-global-exploration-by-channel/"><u>The Ultimate Guide to Global Exploration, By Channel</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ultimate-guide-to-downloading-and-installing-asus-pce-ac68-wifi-adapter-driver-software/"><u>Ultimate Guide to Downloading & Installing ASUS PCE-AC68 WiFi Adapter Driver Software</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/understanding-where-youtube-transforms-videos-into-art/"><u>Understanding Where YouTube Transforms Videos Into Art</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-freeframe-studio-gameplay-capture-made-simple-in-24/"><u>[New] 2024 Approved FreeFrame Studio Gameplay Capture Made Simple in '24</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-conquering-camera-angst-the-ultimate-list-of-video-blogging-phobias/"><u>[Updated] Conquering Camera Angst The Ultimate List of Video Blogging Phobias</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/accelerate-follower-count-key-strategies-unlocked/"><u>Accelerate Follower Count Key Strategies Unlocked</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-jackery-powerbar-inverter-box-assessment-featuring-integrated-ac-port/"><u>Comprehensive Jackery PowerBar Inverter Box Assessment: Featuring Integrated AC Port</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/curb-automated-youtube-content-feeds-for-2024/"><u>Curb Automated YouTube Content Feeds for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-amplify-your-contents-reach-with-optimal-publishing-days/"><u>In 2024, Amplify Your Content's Reach with Optimal Publishing Days</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mapping-out-the-next-wave-of-social-media-graphs/"><u>Mapping Out the Next Wave of Social Media Graphs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/mp4-and-webm-extraction-from-social-media-streams/"><u>MP4 & WebM Extraction From Social Media Streams</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/step-by-step-guide-adding-flash-adverts-in-ebooks-using-flipbuilder-tools/"><u>Step-by-Step Guide: Adding Flash Adverts in Ebooks Using FlipBuilder Tools</u></a></li>
+<li><a href="https://win11.techidaily.com/steps-for-rectifying-file-history-missteps-in-windows-os/"><u>Steps for Rectifying File History Missteps in Windows OS</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-asus-rog-phone-7-ultimate-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Asus ROG Phone 7 Ultimate without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/turn-your-mobile-videos-into-profitable-content-on-youtube/"><u>Turn Your Mobile Videos Into Profitable Content on YouTube</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unlocking-the-code-a-guide-to-your-own-special-tiktok-hash-for-2024/"><u>Unlocking the Code A Guide to Your Own Special TikTok Hash for 2024</u></a></li>
 </ul></div>
 

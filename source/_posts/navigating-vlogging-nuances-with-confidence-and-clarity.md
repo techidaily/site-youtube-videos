@@ -1,7 +1,7 @@
 ---
 title: "Navigating Vlogging Nuances with Confidence and Clarity"
-date: 2024-11-12T23:39:04.507Z
-updated: 2024-11-15T08:56:24.409Z
+date: 2024-11-20T19:20:48.102Z
+updated: 2024-11-24T22:50:12.131Z
 tags:
   - ai video
   - ai youtube
@@ -40,13 +40,6 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -57,13 +50,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -72,6 +58,10 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -79,13 +69,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -99,6 +82,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -108,6 +95,10 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -120,16 +111,7 @@ Consider your audience: they are coming home from school or work, where there we
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
@@ -158,6 +140,10 @@ If you want to find a video editing solution that empowers your imagination and 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -173,24 +159,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-balancing-act-proper-techniques-for-stable-photos/"><u>[New] Balancing Act Proper Techniques for Stable Photos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-decoding-complex-task-efficient-background-cleansing-in-affinitys-realm-for-2024/"><u>[New] Decoding Complex Task Efficient Background Cleansing in Affinity's Realm for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-earning-excellence-a-guide-to-maximize-money-from-mobile-youtube-viewers/"><u>[New] Earning Excellence A Guide to Maximize Money From Mobile YouTube Viewers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ath-to-profitability-enrolling-in-the-youtube-partner-program-for-2024/"><u>[New] Path to Profitability Enrolling in the YouTube Partner Program for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-first-steps-to-picture-perfection-demystifying-pixels/"><u>[Updated] 2024 Approved First Steps to Picture Perfection Demystifying Pixels</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-laptop-unlock-free-movie-magic-with-these-tools-for-2024/"><u>[Updated] Laptop Unlock Free Movie Magic with These Tools for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-list-of-livestream-streaming-strategies/"><u>[Updated] The Ultimate List of Livestream Streaming Strategies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/bridging-platforms-uploading-from-twitch-to-youtube-for-2024/"><u>Bridging Platforms Uploading From Twitch to YouTube for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/can-a-brief-subscribe-boost-your-content-viewing-in-2024/"><u>Can a Brief Subscribe Boost Your Content Viewing, In 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/capturing-youtube-icons-browser-extension-command-line-and-software-trio/"><u>Capturing Youtube Icons Browser Extension, Command Line & Software Trio</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2199725-9781476601151-european-cases-of-the-reincarnation-type/"><u>European Cases of the Reincarnation Type | Free Book</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/film-swapping-ideas-best-replacements-1-7/"><u>Film Swapping Ideas Best Replacements #1-7</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-oppo-find-x7-ultra-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from Oppo Find X7 Ultra.</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-lava-storm-5g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Lava Storm 5G Phone that is Locked?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-nokia-105-classic-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Nokia 105 Classic Device</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/influencer-tip-crafting-irresistible-templated-content-in-youtube-descriptions/"><u>Influencer Tip Crafting Irresistible Templated Content in YouTube Descriptions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-right-tools-for-your-youtube-journey-camera-lenses-explained/"><u>The Right Tools For Your YouTube Journey - Camera Lenses Explained</u></a></li>
-<li><a href="https://techidaily.com/three-solutions-to-hard-reset-tecno-camon-20-premier-5g-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Tecno Camon 20 Premier 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-crafting-made-easy-with-free-templates/"><u>YouTube Crafting Made Easy with FREE Templates</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dive-into-the-world-of-cosmetics-launching-a-beauty-channel/"><u>[New] Dive Into the World of Cosmetics Launching a Beauty Channel</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-economical-audio-devices-for-vloggers-on-a-budget/"><u>[New] Economical Audio Devices for Vloggers on a Budget</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-charting-the-differences-in-youtubes-ownership-and-cc-models/"><u>[Updated] Charting the Differences in YouTube's Ownership and CC Models</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-creating-impactful-outros-top-6-free-tools/"><u>[Updated] Creating Impactful Outros Top 6 FREE Tools</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-optimal-capture-software-showdown-obs-studio-vs-fraps/"><u>[Updated] In 2024, Optimal Capture Software Showdown OBS Studio V/S Fraps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-achieving-asmr-bliss-selecting-the-right-mic/"><u>2024 Approved Achieving ASMR Bliss Selecting the Right Mic</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-snicker-sphere-top-grade-no-charge-memes/"><u>2024 Approved Snicker Sphere Top-Grade, No-Charge Memes</u></a></li>
+<li><a href="https://extra-information.techidaily.com/brilliance-on-screen-an-examination-of-hps-4k-z32x/"><u>Brilliance on Screen An Examination of HP’s 4K Z32X</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-xiaomi-redmi-k70-pro-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Xiaomi Redmi K70 Pro</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/hapag-lloyd-ag/"><u>Hapag-Lloyd AG</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/shortcut-to-go-to-tags-maximizing-your-youtube-impact/"><u>Shortcut to Go-To Tags Maximizing Your YouTube Impact</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/simplify-stream-sideswapping-youtube-playlist-tips/"><u>Simplify Stream-Sideswapping Youtube Playlist Tips</u></a></li>
 </ul></div>
 

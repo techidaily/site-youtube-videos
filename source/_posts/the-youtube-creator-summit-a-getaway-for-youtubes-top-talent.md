@@ -1,7 +1,7 @@
 ---
 title: "\"The YouTube Creator Summit - A Getaway for YouTube's Top Talent\""
-date: 2024-11-02T20:44:56.018Z
-updated: 2024-11-05T01:25:47.326Z
+date: 2024-11-21T21:08:36.484Z
+updated: 2024-11-24T19:51:30.277Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,10 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -60,15 +64,16 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
@@ -80,14 +85,11 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-_thinknoodles wearing his YouTube slippers._
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+_thinknoodles wearing his YouTube slippers._
 
 ## 5\. Pins, pins, pins
 
@@ -98,13 +100,6 @@ There were numerous custom pins available at different events at the summit. Asi
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -117,10 +112,7 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,22 +130,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-transformative-techniques-to-enhance-your-powerpoint-recordings/"><u>[New] 2024 Approved Transformative Techniques to Enhance Your PowerPoint Recordings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-capture-the-magic-our-list-of-top-12-cameras-for-exceptional-vlogs/"><u>[New] Capture the Magic Our List of Top 12 Cameras for Exceptional Vlogs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-tools-for-android-and-ios-users-seeking-playlist-extractors/"><u>[New] Essential Tools for Android & iOS Users Seeking Playlist Extractors</u></a></li>
-<li><a href="https://discover-best.techidaily.com/1-professionelle-winxvideo-ai-vollversion-kaufen-exklusives-upgrade-fur-premiumbenutzer/"><u>1. Professionelle WinxVideo-AI Vollversion Kaufen: Exklusives Upgrade Für Premiumbenutzer</u></a></li>
-<li><a href="https://extra-information.techidaily.com/achieving-stunning-light-conditions-with-an-iphone/"><u>Achieving Stunning Light Conditions with an iPhone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/antonis-at-127-antenna-review-experience-unparalleled-television-viewing-with-our-sleek-free-digital-broadcast-receiver/"><u>ANTONIS At-127 Antenna Review: Experience Unparalleled Television Viewing With Our Sleek, Free Digital Broadcast Receiver!</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-balancing-visual-elements-with-ideal-video-ratios/"><u>In 2024, Balancing Visual Elements with Ideal Video Ratios</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-realme-c55-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Realme C55 Phone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-toshiba-silvertown-graphics-card-drivers-for-windows-users/"><u>Latest Toshiba SILVERTOWN Graphics Card Drivers for Windows Users</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/low-cost-recording-choices-top-11-vlogger-essentials/"><u>Low-Cost Recording Choices Top 11 Vlogger Essentials</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mastering-authenticity-on-instagrams-platform/"><u>Mastering Authenticity on Instagram's Platform</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/revenue-revolution-joining-elite-at-500-subs-level/"><u>Revenue Revolution Joining Elite at 500 Subs Level</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/scrutinizing-youtubes-top-viewed-community-inputs/"><u>Scrutinizing YouTube's Top Viewed Community Inputs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/step-by-step-legally-convert-youtube-to-mp4-format/"><u>Step-by-Step Legally Convert YouTube to MP4 Format</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/things-about-asmr-video-you-should-know-for-2024/"><u>Things About ASMR Video You Should Know for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/transform-your-in-game-identity-with-these-free-free-fire-vocal-hacks/"><u>Transform Your In-Game Identity with These Free Free Fire Vocal Hacks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/your-go-to-list-of-international-adventure-vids/"><u>Your Go-To List of International Adventure Vids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-construct-a-careerscape-on-camera-by-critiquing-closets/"><u>[New] Construct a Careerscape on Camera by Critiquing Closets</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-customizable-mcb-visuals-for-youtube-banners/"><u>[New] Customizable MCB Visuals for YouTube Banners</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-novice-to-pro-steps-for-social-success/"><u>[New] From Novice to Pro Steps for Social Success</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-find-peace-and-power-the-10-greatest-yoga-channels-online/"><u>[Updated] 2024 Approved Find Peace & Power The 10 Greatest Yoga Channels Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-dish-on-titles-crafting-captivating-cookery-channel-names/"><u>[Updated] Dish on Titles Crafting Captivating Cookery Channel Names</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-enhance-video-to-fit-instagrams-visual-taste/"><u>[Updated] Enhance Video to Fit Instagram's Visual Taste</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-channel-name-wizardry-brainstorm-and-create/"><u>2024 Approved Channel Name Wizardry Brainstorm & Create</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-deciphering-the-best-youtube-video-trackers-for-success/"><u>2024 Approved Deciphering the Best YouTube Video Trackers for Success</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-your-youtube-content-basic-premiere-pro-edits/"><u>2024 Approved Enhancing Your YouTube Content Basic Premiere Pro Edits</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-three-methods-for-capturing-ps4-gaming-moments/"><u>2024 Approved Three Methods for Capturing PS4 Gaming Moments</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-8-platforms-for-professional-linux-editing-for-2024/"><u>Best 8 Platforms for Professional Linux Editing for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/decode-your-youtube-preferences-with-these-6-fan-favorite-questionnaires/"><u>Decode Your YouTube Preferences with These 6 Fan-Favorite Questionnaires</u></a></li>
+<li><a href="https://windows11.techidaily.com/enabling-effortless-cross-platform-file-exchange/"><u>Enabling Effortless Cross-Platform File Exchange</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-resolve-persistent-keyboard-lag-problems-on-windows-10-devices/"><u>How to Resolve Persistent Keyboard Lag Problems on Windows 10 Devices</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-g54-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Motorola G54 5G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ideal-pickings-to-delight-young-gamers-handpicked-consoles-and-accessories-for-kids/"><u>Ideal Pickings to Delight Young Gamers: Handpicked Consoles & Accessories for Kids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-splitscreen-youtube-videos-a-guide-to-creativity/"><u>In 2024, Crafting Splitscreen YouTube Videos A Guide to Creativity</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-how-to-flip-a-clip-in-final-cut-pro-with-4-steps/"><u>New How to Flip a Clip in Final Cut Pro with 4 Steps</u></a></li>
+<li><a href="https://common-error.techidaily.com/restoring-illuminated-typing-fixes-for-malfunctioning-keyboard-lights-mac-and-pc/"><u>Restoring Illuminated Typing: Fixes for Malfunctioning Keyboard Lights (Mac & PC)</u></a></li>
 </ul></div>
 

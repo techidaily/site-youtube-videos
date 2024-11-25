@@ -1,7 +1,7 @@
 ---
 title: "[New] Boost Engagement Through Best Thumbnail Practices"
-date: 2024-11-11T17:21:58.022Z
-updated: 2024-11-15T09:32:21.896Z
+date: 2024-11-19T21:28:01.440Z
+updated: 2024-11-24T17:15:44.577Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ Making better YouTube thumbnails will help you get more views, and knowing the b
 2. [**Tips for Perfect Thumbnails**](#perfect)
 3. [**Making Better Thumbnails for YouTube**](#better)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. What's the ideal YouTube thumbnail Size and Dimension?**
 
 An essential thing that every YouTube video developer needs to know is about the selection of the right side of the thumbnail for any video. As per the guidelines circulated by Google itself, the most appropriate size for the thumbnail image is 1280x720 pixels, where the recommended minimal pixel width is 640 pixels. Generally, the 16:9 ratio is considered as an ideal choice for Most of YouTube previews and players.
@@ -43,16 +47,7 @@ Here is one interesting thing that you need to know; the thumbnail of videos app
 [ How to Download YouTube Thumbnail in 3 Ways \[Online/Win/Mac\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Tips for Perfect Thumbnails**
@@ -78,10 +73,7 @@ Window users are advised to access Windows Key with Print Screen option to get t
 Once you are ready with your video specific still image, then simply get it uploaded on YouTube using the edit video page.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Making Better Thumbnails for YouTube
@@ -115,19 +107,13 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -145,22 +131,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-comedy-in-catchy-notes-best-parody-songs-list-for-2024/"><u>[New] Comedy in Catchy Notes Best Parody Songs List for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-evaluating-hdr-tvs-does-aurora-hit-the-mark/"><u>[New] Evaluating HDR TVs Does Aurora Hit the Mark?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-craft-a-unique-channel-look-for-free/"><u>[Updated] Craft a Unique Channel Look for Free</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-creating-humor-making-funny-parody-videos/"><u>[Updated] Creating Humor Making Funny Parody Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-discover-times-tales-top-10-historical-channels-to-study-with/"><u>[Updated] Discover Time's Tales Top 10 Historical Channels to Study With</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-rules-for-a-positive-youtube-experience/"><u>[Updated] Essential Rules for a Positive YouTube Experience</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-expert-audio-enhancement-toolkit/"><u>[Updated] In 2024, Expert Audio Enhancement Toolkit</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/amd-vega-56-graphics-card-driver-installation-guide-free-windows-update/"><u>AMD Vega 56 Graphics Card Driver Installation Guide: Free Windows Update</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/audiovisual-excellence-on-youtube-through-enhancements/"><u>Audiovisual Excellence on YouTube Through Enhancements</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/immediate-screen-shotter-for-chromes-for-2024/"><u>Immediate Screen Shotter for Chromes for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-a-list-of-ten-soaring-youtube-creations-with-speed-and-purpose/"><u>In 2024, A List of Ten Soaring YouTube Creations with Speed and Purpose</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-a14-4g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy A14 4G to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/quick-overview-of-colour-difference-filming/"><u>Quick Overview of Colour Difference Filming</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-content-delivery-spectrum-vimeo-and-youtube-reviewed/"><u>The Content Delivery Spectrum Vimeo & YouTube Reviewed</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-zte-blade-a73-5g-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On ZTE Blade A73 5G</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-apple-iphone-11-pro-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud On your Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-device-friendly-tutorial-inserting-your-shorts-into-youtube/"><u>[New] Device-Friendly Tutorial Inserting Your Shorts Into YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-shots-vloggers-guide-to-the-9-finest-camera-gadgets/"><u>[New] Elevate Your Shots Vlogger's Guide to the 9 Finest Camera Gadgets</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-biting-snippets-to-captivating-narratives-an-experts-guide-to-youtube-edits/"><u>[New] In 2024, From Biting Snippets to Captivating Narratives An Expert's Guide to Youtube Edits</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-pc-workaround-for-console-gaming-recordings-for-2024/"><u>[New] The Ultimate PC Workaround for Console Gaming Recordings for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-dive-into-the-world-of-luts-and-free-digital-tools/"><u>[Updated] 2024 Approved Dive Into the World of LUTs and Free Digital Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-amplify-engagement-increase-youtube-viewers/"><u>[Updated] Amplify Engagement Increase YouTube Viewers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-behind-the-scenes-of-gamers-elite-setup/"><u>[Updated] Behind the Scenes of Gamers' Elite Setup</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elite-10-sound-enhancers-across-os-platforms/"><u>[Updated] Elite 10 Sound Enhancers Across OS Platforms</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-discover-the-top-6-phone-utilities-for-clean-image-cropping/"><u>2024 Approved Discover the Top 6 Phone Utilities for Clean Image Cropping</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/conversione-gratuita-da-mpeg-a-mkv-online-guide-completa-con-movavi/"><u>Conversione Gratuita Da MPEG a MKV Online: Guide Completa Con Movavi</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/enhance-visuals-with-better-obs-settings/"><u>Enhance Visuals with Better OBS Settings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-insiders-tips-for-youtube-shorts-mastery/"><u>The Insider's Tips for YouTube Shorts Mastery</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/time-allocation-mastery-work-and-youtube-synergy/"><u>Time Allocation Mastery Work & YouTube Synergy</u></a></li>
 </ul></div>
 

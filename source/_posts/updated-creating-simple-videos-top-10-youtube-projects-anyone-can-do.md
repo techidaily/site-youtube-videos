@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2024-11-11T09:24:57.954Z
-updated: 2024-11-15T06:11:50.053Z
+date: 2024-11-17T17:13:22.979Z
+updated: 2024-11-24T23:17:59.606Z
 tags:
   - ai video
   - ai youtube
@@ -41,18 +41,15 @@ They say that less is more, so let's have a look at how you can apply this princ
 9. [10 Things About You](#nine)
 10. [Video Rant](#ten)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Introduce Yourself
 
 Let the world know who you are and what you do. If you are planning on starting a YouTube channel, or if you’ve already been posting videos on a topic but haven’t formally introduced yourself, it’s a great idea to put some thought into an introduction video. Producing such a YouTube video will enable you to introduce yourself to your future subscribers and give them an idea as to what your channel is all about.
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2\. Vlog About Your Day
 
@@ -68,6 +65,10 @@ Opinion videos are great conversation starters. Expressing an opinion through a 
 
 You can express your opinions on virtually any topic, but being respectful while doing so is for the best if you don’t want to find yourself in a YouTube feud.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Review Anything
 
 Everywhere around you, there are items you can review. The Apple Watch and the latest season of Game of Thrones are equally good choices for a review video. However, when creating review videos you need to make sure that all the factual information you have is accurate, which is why it is much better to make review videos about topics you know a lot about.
@@ -80,18 +81,15 @@ Are you a Tarantino fan? Why not? When you are struggling to find inspiration fo
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. What’s on Your Phone?
 
 There were over two billion smartphone users worldwide in 2017, and this number is only going to continue rising in the next couple of years. Furthermore, thousands of YouTubers are already producing unimaginable amounts of videos about the latest apps or smartphone devices.
 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
 
@@ -120,10 +118,7 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Start Editing Videos with Beginner-friendly Software
@@ -133,10 +128,7 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -156,21 +148,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-how-to-captivate-viewers-using-multiple-perspectives-on-fb-live/"><u>[New] 2024 Approved How to Captivate Viewers Using Multiple Perspectives on FB Live</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-direct-music-upload-top-tools-for-turning-spotify-into-youtube-listings/"><u>[New] Direct Music Upload Top Tools for Turning Spotify Into YouTube Listings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-video-popularity-with-strategic-hashtags/"><u>[New] Elevate Video Popularity with Strategic #Hashtags</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-quickly-transform-sluggish-videos-on-android-for-2024/"><u>[Updated] Quickly Transform Sluggish Videos on Android for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-creative-components-free-youtube-visual-resources/"><u>2024 Approved Creative Components FREE YouTube Visual Resources</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/a-new-era-advanced-webcam-techniques/"><u>A New Era Advanced Webcam Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-symphony-of-selection-assembling-your-best-music-choices-on-youtube-for-2024/"><u>A Symphony of Selection Assembling Your Best Music Choices on YouTube for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/demystifying-ethereum-gas-charges-what-you-need-to-know-about-eth-network-expenses/"><u>Demystifying Ethereum Gas Charges: What You Need to Know About ETH Network Expenses</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/efficiently-balancing-professional-commitments-and-creativity/"><u>Efficiently Balancing Professional Commitments & Creativity</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-mobile-media-apps-for-high-quality-photographyvideography-for-2024/"><u>Essential Mobile Media Apps for High-Quality Photography/Videography for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/hp-printer-p1102w-windows-software/"><u>HP Printer P1102w Windows Software</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-streamline-your-360-videos-for-youtube-with-easy-upload-tricks/"><u>In 2024, Streamline Your 360 Videos for YouTube with Easy Upload Tricks</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/live-streaming-solutions-discover-manycams-advanced-features-and-online-cam-effects/"><u>Live Streaming Solutions: Discover ManyCam's Advanced Features and Online Cam Effects</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-investors-handbook-for-monetized-youtubers/"><u>The Investor's Handbook for Monetized Youtubers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722531400541-top-rated-video-game-systems-of-2024-your-ultimate-guide/"><u>Top-Rated Video Game Systems of 2024 - Your Ultimate Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-quickquip-quartermotion-grip/"><u>[Updated] In 2024, QuickQuip QuarterMotion Grip</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-screen-saver-games-the-top-9-independent-titles-for-android-no-wi-fi/"><u>[Updated] In 2024, Screen-Saver Games The Top 9 Independent Titles for Android (No Wi-Fi)</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-perfect-tape-mac-based-recording/"><u>[Updated] Perfect Tape Mac-Based Recording</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-creating-costless-webinars-on-youtube-a-handbook/"><u>2024 Approved Creating Costless Webinars on YouTube A Handbook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-success-in-youtubes-creator-hub-for-2024/"><u>Crafting Success in YouTube's Creator Hub for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/easy-online-and-offline-methods-transforming-mp4-files-into-xvid-format/"><u>Easy Online & Offline Methods: Transforming MP4 Files Into XviD Format</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-ultimate-instagram-hashtag-guide/"><u>In 2024, The Ultimate Instagram Hashtag Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-steam-display-fixes-on-microsoft-os/"><u>Mastering Steam Display Fixes on Microsoft OS</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/maximizing-your-dslr-footage-with-pc-or-mac-for-social-media/"><u>Maximizing Your DSLR Footage with PC or Mac for Social Media</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-complete-youtube-video-editor-reference-manual/"><u>The Complete YouTube Video Editor Reference Manual</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/turning-your-youtube-views-into-a-screen-capture-made-simple-and-free/"><u>Turning Your YouTube Views Into a Screen Capture Made Simple and Free</u></a></li>
 </ul></div>
 

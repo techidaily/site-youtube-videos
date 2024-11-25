@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Create Captivating YT Thumbnails Fast"
-date: 2024-11-01T23:39:17.280Z
-updated: 2024-11-04T19:40:17.665Z
+date: 2024-11-17T20:26:58.435Z
+updated: 2024-11-24T20:48:58.143Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -43,9 +47,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
@@ -75,9 +87,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
@@ -112,28 +132,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-best-channel-discoveries-in-asmr/"><u>[New] Best Channel Discoveries in ASMR</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-detailed-procedures-for-elevating-youtube-clips-through-wm-maker/"><u>[New] Detailed Procedures for Elevating YouTube Clips Through WM Maker</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nrich-your-brain-with-these-15-ultimate-science-youtubes/"><u>[New] Enrich Your Brain with These 15 Ultimate Science Youtubes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-10-strategies-for-boosting-your-youtube-visibility/"><u>[Updated] 10 Strategies for Boosting Your YouTube Visibility</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-amplify-your-shorts-impact-with-bespoke-thumbnails/"><u>[Updated] Amplify Your Shorts' Impact with Bespoke Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-empowerment-in-entertainment-top-10-inspirational-women/"><u>[Updated] Empowerment in Entertainment Top 10 Inspirational Women</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-asmr-channel-discoveries/"><u>[Updated] Essential ASMR Channel Discoveries</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-ultimate-free-timers-for-daily-use/"><u>[Updated] Ultimate Free Timers for Daily Use</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/buying-guide-for-the-well-priced-65-4k-led-television-sonys-xbr6350-f-model-review/"><u>Buying Guide for the Well-Priced, 65 4K LED Television: Sony's XBR6#350 F Model Review</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/efficient-solutions-to-the-crashed-graphics-driver-problem-in-valorant-a-step-by-step-fix/"><u>Efficient Solutions to the 'Crashed Graphics Driver' Problem in Valorant – A Step-by-Step Fix</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/expert-advice-how-to-empty-cache-in-various-popular-internet-browsers/"><u>Expert Advice: How to Empty Cache in Various Popular Internet Browsers</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-realme-12-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-6-methods-for-switching-from-apple-iphone-se-2022-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 6 Methods for Switching from Apple iPhone SE (2022) to Samsung | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-harmonic-start-spots-music-gold-for-podcast-kicks/"><u>In 2024, Harmonic Start Spots Music Gold for Podcast Kicks</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-eraser-guru-expert-tips-for-psx-users/"><u>The Eraser Guru Expert Tips for PSX Users</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshoot-and-repair-your-steamvr-in-no-time/"><u>Troubleshoot and Repair Your SteamVR in No Time!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-audiovisual-power-evaluating-mirrorless-vs-dslr-cameras/"><u>[New] Audiovisual Power Evaluating Mirrorless vs DSLR Cameras</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solved-logitech-webcam-microphone-not-working/"><u>[SOLVED] Logitech Webcam Microphone Not Working</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-create-captivate-independent-animation-innovations/"><u>[Updated] Create, Captivate Independent Animation Innovations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/deciphering-the-language-of-youtube-live-images-for-2024/"><u>Deciphering the Language of YouTube Live Images for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-english-words-unlocked-with-oxford-mondly/"><u>Essential English Words Unlocked with Oxford-Mondly</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-the-distinctions-a-comprehensive-guide-to-gpt-4-vs-gpt-ex/"><u>Exploring the Distinctions: A Comprehensive Guide to GPT-4 Vs. GPT-eX</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-on-apple-iphone-14-pro-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email On Apple iPhone 14 Pro? Heres the Best Fixes</u></a></li>
+<li><a href="https://win11.techidaily.com/method-to-release-restricted-app-on-pc/"><u>Method to Release Restricted App on PC</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-by-step-revenue-building-for-youtube-creators/"><u>Step-by-Step Revenue Building for YouTube Creators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-path-to-profitable-partnership-with-your-audience/"><u>The Path to Profitable Partnership with Your Audience</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-vivo-y27s-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Vivo Y27s FRP Bypass</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

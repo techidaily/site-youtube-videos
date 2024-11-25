@@ -1,7 +1,7 @@
 ---
 title: "[New] Best Microphone for YouTubers"
-date: 2024-11-09T22:14:20.811Z
-updated: 2024-11-15T10:52:38.656Z
+date: 2024-11-17T17:31:47.091Z
+updated: 2024-11-24T19:39:50.168Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Here are examples of some of the best external microphones for YouTube:
 
 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube01.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The Snowball is especially good for vlogging from your webcam because it is easy to hook up to your computer using a USB port. It will record your audio simultaneously while you are using your webcam. The biggest drawback of the Snowball is that it needs to be close to you while your record. This combined with its larger size means that it will probably need to be in your shot.
 
 #### 2. RØDE Video Shotgun Mic - $140
@@ -51,11 +55,19 @@ The Shotgun attaches to your DSLR camera and is great for capturing specific sou
 
 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube03.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This microphone is similar to the ones you think of being mounted on boom poles on professional sets, and it can easily be mounted onto a pole and used the same way. This gradient condenser mic is good at picking up sound at a distance, and at only picking up sound coming from directly in front of it. If you are working alone then you can set this mic up on a stand so it is pointing at you, or if you have a friend to help you you can ask them to hold it on a boom pole.
 
 #### 4. Sony LAV Wireless Mic System - $600
 
 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube04.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 A LAV Mic, also called a lavalier or lapel mic, is a small microphone which can be clipped onto clothing. Wearing a LAV Mic while you vlog will allow you to move around freely and still capture great audio, rather than being stuck in range of a stationary mic. There are both wired and wireless options available in LAV Mics.
 
@@ -65,25 +77,11 @@ A LAV Mic, also called a lavalier or lapel mic, is a small microphone which can 
 
 The [R-05](https://bstasmr.com/asmr-accessories/best-asmr-microphones.html) is a pocket recorder that captures flawless audio. Its small size means you can hide it in your pocket and it will not show up in your video. Also, since it does not need to hook up to your camera or computer you will have freedom of movement.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Best Microphones for All Types of YouTube Creators
 
 If you have to invest in a new piece of equipment for your YouTube channel, consider upgrading your microphones. Your viewers can forgive your grainy video footage, poor lighting, and unsteady camera handling, but if your audio sounds like you’re speaking across the road on a busy highway, all your hard work will be wasted, because nobody will want to watch it.
 
 But the thing about microphones is that they are not all created equal. Depending on the type of videos you’re filming and the environment where you’re recording, the capabilities of the microphone will differ.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1. Best Microphone for Live Streamers and Gamers
 
@@ -99,6 +97,10 @@ The Blue Yeti can pick up audio in four different polar patterns: cardioid, bidi
 
 Tip: In cardioid mode, speak into the front of the mic, not the top of it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. Best Microphones for Outdoor Locations
 
 [Rode VideoMic Pro Compact VMP Shotgun Microphone](https://www.amazon.com/gp/product/B004K8WPUQ) \- $268
@@ -107,25 +109,11 @@ When you are filming outside, you are dealing with audio from all different dire
 
 ![ Best Microphones for Outdoor Locations: Rode VideoMic Pro Compact VMP Shotgun Microphone ](https://images.wondershare.com/filmora/article-images/best-microphones-for-outdoor-locations.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 That’s why a shotgun mic is better than an omnidirectional one for outdoor situations. Shotgun microphones, such as the Rode VideoMic Pro, picks up audio only in the direction it’s pointing in. You can aim it at your subject and it will give you clear audio without a lot of background noises.
 
 The Rode VideoMic Pro comes with a mount that attaches on top of your camera, if you are filming outdoors. So if you are holding the camera and vlogging, then the audio will be great. However, if you want to take advantage of the space, and set the camera further away, you should attach the mic on a boom or a stand to get the best audio.
 
 Tip: With Rode VideoMic Pro, and any mic you use to shoot outdoors, always do a sound check to make sure the quality is up to standard. Ten seconds of your subject talking at the level they will be speaking in will be enough to judge the sound quality.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. Best Microphone for Music (Vocals)
 
@@ -140,10 +128,7 @@ Nevertheless, this microphone does a fantastic job isolating the source of sound
 **Tip** : Position yourself 8-12 inches away from the mic when singing. This allows your voice to sound more natural (too close and it’ll sound bassy) and it prevents the audio volume from fluctuating too dramatically as you move around or sing loudly one part and quietly at another.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4. Best Microphone for Voice Over
@@ -154,11 +139,19 @@ The Rode NTK Tube is arguably one of the best microphone for its price. You can 
 
 ![ Best Microphone for  Voiceover: Rode NTK Tube Condenser Microphone](https://images.wondershare.com/filmora/article-images/best-mic-for-voiceover.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you’re recording out of a studio environment, whether it’s a professional, semi-professional, or a closet with soft padded walls, the Rode NTK will give warmth and richness to every word you speak, while still offering crispness. Allow it to warm up for a few minutes before you start recording, and you’ll have awesome audio for your voice over.
 
 This mic is great for YouTubers who are creating video essays, ADR, animated videos, or other videos that require top quality narrations.
 
 **Tip:** Make sure you have a mic stand that you can raise to your standing height. Standing while recording voice over allows you diaphragm to open up, which will improve the quality of your voice.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5. Best Microphone for Big Echoey Space
 
@@ -167,13 +160,6 @@ This mic is great for YouTubers who are creating video essays, ADR, animated vid
 Commonly used to record isolated percussions or brass instruments, the Sennheiser MD 421 II is also wonderful if you need to record vocals in a large room. As a versatile dynamic mic, it doesn’t allow background noises or reverberations to bleed into the source vocal.
 
 ![ Best Microphone for Big Echoey Space: Sennheiser MD 421 II Cardioid Dynamic Mic](https://images.wondershare.com/filmora/article-images/best-mic-for-big-echoey-space.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The Sennheiser MD 421 II has a rugged design as it’s built for live situations, such as concerts. This is a great microphone to have in your arsenal, should you end up recording in a large venue such as a conference or an arena.
 
@@ -189,17 +175,29 @@ This unidirectional microphone delivers clear and crisp audio. Compact, portable
 
 ![ Best Microphone for Interviews: Zoom ZH1 H1 Handy Portable Digital Recorder](https://images.wondershare.com/filmora/article-images/best-mic-for-interviews.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As a YouTuber, you may not have a crew to help you wrangle cable or a team member to help you monitor your audio levels, that is what makes Zoom ZH1 H1 a solid choice, as it is wireless and you can check the levels right in the palm of your hands as you record and even hear playback on the device.
 
 The only thing that might slow you down, is that the audio will be captured directly onto the device, which means that you will need to sync up your audio to video afterward.
 
 **Tip** : Before you start your interview, hit record on video and audio and then clap on camera, causing the audio to spike and giving you a video reference. This will give you a clear mark for syncing up, the sound of the clap and your hands coming together on camera.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7. Best Microphone for Action and Fitness
 
 [Rode VMPR VideoMic Pro R with Rycote Lyre Shockmount](https://www.amazon.com/gp/product/B00YAZHRZM) \- $214.90
 
 ![ Best Microphone for Action and Fitness: Rode VMPR VideoMic Pro R with Rycote Lyre Shockmount](https://images.wondershare.com/filmora/article-images/best-mic-for-action-fitness.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you’re a YouTuber who films a lot of action shots or fitness videos, where you, your camera and your microphone are in motion, then I recommend the Rode VMPR VideoMic Pro R with Rycote Lyre Shockmount.
 
@@ -209,25 +207,11 @@ The Rycote Lyre shock mount eliminates any external audio that can be caused by 
 
 **Tip** : For a greater range, the Rode VMRP Video Mic Pro can be mounted onto a boom pole, should the subject need to move around within the shot or if the camera needs to move away from the subject.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8. Best Waterproof Microphone
 
 [Sennheiser MKE 2 elements - Action Mic for the GoPro HERO4](https://www.amazon.com/Sennheiser-MKE-elements-Action-GoPro/dp/B06XYS2KHG) \- $200
 
 ![ Best Waterproof Microphone: Sennheiser MKE 2 elements - Action Mic for the GoPro HERO4](https://images.wondershare.com/filmora/article-images/best-waterproof-microphone.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In or around water, nothing can ruin a day of shooting faster than getting your equipment wet. If you’re using GoPro Hero4 for shooting all your intense water shots, you would be familiar with the awful audio you capture when the camera is inside the waterproof casing.
 
@@ -303,18 +287,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-beyond-youtube-3-pioneering-online-video-platforms/"><u>[New] Beyond YouTube 3 Pioneering Online Video Platforms</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-art-of-choosing-video-aspect-ratios/"><u>[New] The Art of Choosing Video Aspect Ratios</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-boosting-income-via-youtube-ads-and-analytics-across-platforms/"><u>2024 Approved Boosting Income via YouTube Ads & Analytics Across Platforms</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-compre-written-guide-on-incorporating-markup-features-in-youtube/"><u>2024 Approved Compre Written Guide on Incorporating Markup Features in YouTube</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-initialization-failed-in-age-of-empires-iii-complete-guide/"><u>Fixing 'Initialization Failed' In Age of Empires III - Complete Guide</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-your-ricoh-mp-c3n003-printer-up-and-running-with-the-latest-drivers/"><u>Get Your Ricoh MP C3n003 Printer Up and Running with the Latest Drivers!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/icy-images-cozier-cinematics-best-bgs-selection/"><u>Icy Images, Cozier Cinematics Best Bgs Selection</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-from-apple-iphone-14-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue From Apple iPhone 14</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/precision-conversion-hub-top-10-online-audio-devices/"><u>Precision Conversion Hub Top 10 Online Audio Devices</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-essential-guide-to-free-drive-diagnosis-apps-latest-picks/"><u>The Essential Guide to Free Drive Diagnosis Apps: Latest Picks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-financial-worth-one-million-youtube-eyes/"><u>The Financial Worth One Million YouTube Eyes</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/top-6-hdmi-21-monitor/"><u>Top 6 HDMI 2.1 Monitor</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/turbocharge-your-youtube-videos-swift-render-and-transfer-strategies/"><u>Turbocharge Your YouTube Videos Swift Render & Transfer Strategies</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-unveiling-the-best-practices-for-skype-in-obs/"><u>[New] 2024 Approved Unveiling the Best Practices for Skype in OBS</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-aspers-best-practices-secrets-to-deep-restful-sleep/"><u>[New] Asper's Best Practices Secrets to Deep, Restful Sleep</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-bridge-gaps-in-generations-of-viewers-6-interactive-tests-to-find-your-youtube-match/"><u>[New] Bridge Gaps in Generations of Viewers 6 Interactive Tests to Find Your YouTube Match</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-efficiently-broadcasting-your-videos-as-shorts-via-computers-and-mobile/"><u>[New] Efficiently Broadcasting Your Videos as Shorts via Computers & Mobile</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-list-5-leading-youtube-shortened-url-services/"><u>[New] Essential List 5 Leading YouTube Shortened URL Services</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-learn-to-prevent-persistent-commercials-in-digital-platforms/"><u>[New] In 2024, Learn to Prevent Persistent Commercials in Digital Platforms</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-simplified-methods-for-logging-videos-on-vimeo-for-2024/"><u>[New] Simplified Methods for Logging Videos on Vimeo for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-analyzing-the-income-generated-by-every-youtube-viewer/"><u>[Updated] Analyzing the Income Generated by Every YouTube Viewer</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-asmr-knowledge-beyond-what-you-see/"><u>[Updated] ASMR Knowledge Beyond What You See</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-poco-c51-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/factory-reset-on-apple-iphone-15-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>Factory Reset on Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/go-big-or-go-home-selecting-the-most-satisfying-1tbplus-cloud-services-for-2024/"><u>Go Big or Go Home - Selecting the Most Satisfying 1TB+ Cloud Services for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-lyric-videos-lyric-video-maker-guide/"><u>Mastering Lyric Videos Lyric Video Maker Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/professionals-guide-selecting-premium-video-card-options/"><u>Professional's Guide Selecting Premium Video Card Options</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-6-data-from-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 6 Data From iCloud | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/seamlessly-transform-kindle-ebooks-into-readable-and-shareable-pdf-files/"><u>Seamlessly Transform Kindle eBooks Into Readable and Shareable PDF Files</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-vivo-y78t-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Vivo Y78t Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unleashing-inspiration-ideas-for-engaging-channels/"><u>Unleashing Inspiration Ideas for Engaging Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-revenue-harnessing-video-ad-dollars-on-youtube/"><u>Unlocking Revenue Harnessing Video Ad Dollars on YouTube</u></a></li>
 </ul></div>
 

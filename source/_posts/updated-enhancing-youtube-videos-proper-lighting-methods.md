@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing YouTube Videos  Proper Lighting Methods\""
-date: 2024-11-09T04:43:40.998Z
-updated: 2024-11-15T08:46:46.055Z
+date: 2024-11-23T21:44:32.234Z
+updated: 2024-11-24T17:46:48.923Z
 tags:
   - ai video
   - ai youtube
@@ -35,9 +35,17 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 | Table of Contents [Using Light You Already Have](#USING-LIGHT-YOU-ALREADY-HAVE) [Window Lighting](#Window-Lighting)[Home Lighting](#Home-Lighting) [Home Studio Lighting](#HOME-STUDIO-LIGHTING) [Light Control](#Light-Control)[3-Point Lighting](#Three-Point-Lighting)[4-Point Lighting](#four-point-lighting) |
 | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Using Light You Already Have
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1.  Window Lighting
 
@@ -48,10 +56,7 @@ Window lighting for me was especially difficult to work with because I live in a
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
@@ -61,13 +66,6 @@ Above are two freeze frames from one of Daniel's past window-lit vlogs. Although
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
@@ -104,16 +102,7 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
@@ -122,14 +111,11 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -146,20 +132,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-evaluating-tseries-business-model-with-youtube-viewership-metrics/"><u>[New] Evaluating TSeries' Business Model with YouTube Viewership Metrics</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-comprehensive-users-manual-for-precision-playback/"><u>[New] The Comprehensive User's Manual for Precision Playback</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-enhance-visibility-on-yt-key-aspects-of-channel-art-and-banner-size/"><u>[Updated] Enhance Visibility on YT Key Aspects of Channel Art & Banner Size</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-step-by-step-burning-movies-to-mac-dvds-for-2024/"><u>[Updated] Step-by-Step Burning Movies to Mac DVDs for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/deciphering-youtubes-processing-after-uploading-for-2024/"><u>Deciphering YouTube's Processing After Uploading for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-tips-and-tricks-eliminating-werfaultexe-error-messages-in-windows/"><u>Effective Tips and Tricks: Eliminating werfault.exe Error Messages in Windows</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-raw-footage-to-final-cut-chroma-mastery/"><u>From Raw Footage to Final Cut Chroma Mastery</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-hero5-black-vs-hero5-the-duel-for-durability/"><u>In 2024, Hero5 Black vs Hero5, The Duel for Durability</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/insights-into-the-playstation-evolution-ps5-slim-announcements-cost-details-and-debut-predictions/"><u>Insights Into the PlayStation Evolution: PS5 Slim Announcements, Cost Details & Debut Predictions</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/nighttime-iphone-photography-secrets-revealed/"><u>Nighttime iPhone Photography Secrets Revealed</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/super-bowls-greatest-halftime-moments-viewing-guide-and-free-downloads-available-now/"><u>Super Bowl's Greatest Halftime Moments - Viewing Guide & Free Downloads Available Now</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-essential-checklist-to-amplify-video-income-on-youtube/"><u>The Essential Checklist to Amplify Video Income on YouTube</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/trasforma-file-wmv-a-formato-mkv-online-gratuitamente-convertitore-di-video/"><u>Trasforma File WMV a Formato MKV Online Gratuitamente - Convertitore Di Video</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/tuning-into-trends-effective-music-uploads/"><u>Tuning Into Trends Effective Music Uploads</u></a></li>
-<li><a href="https://win-dash.techidaily.com/update-your-hp-laptop-drivers-easily-with-our-step-by-step-guide-for-windows-users/"><u>Update Your HP Laptop Drivers Easily with Our Step-by-Step Guide for Windows Users</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-conquer-youtube-searches-with-these-top-11-seo-strategies/"><u>[Updated] Conquer YouTube Searches with These Top 11 SEO Strategies</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-discovering-the-best-drone-motor-choices-for-enhanced-control-for-2024/"><u>[Updated] Discovering the Best Drone Motor Choices for Enhanced Control for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-your-youtube-presence-with-effective-tags/"><u>[Updated] Elevating Your YouTube Presence with Effective Tags</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-seamless-online-video-sharing-via-vimeo/"><u>[Updated] In 2024, Seamless Online Video Sharing via Vimeo</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-update-drivers-for-nvidia-rtx-2070-super-guide-for-windows-10-and-11-users/"><u>Download and Update Drivers for NVIDIA RTX 2070 Super: Guide for Windows 10 & 11 Users</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-apple-iphone-14-pro-max-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked Apple iPhone 14 Pro Max Without iTunes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/learn-the-process-of-capturing-your-watched-youtube-content-without-spending/"><u>Learn the Process of Capturing Your Watched YouTube Content Without Spending</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/leveraging-imovie-features-to-upgrade-your-youtube-content-quality/"><u>Leveraging iMovie Features to Upgrade Your YouTube Content Quality</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-apple-iphone-se-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>Unlock Apple iPhone SE With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-your-videos-hidden-potential-with-these-top-20-shortcuts/"><u>Unlock Your Video's Hidden Potential with These Top 20 Shortcuts</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/top-rejtingovye-seo-kompanii-v-berline-germaniya-ispolzovanie-seo-powersuite/"><u>Топ-Рейтинговые SEO-Компании В Берлине, Германия: Использование SEO PowerSuite</u></a></li>
 </ul></div>
 

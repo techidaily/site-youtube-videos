@@ -1,7 +1,7 @@
 ---
 title: "[New] Discovering How YouTube Runs Its Creator Workshop"
-date: 2024-11-12T17:23:13.567Z
-updated: 2024-11-15T04:08:03.819Z
+date: 2024-11-22T17:52:38.591Z
+updated: 2024-11-24T17:55:35.758Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,10 @@ On the main dashboard of the Creator Studio, you will see a menu that includes y
 
 Also on the dashboard, you can see analytics for the most successful videos that you have posted.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Adjusting the Dashboard
 
 Pinning new charts to the dashboard will ensure that all of the data you need most often is easily viewable upon first entering the Creator Studio. All you need to do to add new widgets to the dashboard sidebar is to use the **add widget** feature.
@@ -41,10 +45,7 @@ Pinning new charts to the dashboard will ensure that all of the data you need mo
 Making adjustments to your current widgets simply involves clicking on the gear icon in the top right corner to add custom tiles as well as rearrange the order of the various widgets that you have selected.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Creator Studio Tools
@@ -62,10 +63,7 @@ How many times a week do you check your stats in the YouTube Creator Studio?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit YouTube Videos with Filmora
@@ -75,19 +73,13 @@ As one of the most versatile video editing software, Filmora offers various type
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -105,17 +97,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-the-ultimate-selection-top-voice-recorders-for-macos-for-2024/"><u>[Updated] The Ultimate Selection Top Voice Recorders for MacOS for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-list-of-the-best-marriage-videos-celebrations-captured-online-8/"><u>2024 Approved A List of the Best Marriage Videos - Celebrations Captured Online (8)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-shaky-footage-proper-tripod-usage-techniques-in-vlog-creation-for-2024/"><u>Avoid Shaky Footage Proper Tripod Usage Techniques in Vlog Creation for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/corrected-com-interface-error-windows-update/"><u>Corrected COM Interface Error, Windows Update</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/creators-vs-youtubes-profit-policies-for-2024/"><u>Creators Vs. YouTube's Profit Policies for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cultivating-patience-with-youtube-disapproval-for-2024/"><u>Cultivating Patience with YouTube Disapproval for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/immediate-mastery-skilled-thumbnails-for-valorants-highlights/"><u>Immediate Mastery - Skilled Thumbnails for Valorant's Highlights</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-affordable-shutterbug-gear-for-dynamic-action-scenes/"><u>In 2024, Affordable Shutterbug Gear for Dynamic Action Scenes</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-expand-audiences-quickly-using-short-form-content/"><u>In 2024, Expand Audiences Quickly Using Short Form Content</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Lava Yuva 3 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-depth-analysis-the-top-7-android-apps-to-combat-ads-effectively/"><u>In-Depth Analysis The Top 7 Android Apps to Combat Ads Effectively</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-invisible-web-seo-secrets-for-podcasters/"><u>The Invisible Web SEO Secrets for Podcasters</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-unseen-aspect-of-youtube-live-imagery/"><u>[New] 2024 Approved The Unseen Aspect of YouTube Live Imagery</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-event-ready-top-dj-templates-download-guide/"><u>[New] Event-Ready Top DJ Templates Download Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-ace-your-video-masterful-use-of-hash-tags-in-games/"><u>[Updated] Ace Your Video Masterful Use of Hash Tags in Games</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-avoid-distortion-best-practices-for-shooting-up-close-with-videoleap/"><u>[Updated] Avoid Distortion Best Practices for Shooting Up Close with VideoLeap</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-create-a-youtube-music-playlist-on-web-and-mobile-a-detailed-guidance/"><u>[Updated] Create a YouTube Music Playlist on Web and Mobile - A Detailed Guidance</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elite-visionaries-video-realm/"><u>[Updated] Elite Visionaries Video Realm</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-step-by-step-perfecting-fbs-360-streams-for-2024/"><u>[Updated] Step-by-Step Perfecting FB's 360 Streams for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/19-effective-solutions-for-when-netflix-fails-to-launch-on-your-lg-tv-setup/"><u>19 Effective Solutions for When Netflix Fails to Launch on Your LG TV Setup</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-detailed-insights-into-youtubes-monthly-income-model/"><u>2024 Approved Detailed Insights Into YouTube's Monthly Income Model</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-leading-13-gopro-video-editors-ultimativa-redigeringslaerrer-og-skjonner-pa-gopro/"><u>Discover the Leading 13 GoPro Video Editors – Ultimativa Redigeringslærrer Og Skjønner På GoPro</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/enthralling-your-eyes-six-ingenious-methods-for-capturing-netflix-vids-on-a-mac-for-2024/"><u>Enthralling Your Eyes Six Ingenious Methods for Capturing Netflix Vids on a Mac for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/exploring-this-years-most-iconic-music-video-responses/"><u>Exploring This Year's Most Iconic Music Video Responses</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-nokia-c300-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Nokia C300 by Name | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/is-your-xiaomi-13t-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Xiaomi 13T working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/tap-into-endless-stock-imagery-through-favorite-4-youtube-vids/"><u>Tap Into Endless Stock Imagery Through Favorite 4 Youtube Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-psychological-upsides-of-a-temporary-online-hiatus/"><u>The Psychological Upsides of a Temporary Online Hiatus</u></a></li>
 </ul></div>
 

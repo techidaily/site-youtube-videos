@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Captivating Subscription  Making an Animated Button for YouTube with Filmora\""
-date: 2024-11-14T06:38:44.038Z
-updated: 2024-11-14T17:55:50.345Z
+date: 2024-11-21T21:51:52.578Z
+updated: 2024-11-24T22:01:28.640Z
 tags:
   - ai video
   - ai youtube
@@ -44,19 +44,43 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 6:** Double click on the Title on the timeline and edit it with "Subscribe" and place it under the red rectangle and click OK.![subscribe-button6](https://images.wondershare.com/filmora/article-images/subs-button6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 7:** We have put a cursor that can click on the animated subscribe button. You can use Google Search to find a transparent cursor. Make sure to save it in png format. Download it and import it into Filmora.![subscribe-button7](https://images.wondershare.com/filmora/article-images/subs-button7.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 8:** Drag and drop the cursor into the timeline and place it above all the other three tracks to make it prominent. Adjust the size of the cursor place it on the Subscribe button where you want it to appear.![subscribe-button8](https://images.wondershare.com/filmora/article-images/subs-button8.png)
 
 **Step 9:** Now, it's time to animate the design using keyframes. First of all, let's animate the red rectangle. Double click on the red color on the timeline. Go to the 'Animation' tab and then click 'Customize.' Move to the 1 second in the timeline and click 'Add.'![subscribe-button9](https://images.wondershare.com/filmora/article-images/subs-button9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 10:** Now go back to the beginning in the timeline and adjust the scale to 0%. It will make the rectangle pop up when you play the clip.![subscribe-button10](https://images.wondershare.com/filmora/article-images/subs-button10.png)
 
 **Step 11:** Text needs to be animated as well to match it with the rectangle. Double click on the text in the timeline and click 'ADVANCED.'![subscribe-button11](https://images.wondershare.com/filmora/article-images/subs-button11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 12:** In this Advance text editor, go to the 'Animation' tab and select any animation that you like. On the timeline under the preview screen, adjusts the dark areas according to the time you set on the rectangle, which was 1 second. We want the text to appear on the screen in 1 second, like the rectangle. Also, adjust the ending time when you want the text to disappear again. We have set it on 4 seconds. Which means it will start to fade after 4 seconds.![subscribe-button12](https://images.wondershare.com/filmora/article-images/subs-button12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 13:** Now, to animate the mouse cursor, we will use the same process we used for a rectangle that is key framing. Double click on the cursor track on the timeline and move the time on your timeline to a point when you want the cursor to appear. Now add a key frame by clicking 'Add'.![subscribe-button13](https://images.wondershare.com/filmora/article-images/subs-button13.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 14:** Now jump back to a point in your timeline, when the cursor will start appearing from outside the screen. Move the cursor outside the screen from where you want it to start moving toward the subscribe animation.![subscribe-button14](https://images.wondershare.com/filmora/article-images/subs-button14.png)
 
@@ -70,7 +94,15 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 19:** Do the same with the cursor. Double click on the cursor in the time and add a key frame at its actual position.![subscribe-button19](https://images.wondershare.com/filmora/article-images/subs-button19.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 20:** Move ahead when you want it to disappear. Move the cursor out of the screen and click 'OK'.![subscribe-button20](https://images.wondershare.com/filmora/article-images/subs-button20.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 21:** Your Subscribe png gif is ready to be exported and used in your videos. Click on export and choose from various formats and options to choose from while exporting it.![subscribe-button21](https://images.wondershare.com/filmora/article-images/subs-button21.png)
 
@@ -97,27 +129,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-boosting-viewership-mastery-in-youtube-shorts-design/"><u>[New] Boosting Viewership Mastery in YouTube Shorts Design</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-enhancing-viewer-interest-with-thumbnails/"><u>[New] Enhancing Viewer Interest with Thumbnails</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-snippets-to-stars-the-essence-of-video-musical-success/"><u>[Updated] In 2024, From Snippets to Stars The Essence of Video Musical Success</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-unwind-and-learn-your-guide-to-podcasting-multitasking/"><u>[Updated] Unwind and Learn Your Guide to Podcasting Multitasking</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-2023-20-best-practices-for-facebook-video-advertising/"><u>2024 Approved 2023 | 20 Best Practices for Facebook Video Advertising</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/defeating-dissidence-a-guide-for-content-makers-for-2024/"><u>Defeating Dissidence A Guide for Content Makers for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhancing-video-discoverability-with-effective-titles-and-tags/"><u>Enhancing Video Discoverability with Effective Titles & Tags</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716465636075-get-superior-visuals-from-youtube-downloading-thumbnails-free/"><u>Get Superior Visuals From YouTube - Downloading Thumbnails Free!</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Honor 90 Lite? | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/how-to-find-your-comments-on-youtube-for-2024/"><u>How to Find Your Comments on YouTube for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-captivating-visual-transformation-software-for-pc-mac-linux/"><u>In 2024, Captivating Visual Transformation Software for PC, Mac, Linux</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-steps-to-create-youtube-beginnings-and-ends-on-a-budget/"><u>In 2024, Essential Steps to Create YouTube Beginnings & Ends on a Budget</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-solution-conquer-camera-fails-in-windows-os/"><u>Quick Solution: Conquer Camera Fails in Windows OS</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-5-youtube-link-shortener-you-must-try/"><u>Top 5 YouTube Link Shortener You Must Try</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-free-skype-mp3-logger-101-guide-for-2024/"><u>[Updated] Free Skype Mp3 Logger 101 Guide for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-honor-80-pro-straight-screen-edition-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Honor 80 Pro Straight Screen Edition? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/calculating-your-digital-footprint-understanding-views-and-income-from-youtube-for-2024/"><u>Calculating Your Digital Footprint Understanding Views & Income From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-the-course-a-comprehensive-guide-to-youtube-teaser-vids/"><u>Charting the Course A Comprehensive Guide to YouTube Teaser Vids</u></a></li>
+<li><a href="https://driver-install.techidaily.com/simplified-approach-to-reinstalling-print-drivers/"><u>Simplified Approach to Reinstalling Print Drivers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-future-of-streaming-money-youtube-update/"><u>The Future of Streaming Money YouTube Update</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unveiling-subscriber-lists-a-youtube-guide/"><u>Unveiling Subscriber Lists A YouTube Guide</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-free-mov-video-cutting-software-top-recommendations/"><u>Updated In 2024, Free MOV Video Cutting Software Top Recommendations</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-asus-rog-phone-8-pro-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Asus ROG Phone 8 Pro Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

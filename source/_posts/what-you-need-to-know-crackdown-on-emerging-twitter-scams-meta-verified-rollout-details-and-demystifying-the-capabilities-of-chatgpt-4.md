@@ -1,7 +1,7 @@
 ---
 title: "What You Need to Know: Crackdown on Emerging Twitter Scams, Meta Verified Rollout Details, and Demystifying the Capabilities of ChatGPT-4"
-date: 2024-11-10T02:09:10.987Z
-updated: 2024-11-14T23:10:26.271Z
+date: 2024-11-21T16:23:47.216Z
+updated: 2024-11-24T21:59:13.184Z
 tags:
   - chatgpt
   - open-ai
@@ -40,10 +40,7 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 ![Chatterdocs can analyze multiple documents at the same time while you chat with a bot and ask questions like ChatGPT](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/best-chatgpt-apps-chat-with-documents-pdf-chatterdocs.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * **File Formats Supported:** PDF, DOC, TXT, JPEG, PNG
@@ -62,13 +59,6 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 
 ![Klavier is a completely free way to have AI scan your documents and then use ChatGPT to find information within](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/best-chatgpt-apps-chat-with-documents-pdf-klavier.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * **File Formats Supported:** PDF, DOCX, TXT, HTML
 * **Page Limit:** No Information Available
 * **File Size Limit:** No Information Available
@@ -80,6 +70,10 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
  However, Klavier was definitely slower than other apps. And while it uses the same GPT AI that others are using, the answers weren't as in-depth as what you get in Unriddle. But given it's completely free and unlimited, that's hardly a complaint.
 
  Currently, you cannot create an account on Klavier to store analyzed files. In fact, you can only work with one source material at a time and will lose any progress if you add a new source for Klavier to analyze.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4.[LXI.ai](https://lxi.ai/) (Web): Chat With Your Documents and Pay Per Usage
 
@@ -94,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
  LXI isn't a free app. After the 14-day trial period, you'll need to pay. But it's quite interesting that you pay according to your usage, not by preset plans. It costs $0.1 per MB per month for the amount of data you have uploaded. And every question you ask costs $0.0025, which you can avoid if you have your own OpenAI API key. So you have control over the actual price you'll pay.
 
  The chatbot works with all your documents at the same time, so you'll need to[learn to phrase ChatGPT prompts effectively](https://www.makeuseof.com/chatgpt-chrome-extensions-better-ai-prompts-answers-in-browsers/) to get the answers you need. It's also context-unaware, meaning each question is treated as a separate query without considering the conversation before it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5.[Docalysis](https://docalysis.com/) (Web): Best App to Have ChatGPT Conversations With PDFs
 
@@ -112,10 +110,7 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
  In our tests, we found Docalysis to be one of the best at analyzing documents and providing relevant answers. It understood simple chat prompts, was context-aware in a conversation, and the ability to see the file alongside was a great help.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6.[ChatPDF](https://www.chatpdf.com/) (Web): Use ChatGPT 3.5 to Query PDF Files
@@ -131,10 +126,7 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
  ChatPDF is one of the[coolest new apps to work with PDF files](https://www.makeuseof.com/free-pdf-editing-web-apps-to-fix-common-problems-with-pdfs/) , and performs shockingly well for all text. It had trouble reading images and data from tables in our tests, where we uploaded files from our drive as well as direct URLs. The developers say that while they currently use ChatGPT 3.5, they are looking into how to incorporate the newer ChatGPT 4.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn Prompts to Make Chat Memory Easier
@@ -156,17 +148,14 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/warranty-and-lifespan-higher-quality-led-systems-may-come-with-a-higher-upfront-price-but-can-offer-longer-lifespans-and-better-performance-which-should-be-/"><u>__Warranty and Lifespan Higher Quality LED Systems May Come with a Higher Upfront Price but Can Offer Longer Lifespans and Better Performance, Which Should Be Considered in the Overall Cost Evaluation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-7-comedy-youtube-video-ideas-that-funny-people-can-try/"><u>[New] 7 Comedy YouTube Video Ideas That Funny People Can Try</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-facebook-cover-video-best-practices-and-setup/"><u>[Updated] Facebook Cover Video | Best Practices and Setup</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-audience-alchemy-converting-shorts-to-sensations/"><u>2024 Approved Audience Alchemy Converting Shorts to Sensations</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/elevate-your-device-experience-with-smooth-screen-capture-for-2024/"><u>Elevate Your Device Experience with Smooth Screen Capture for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/ensuring-thumbnails-show-shorts-video-troubleshooting/"><u>Ensuring Thumbnails Show Shorts Video Troubleshooting</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Vivo T2 5G? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Vivo V30 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-creativity-top-10-yt-reaction-hacks/"><u>Mastering Creativity Top 10 YT Reaction Hacks</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1721951391523-step-into-ais-future-with-gpt-4-nevertheless-platinum-still-rewards-users-with-6-significant-advantages/"><u>Step Into AI's Future with GPT-4! Nevertheless, Platinum Still Rewards Users With 6 Significant Advantages.</u></a></li>
-<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-sony-xperia-1-v-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Sony Xperia 1 V FRP Bypass Everything You Need to Know</u></a></li>
-<li><a href="https://network-issues.techidaily.com/windows-10-meets-the-future-new-amd-radeon-hd-6950-driver-release/"><u>Windows 10 Meets the Future: New AMD Radeon HD 6950 Driver Release</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/c-windows-ssdhdd/"><u>[易行] 利用 C 槽複製功能進行 Windows 移動到 SSD/HDD，啟動教程</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/harting-your-course-in-the-world-of-youtube-tracking-success-and-monetary-value/"><u>[New] Charting Your Course in the World of YouTube Tracking Success & Monetary Value</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-streamline-your-social-media-video-sharing-with-fb-tech-for-pcandroid/"><u>[New] In 2024, Streamline Your Social Media Video Sharing with FB Tech for PC/Android</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-boosting-your-online-presence-a-step-by-step-guide-to-viral-youtube-shorts/"><u>[Updated] Boosting Your Online Presence A Step-by-Step Guide to Viral YouTube Shorts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-direct-youtube-file-access-tips/"><u>[Updated] Direct YouTube File Access Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-downloader-essentials-the-best-tools-for-offline-viewing/"><u>[Updated] Downloader Essentials The Best Tools For Offline Viewing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-enhance-your-podcasts-production-with-top-audio-devices/"><u>[Updated] In 2024, Enhance Your Podcast's Production with Top Audio Devices</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-honor-90-pro-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pro-gamers-and-casters-to-subscribe-now/"><u>Pro Gamers & Casters to Subscribe Now</u></a></li>
 </ul></div>
 

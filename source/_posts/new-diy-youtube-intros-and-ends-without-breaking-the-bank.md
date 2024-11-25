@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-11-07T22:45:57.986Z
-updated: 2024-11-15T01:07:37.960Z
+date: 2024-11-20T22:48:10.948Z
+updated: 2024-11-24T21:40:40.205Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/a7b063e2c5f1e938dc6e32e2ce85c52239dfc8e77
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -78,10 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,22 +143,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-analyzing-tseries-income-via-subscriber-engagement-on-youtube/"><u>[New] Analyzing TSeries’ Income via Subscriber Engagement on YouTube</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-dissecting-tunefabs-technology-for-flawless-capture/"><u>2024 Approved Dissecting Tunefab's Technology for Flawless Capture</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-fixing-intermittent-frames-in-obs-recordings/"><u>2024 Approved Fixing Intermittent Frames in OBS Recordings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/does-rapid-subscription-improve-video-watching-in-2024/"><u>Does Rapid Subscription Improve Video Watching, In 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/easily-preview-website-content-before-going-live-online/"><u>Easily Preview Website Content Before Going Live Online</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/ephemeral-clip-creator/"><u>Ephemeral Clip Creator</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-edit-youtube-videos-in-adobe-premiere/"><u>How to Edit YouTube Videos in Adobe Premiere</u></a></li>
-<li><a href="https://review-topics.techidaily.com/identify-missing-drivers-with-windows-device-manager-on-windows-11107-by-drivereasy-guide/"><u>Identify missing drivers with Windows Device Manager on Windows 11/10/7</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-cloaking-in-content-an-introduction-to-video-smoothing/"><u>In 2024, Cloaking in Content An Introduction to Video Smoothing</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/inside-look-3d-lut-creation-process-for-2024/"><u>Inside Look 3D LUT Creation Process for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/maximizing-impact-partnering-with-influencers-on-youtube-for-2024/"><u>Maximizing Impact Partnering with Influencers on YouTube for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/resolving-invalid-profiles-on-microsoft-oses-win1011-fix/"><u>Resolving Invalid Profiles on Microsoft OSes: Win10/11 Fix</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/sync-your-screen-time-concurrent-youtube-content-consumption/"><u>Sync Your Screen Time Concurrent YouTube Content Consumption</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-youtube-money-making-blueprints/"><u>The Ultimate YouTube Money-Making Blueprints</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-choosing-a-portable-battery-pack-spotlight-on-halo-bolt-product/"><u>Ultimate Guide to Choosing a Portable Battery Pack: Spotlight on Halo Bolt Product</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-movie-maker-a-beginner-friendly-video-editing-companion/"><u>YouTube Movie Maker A Beginner-Friendly Video Editing Companion</u></a></li>
-<li><a href="https://program-issues.techidaily.com/zoom-no-signal-end-black-screen-woes-with-our-expert-tips-for-windows-and-macs-latest-guide-2024/"><u>Zoom No Signal? End Black Screen Woes with Our Expert Tips for Windows and Macs (Latest Guide, 2024)</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-tips-to-overcome-mute-in-obs-streaming/"><u>[New] 2024 Approved Tips to Overcome Mute in OBS Streaming</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-access-top-shorter-video-downloads-for-free-online/"><u>[New] Access Top Shorter Video Downloads for FREE Online</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-brand-your-content-download-complimentary-templates-for-youtube-makers/"><u>[New] Brand Your Content Download Complimentary Templates for YouTube Makers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-breaking-the-mold-unique-post-vidcon-events/"><u>[New] Breaking the Mold Unique Post-VidCon Events</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-comprehensive-2023-guide-to-lg-360-cam-tech/"><u>[New] Comprehensive 2023 Guide to LG 360 Cam Tech</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-effortless-youtube-video-to-text-conversion-at-no-cost/"><u>[New] Effortless YouTube Video to Text Conversion at No Cost</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-extract-youtube-media-directly/"><u>[New] In 2024, How to Extract YouTube Media Directly</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-comprehensive-walkthrough-wmp-caption-addition-for-2024/"><u>A Comprehensive Walkthrough WMP Caption Addition for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-art-of-video-storytelling-how-to-craft-impactful-and-informative-edu-vids-on-youtube/"><u>In 2024, The Art of Video Storytelling How to Craft Impactful and Informative Edu-Vids on YouTube</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/nubia-z50-ultra-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Nubia Z50 Ultra Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/obs-walkthrough-turn-your-screen-into-a-youtube-live-showcase/"><u>OBS Walkthrough Turn Your Screen Into a Youtube Live Showcase</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/techniques-for-removing-cluttered-photo-backgrounds/"><u>Techniques for Removing Cluttered Photo Backgrounds</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unleashing-the-power-of-creativity-increase-viewership-in-youtube-shorts/"><u>Unleashing the Power of Creativity Increase Viewership in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unveil-8-reliable-video-promotion-services/"><u>Unveil 8 Reliable Video Promotion Services</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/webcams-that-win-top-picks-for-youtube-stream-success/"><u>Webcams that Win Top Picks for YouTube Stream Success</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtubes-pinnacle-tools-studio-vs-next-gen-beta/"><u>YouTube's Pinnacle Tools Studio Vs. Next-Gen Beta</u></a></li>
 </ul></div>
 

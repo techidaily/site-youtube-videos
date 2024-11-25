@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevating Your Style with YouTube's Best Hauls"
-date: 2024-10-29T06:01:30.578Z
-updated: 2024-11-05T03:21:19.148Z
+date: 2024-11-17T22:45:57.006Z
+updated: 2024-11-24T23:11:25.462Z
 tags:
   - ai video
   - ai youtube
@@ -58,10 +58,7 @@ Another way you could find a niche is by taking on a specific area of interest, 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Types of Beauty Videos – Your Content Strategy**
@@ -102,13 +99,6 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -129,6 +119,10 @@ Here are 4 tips for getting free products for review:
 4. Send an email with your pitch to the brand’s PR person. Your email should introduce yourself, describe your content, and talk about what type of audience you have (how many subscribers, where are they located, how old are they, etc. This information is all available in your Creator Studio analytics).  
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Simple Camera Setup for Beauty Vloggers**
 
@@ -173,13 +167,6 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
 ## **Lighting for Beauty**
@@ -218,13 +205,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -242,13 +222,6 @@ This light is dimmable and can be adjusted to the angle that suits your shot. Th
 This lightweight ring light is easy to transport, set up, and mount your phone or camera to. It’s a fluorescent ‘daylight’ (5400K) light, so the colors in your videos will look natural.
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
 
@@ -277,6 +250,10 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -288,10 +265,7 @@ Before you start recording your makeup tutorial there are a few things you shoul
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – Recording**
@@ -302,6 +276,10 @@ Here are some things to keep in mind while you record your makeup tutorial:
 If you’re using autofocus, you can hold products up to the screen and wait for it to kick in. If you’re not using autofocus, just hold them up next to you for a moment. You can also shoot separate closeups of each product and cut them into your main tutorial video.
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – After Shooting**
 
@@ -319,6 +297,10 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -334,22 +316,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-your-edits-with-these-top-5-tools-no-youtube/"><u>[New] Elevate Your Edits with These Top 5 Tools (No Youtube)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-7-top-rated-free-mobile-apps-for-video-downloads/"><u>[Updated] 7 Top-Rated Free Mobile Apps for Video Downloads</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-conceptualists-engineering-marvel-online-worlds/"><u>[Updated] Conceptualists Engineering Marvel Online Worlds</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-dynamic-subscriber-buttons-for-video-creators-filmora-edition/"><u>[Updated] Dynamic Subscriber Buttons for Video Creators - Filmora Edition</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-newbies-navigation-to-net-worth-on-periscope/"><u>[Updated] Newbie's Navigation to Net Worth on Periscope</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-unleash-creative-potential-tips-and-tricks-for-filming-with-logitech-cam-for-2024/"><u>[Updated] Unleash Creative Potential Tips and Tricks for Filming with Logitech Cam for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-become-an-efficient-time-warrior-with-these-15-task-packed-listening-habits/"><u>2024 Approved Become an Efficient Time Warrior with These 15 Task-Packed Listening Habits</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-lava-blaze-2-5g-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Lava Blaze 2 5G</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-infinix-hot-40i-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Infinix Hot 40i Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-lock-your-oneplus-12-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your OnePlus 12 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://fox-info.techidaily.com/merge-soundtracks-and-cinematography-in-premiere-pro-for-2024/"><u>Merge Soundtracks and Cinematography in Premiere Pro for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/most-popular-firefox-visual-recorders-for-2024/"><u>Most Popular Firefox Visual Recorders for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-famebit-pathways-to-secure-youtube-partnerships/"><u>Navigating FameBit Pathways to Secure YouTube Partnerships</u></a></li>
-<li><a href="https://facebook.techidaily.com/reviewing-friendships-a-facebook-guide/"><u>Reviewing Friendships: A Facebook Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-list-of-8-free-video-editing-programs-for-creatives/"><u>The Ultimate List of 8 FREE Video Editing Programs for Creatives</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/understanding-what-makes-asmr-videos-special/"><u>Understanding What Makes ASMR Videos Special</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/visualize-success-free-templates-to-elevate-your-youtube-presence/"><u>Visualize Success Free Templates to Elevate Your YouTube Presence</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-crafting-an-easy-to-use-youtube-subscription-tagline/"><u>[New] Crafting an Easy-to-Use YouTube Subscription Tagline</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-cutting-edge-tips-for-low-cost-youtube-sessions/"><u>[New] Cutting-Edge Tips for Low-Cost YouTube Sessions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ecure-extraction-of-audio-from-youtube-at-zero-cost/"><u>[New] Secure Extraction of Audio From YouTube at Zero Cost</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-mastering-the-art-of-youtube-music-reactions-essential-tips/"><u>2024 Approved Mastering the Art of YouTube Music Reactions - Essential Tips</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/5-astuces-simples-pour-reduire-et-organiser-le-folder-winsxs-sous-windows-10-and-7/"><u>5 Astuces Simples Pour Réduire Et Organiser Le Folder WinSxS Sous Windows 10 & 7</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/acceso-ahora-disponible-codificador-de-hardware-software-av1-listo-para-descarga/"><u>Acceso Ahora Disponible: Codificador De Hardware / Software AV1 Listo Para Descarga</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-oneplus-open-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove OnePlus Open Fingerprint Lock</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/buy-youtube-subscribers-hundreds-of-subscribers-for-5/"><u>Buy YouTube Subscribers - Hundreds of Subscribers for $5?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/descarga-gratis-mejor-editor-de-imagenes-para-mac-movavi-photo-editor/"><u>Descarga Gratis: Mejor Editor De Imágenes Para Mac - Movavi Photo Editor</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-vivo-y100i-power-5g-lock-screen-password-by-drfone-android/"><u>How to Reset your Vivo Y100i Power 5G Lock Screen Password</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/monetization-mastery-how-ajay-achieves-wealth-online/"><u>Monetization Mastery How AJay Achieves Wealth Online</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resolving-discord-installer-errors-on-windows-devices/"><u>Resolving Discord Installer Errors on Windows Devices</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/seamless-transfer-syncing-your-iphone-with-your-samsung-smart-television/"><u>Seamless Transfer: Syncing Your iPhone with Your Samsung Smart Television</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-checklist-for-yt-creator-mastery/"><u>The Essential Checklist for YT Creator Mastery</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ultimate-list-of-premium-youtube-news-networks/"><u>The Ultimate List of Premium YouTube News Networks</u></a></li>
 </ul></div>
 

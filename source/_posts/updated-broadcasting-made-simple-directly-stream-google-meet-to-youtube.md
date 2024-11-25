@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Broadcasting Made Simple  Directly Stream Google Meet to YouTube\""
-date: 2024-09-02T02:34:52.610Z
-updated: 2024-09-03T02:34:52.610Z
+date: 2024-11-19T16:22:57.883Z
+updated: 2024-11-24T19:10:03.624Z
 tags:
   - ai video
   - ai youtube
@@ -27,17 +27,10 @@ This article will address how to conduct **Google Meet live stream** through the
 * [How to Live Stream from Google Meet to YouTube](#part2)
 * [Bonus Tip: Easily Record your Google Meet Live Stream](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Part 1: Three Things to Check Before Starting Your Live
 
 Before increasing your audience from **Google Meet live stream on YouTube**, make sure to check the below prerequisites.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ### 1\. Available Google Workspace Edition
 
 For **Google Meet YouTube live**, there are some requirements. The reason is that not every ordinary user of Google Meet can go for YouTube live streaming. To do so, you should buy any of the following pricing plans:
@@ -74,9 +67,6 @@ Once you get approval for live streaming, you can connect the YouTube channel to
 
 Furthermore, you should use the same email address to enter the Google Meet that is connected to your YouTube account. By using the same email address, you can ensure smooth live streaming of Google Meet sessions to your YouTube channel. Also, you can only use laptops or desktops for initiating live streaming. The reason is that the **Google Meet live stream** on YouTube is not currently available on mobile devices.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## Part 2: How to Live Stream from Google Meet to YouTube
 
 Once you have fulfilled all the requirements, you can start a live stream from Google Meet to YouTube. Check the following steps to execute the process:
@@ -92,17 +82,15 @@ Step4 Now enter your Google Meet session and click on the “Activities” optio
 Step5 A small pop-up will appear that will tell you to remind your participants about live streaming. After reminding, click on the "Start" button. You can see the red "Live" button that will indicate to you the ongoing live-streaming session. Once you have concluded the live streaming by clicking on the "Stop Streaming" button, you can check the video analytics by visiting your YouTube channel.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus Tip: Easily Record your Google Meet Live Stream
 
 Do you want to save your **Google Meet live-stream session**? The best tool through which you can save your essential live-streaming sessions is [Wondershare Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/). By using this efficient screen recorder, you can access your saved live streaming session and revise the important points discussed in it.
 
 The screen recorder of Filmora is capable of capturing webcam and screen recording simultaneously. You can select a customized recording area through this tool. For example, you can choose a full screen, a specific window, or a customized area. Furthermore, this screen recording tool can also capture your microphone and system’s sounds in high quality. At the same time, as a powerful video editor, you can edit your videos with various advanced features of Filmora to bring them to the next level. Click the video below to learn more about Filmora's new features.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Steps to Record Live Streaming Using Filmora Screen Recorder
 
 Are you ready to capture your live-streaming session on Google Meet? Here are the simple and accurate steps to begin the process:
@@ -111,9 +99,6 @@ Are you ready to capture your live-streaming session on Google Meet? Here are th
 
 Download Wondershare Filmora and open its interface. Click the “Screen Recorder” option given on the main homepage. By doing so, a screen recorder window will open. Here, you can select screen recording modes such as full-screen, target window, or custom. Also, make sure to choose your system’s audio and microphone to proceed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ![select the screen recorder](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-3.jpg)
 
 ##### Step2 Adjust Settings and Start Recording
@@ -122,15 +107,16 @@ From Settings, you can also select the quality, frame rate, and color of mouse c
 
 ![adjust the screen recording settings](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3 End the Recording
 
 After the countdown, the screen recording will begin. To stop the recording, you can press the F9 button from your keyboard. After the recording ends, the file will be dropped into the media library of Filmora.
 
 ![screen recording completed](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Google Meet is a reliable environment to connect and collaborate with people. To increase your reach and target audience, you can conduct **Google Meet live streaming on YouTube**. This article has discussed a detailed way through which you can live stream your Google Meet session on your YouTube channel.
@@ -159,9 +145,6 @@ For **Google Meet YouTube live**, there are some requirements. The reason is tha
 | Workspace Individual Subscriber                        | Approx. $9.9/Month       |
 | Google One Subscribers with 2 TB or More Storage Space | Approx. $10/Month        |
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** To know the exact pricing plans of Google Workspace, you have to contact Google Support.
@@ -172,10 +155,11 @@ To conduct live streaming, you must receive approval from the YouTube channel. F
 
 Step1 Open your YouTube account and click on the "Profile" icon given at the top-right corner. After opening the Profile menu, click on the "YouTube Studio" option.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![choose the youtube studio option](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 A new window will be displayed on your screen. From the left panel, select "Content" among other options. Under the section called "Live," locate the "Get Started" option. Afterward, tap on the "Request" option and perform the verification steps for enabling live streaming. After 24 hours, you would get approval for live streaming on YouTube. Hence, you would be able to live stream Google Meet meetings through your YouTube channel.
 
@@ -229,9 +213,6 @@ After the countdown, the screen recording will begin. To stop the recording, you
 
 ![screen recording completed](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Google Meet is a reliable environment to connect and collaborate with people. To increase your reach and target audience, you can conduct **Google Meet live streaming on YouTube**. This article has discussed a detailed way through which you can live stream your Google Meet session on your YouTube channel.
@@ -272,117 +253,9 @@ Both TikTok and Shorts give both creators and viewers the chance to share short 
 
 ![compare youtube shorts with tiktok](https://images.wondershare.com/filmora/article-images/2021/shorts-tiktok-compare.png)
 
-#### In this article
-
-01 [Are YouTube Shorts and Tiktok the same thing?](#part1)
-
-02 [YouTube Shorts & TikTok: Which one Should You Choose for Personal Usage?](#part2)
-
-03 [How to make quality videos for the apps you choose?](#part3)
-
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-## Are YouTube Shorts and Tiktok the same thing?
-
-Shorts and TikTok are not the same in various ways. TikTok first emerged in the market way before Shorts. TikTok was initially known as musically; and later revamped fully as TikTok in 2016\. It immediately gained a massive audience worldwide. This is what brought about competition from other apps, trying to replicate TikTok. Apps like Instagram and Facebook added some functionality to their platform to no match. Finally, YouTube pulled it off in 2020, rolling its version of Short videos but in beta version. These two apps have adequate similarities and differences.
-
-They are both for short-form videos and allow creators to add music from audio libraries. You can also earn some good bucks with these two apps. However, they differ in some aspects. As Shorts can only be 15-seconds long, TikTok can go as long as three minutes. You can also view TikTok directly from its app while for Shorts, you need a separate app, YouTube.
-
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
-## YouTube Shorts & TikTok: Which one Should You Choose for Personal Usage?
-
-Let’s focus on the TikTok and Shorts video by perusing the similarities and differences deeply.
-
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### \- Similiarity
-
-Check out in which aspects TikTok and Shorts are similar to each other.
-
-##### 1) Monetization
-
-Both platforms provide creators with tools to earn money from their content. TikTok’s first move was to pay selected influencers about $500 for joining the app and creating content. Creators make money from TikTok by promoting products and services of their audience as well as launching their careers through the app. Likewise, brands also get to creators through the “TikTok Creator Marketplace” platform for promotions.
-
-You can also earn on YouTube Shorts from Google AdSense. This is an in-built video monetization that creators use for showing ads on their videos. Earnings will accumulate every month-end for withdrawal.
-
-##### 2) Analytics
-
-Both YouTube and Shorts offer analytics like adding comments, likes, shares, and many more. Likewise, you can view your videos on either desktop or mobile platforms. With both platforms, you get an endless number of videos to watch and discover by scrolling. Also, both apps focus on short videos to entertain viewers.
-
-##### 3) Subscribe directly to creators
-
-You can directly get in touch with both YouTube shorts and TikTok creators. This gives an open leeway to discover new creators to follow and subscribe to. All you need to do is go to the creators’ videos in both feeds and hit the “Follow” or “Subscribe” button. Henceforth, you’ll start seeing what they post and keep in touch with their signs of progress.
-
-##### 4) Privacy
-
-Both apps have taken consideration into privacy issues. They allow creators to set their videos to either private or public. By this, your audience will only view what is set as “Public”. You can deter this by setting your content to “Private” or choosing who can view your content. This is a good aspect to let only those who wish to view certain clips as per your wish.
-
-##### 5) Edit video
-
-There’s much that your video can portray. In both apps, you choose what to give to your audience. Both platforms enable you edit your video before posting. You can alter the speed by increasing or decreasing it for slow motion. Also, you can set timers to help with the filming process among other functionalities.
-
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### \- Difference
-
-##### 1) Instant messaging app
-
-Generally, YouTube is not a traditional social media platform. Even though YouTube Shorts allows users to create videos, it is not a platform that users can engage in communication via instant messaging app. On the other hand, TikTok lets you directly message other users as you share experiences. This makes TikTok a one-stop social media exchange point where you easily interact with your peers and get instant feedback. You can also create group chats and keep the fun going.
-
-##### 2) In dependability
-
-TikTok Shorts videos also differ from the concept of stand along and built-in features. TikTok is a standalone app that doesn’t depend on another app for its normal operations. Users can independently create content directly from the app. On the contrary, Shorts is a built-in app on YouTube and users have to access it via the YouTube platform. This may be a plus for YouTube but it could eventually turn away those who want to work independently from the app.
-
-##### 3) Interface
-
-With TikTok, users can add video captions from the bottom left of the screen. It also comprises a large library of editing precepts like filters, greenscreen effects, among others. YouTube Shorts, on the other hand, is rich in a library of music. Users can access popular songs and directly switch to YouTube for trending videos as well.
-
-### \- What More Should You Consider When Choosing - Your Personal Need
-
-Settling on YouTube Shorts and TikTok largely depends on your preferences. But being that TikTok has been in the limelight for a longer time, it has mastered users’ and creators’ preferences, bringing more to the table than YouTube Shorts.
-
-Both TikTok and Shorts have an immense user base. But being a standalone app, TikTok still has a chance of scaling the heights. Remember that Shorts is still in the “Beta” version and has not fully exploded even though it’s a built-in app on YouTube.
-
-TikTok stands a chance of being chosen by many users as it is an independent platform. Users can connect with friends through news feed content or messaging. When it comes to editing tools, the app’s extensive library lets you add presets to your taste. It constantly keeps creators at bay, rolling new filters and effects for the unique creation of content. Additionally, TikTok engages users via its “Q&A” feature where users can pose any hot questions to creators for answers. And beauty is that creators can respond to such comments with a video. More so, you can use the “Discovery” tab to view trending hashtags and sounds, which YouTube Shorts lack.
-
-With TikTok, users can add video captions from the bottom left of the screen. It also comprises a large library of editing precepts like filters, greenscreen effects, among others. YouTube Shorts, on the other hand, is rich in a library of music. Users can access popular songs and directly switch to YouTube for trending videos as well.
-
-## How to make quality videos for the apps you choose?
-
-Even though **TikTok and YouTube Shorts** both let you edit your videos, you can stile up your game with other editing apps like Filmora. This app will save your time and effort while giving you compelling video outcomes. Filmora comprises advanced features such as social import to let you import video clips and photos from social media platforms. Filmora is available on both Windows and Mac, widely accessible on a vast array of devices.
-
-* **Video effects:** Easily discover creative filters, transitions, and other motion elements.
-* **Split Screen:** This feature lets you uniquely create fun videos by multiplying or splitting the screen.
-* **Color match:** Apply color correction settings on various clips at once.
-* **Remove noise:** Filmora lets you remove background noise, giving you quality video output.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
-## Conclusion
-
-**Settling on Shorts or Tiktok will largely depend on your preferences and personal needs**. If you are looking for [short video promotion on YouTube Shorts and Tiktok](https://tools.techidaily.com/wondershare/filmora/download/), you may need to consider different things. Yes, Shorts has some upper hand over TikTok like the ability to edit your videos after being published, a dislike button, and a scheduling tool that lets you schedule when your video goes live. TikTok is still above the cut being that it has been here long before Shorts. More so, it offers advanced editing features for quality video output. Above all, it works independently, a feature that most users adore as compared to the encasing of Shorts within YouTube.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Social media platform is a solace to many users. You get entertained and also have a chance to share your videos with the world. Among the popular apps are TikTok and Shorts. TikTok got to the market earlier but has so far found a new competitor in the field. Shorts video has now fully emerged from YouTube and has almost the same playing ground. But it is still unclear whether **YouTube Shorts and TikTok** are comparable. While TikTok has over 2 billion downloads, YouTube, on the other hand, already has a massive audience for the tough tussle.
-
-Both TikTok and Shorts give both creators and viewers the chance to share short videos for entertainment and promotional purposes. However, they are different in various aspects. Both the apps have their disadvantages and advantages, depending on a user’s preference. Dive into the next section to discover whether TikTok’s impact is about to be threatened by YouTube Shorts.
-
-![compare youtube shorts with tiktok](https://images.wondershare.com/filmora/article-images/2021/shorts-tiktok-compare.png)
 
 #### In this article
 
@@ -398,16 +271,14 @@ Shorts and TikTok are not the same in various ways. TikTok first emerged in the 
 
 They are both for short-form videos and allow creators to add music from audio libraries. You can also earn some good bucks with these two apps. However, they differ in some aspects. As Shorts can only be 15-seconds long, TikTok can go as long as three minutes. You can also view TikTok directly from its app while for Shorts, you need a separate app, YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## YouTube Shorts & TikTok: Which one Should You Choose for Personal Usage?
 
 Let’s focus on the TikTok and Shorts video by perusing the similarities and differences deeply.
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### \- Similiarity
 
 Check out in which aspects TikTok and Shorts are similar to each other.
@@ -448,9 +319,6 @@ TikTok Shorts videos also differ from the concept of stand along and built-in fe
 
 With TikTok, users can add video captions from the bottom left of the screen. It also comprises a large library of editing precepts like filters, greenscreen effects, among others. YouTube Shorts, on the other hand, is rich in a library of music. Users can access popular songs and directly switch to YouTube for trending videos as well.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### \- What More Should You Consider When Choosing - Your Personal Need
 
 Settling on YouTube Shorts and TikTok largely depends on your preferences. But being that TikTok has been in the limelight for a longer time, it has mastered users’ and creators’ preferences, bringing more to the table than YouTube Shorts.
@@ -462,9 +330,9 @@ TikTok stands a chance of being chosen by many users as it is an independent pla
 With TikTok, users can add video captions from the bottom left of the screen. It also comprises a large library of editing precepts like filters, greenscreen effects, among others. YouTube Shorts, on the other hand, is rich in a library of music. Users can access popular songs and directly switch to YouTube for trending videos as well.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to make quality videos for the apps you choose?
 
 Even though **TikTok and YouTube Shorts** both let you edit your videos, you can stile up your game with other editing apps like Filmora. This app will save your time and effort while giving you compelling video outcomes. Filmora comprises advanced features such as social import to let you import video clips and photos from social media platforms. Filmora is available on both Windows and Mac, widely accessible on a vast array of devices.
@@ -508,17 +376,10 @@ Shorts and TikTok are not the same in various ways. TikTok first emerged in the 
 
 They are both for short-form videos and allow creators to add music from audio libraries. You can also earn some good bucks with these two apps. However, they differ in some aspects. As Shorts can only be 15-seconds long, TikTok can go as long as three minutes. You can also view TikTok directly from its app while for Shorts, you need a separate app, YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## YouTube Shorts & TikTok: Which one Should You Choose for Personal Usage?
 
 Let’s focus on the TikTok and Shorts video by perusing the similarities and differences deeply.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ### \- Similiarity
 
 Check out in which aspects TikTok and Shorts are similar to each other.
@@ -559,9 +420,6 @@ TikTok Shorts videos also differ from the concept of stand along and built-in fe
 
 With TikTok, users can add video captions from the bottom left of the screen. It also comprises a large library of editing precepts like filters, greenscreen effects, among others. YouTube Shorts, on the other hand, is rich in a library of music. Users can access popular songs and directly switch to YouTube for trending videos as well.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### \- What More Should You Consider When Choosing - Your Personal Need
 
 Settling on YouTube Shorts and TikTok largely depends on your preferences. But being that TikTok has been in the limelight for a longer time, it has mastered users’ and creators’ preferences, bringing more to the table than YouTube Shorts.
@@ -589,6 +447,10 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 **Settling on Shorts or Tiktok will largely depend on your preferences and personal needs**. If you are looking for [short video promotion on YouTube Shorts and Tiktok](https://tools.techidaily.com/wondershare/filmora/download/), you may need to consider different things. Yes, Shorts has some upper hand over TikTok like the ability to edit your videos after being published, a dislike button, and a scheduling tool that lets you schedule when your video goes live. TikTok is still above the cut being that it has been here long before Shorts. More so, it offers advanced editing features for quality video output. Above all, it works independently, a feature that most users adore as compared to the encasing of Shorts within YouTube.
@@ -599,14 +461,6 @@ Social media platform is a solace to many users. You get entertained and also ha
 
 Both TikTok and Shorts give both creators and viewers the chance to share short videos for entertainment and promotional purposes. However, they are different in various aspects. Both the apps have their disadvantages and advantages, depending on a user’s preference. Dive into the next section to discover whether TikTok’s impact is about to be threatened by YouTube Shorts.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![compare youtube shorts with tiktok](https://images.wondershare.com/filmora/article-images/2021/shorts-tiktok-compare.png)
 
 #### In this article
@@ -617,25 +471,16 @@ Both TikTok and Shorts give both creators and viewers the chance to share short 
 
 03 [How to make quality videos for the apps you choose?](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Are YouTube Shorts and Tiktok the same thing?
 
 Shorts and TikTok are not the same in various ways. TikTok first emerged in the market way before Shorts. TikTok was initially known as musically; and later revamped fully as TikTok in 2016\. It immediately gained a massive audience worldwide. This is what brought about competition from other apps, trying to replicate TikTok. Apps like Instagram and Facebook added some functionality to their platform to no match. Finally, YouTube pulled it off in 2020, rolling its version of Short videos but in beta version. These two apps have adequate similarities and differences.
 
 They are both for short-form videos and allow creators to add music from audio libraries. You can also earn some good bucks with these two apps. However, they differ in some aspects. As Shorts can only be 15-seconds long, TikTok can go as long as three minutes. You can also view TikTok directly from its app while for Shorts, you need a separate app, YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## YouTube Shorts & TikTok: Which one Should You Choose for Personal Usage?
 
 Let’s focus on the TikTok and Shorts video by perusing the similarities and differences deeply.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### \- Similiarity
 
 Check out in which aspects TikTok and Shorts are similar to each other.
@@ -662,9 +507,6 @@ Both apps have taken consideration into privacy issues. They allow creators to s
 
 There’s much that your video can portray. In both apps, you choose what to give to your audience. Both platforms enable you edit your video before posting. You can alter the speed by increasing or decreasing it for slow motion. Also, you can set timers to help with the filming process among other functionalities.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### \- Difference
 
 ##### 1) Instant messaging app
@@ -679,9 +521,115 @@ TikTok Shorts videos also differ from the concept of stand along and built-in fe
 
 With TikTok, users can add video captions from the bottom left of the screen. It also comprises a large library of editing precepts like filters, greenscreen effects, among others. YouTube Shorts, on the other hand, is rich in a library of music. Users can access popular songs and directly switch to YouTube for trending videos as well.
 
+### \- What More Should You Consider When Choosing - Your Personal Need
+
+Settling on YouTube Shorts and TikTok largely depends on your preferences. But being that TikTok has been in the limelight for a longer time, it has mastered users’ and creators’ preferences, bringing more to the table than YouTube Shorts.
+
+Both TikTok and Shorts have an immense user base. But being a standalone app, TikTok still has a chance of scaling the heights. Remember that Shorts is still in the “Beta” version and has not fully exploded even though it’s a built-in app on YouTube.
+
+TikTok stands a chance of being chosen by many users as it is an independent platform. Users can connect with friends through news feed content or messaging. When it comes to editing tools, the app’s extensive library lets you add presets to your taste. It constantly keeps creators at bay, rolling new filters and effects for the unique creation of content. Additionally, TikTok engages users via its “Q&A” feature where users can pose any hot questions to creators for answers. And beauty is that creators can respond to such comments with a video. More so, you can use the “Discovery” tab to view trending hashtags and sounds, which YouTube Shorts lack.
+
+With TikTok, users can add video captions from the bottom left of the screen. It also comprises a large library of editing precepts like filters, greenscreen effects, among others. YouTube Shorts, on the other hand, is rich in a library of music. Users can access popular songs and directly switch to YouTube for trending videos as well.
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## How to make quality videos for the apps you choose?
+
+Even though **TikTok and YouTube Shorts** both let you edit your videos, you can stile up your game with other editing apps like Filmora. This app will save your time and effort while giving you compelling video outcomes. Filmora comprises advanced features such as social import to let you import video clips and photos from social media platforms. Filmora is available on both Windows and Mac, widely accessible on a vast array of devices.
+
+* **Video effects:** Easily discover creative filters, transitions, and other motion elements.
+* **Split Screen:** This feature lets you uniquely create fun videos by multiplying or splitting the screen.
+* **Color match:** Apply color correction settings on various clips at once.
+* **Remove noise:** Filmora lets you remove background noise, giving you quality video output.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Conclusion
+
+**Settling on Shorts or Tiktok will largely depend on your preferences and personal needs**. If you are looking for [short video promotion on YouTube Shorts and Tiktok](https://tools.techidaily.com/wondershare/filmora/download/), you may need to consider different things. Yes, Shorts has some upper hand over TikTok like the ability to edit your videos after being published, a dislike button, and a scheduling tool that lets you schedule when your video goes live. TikTok is still above the cut being that it has been here long before Shorts. More so, it offers advanced editing features for quality video output. Above all, it works independently, a feature that most users adore as compared to the encasing of Shorts within YouTube.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Social media platform is a solace to many users. You get entertained and also have a chance to share your videos with the world. Among the popular apps are TikTok and Shorts. TikTok got to the market earlier but has so far found a new competitor in the field. Shorts video has now fully emerged from YouTube and has almost the same playing ground. But it is still unclear whether **YouTube Shorts and TikTok** are comparable. While TikTok has over 2 billion downloads, YouTube, on the other hand, already has a massive audience for the tough tussle.
+
+Both TikTok and Shorts give both creators and viewers the chance to share short videos for entertainment and promotional purposes. However, they are different in various aspects. Both the apps have their disadvantages and advantages, depending on a user’s preference. Dive into the next section to discover whether TikTok’s impact is about to be threatened by YouTube Shorts.
+
+![compare youtube shorts with tiktok](https://images.wondershare.com/filmora/article-images/2021/shorts-tiktok-compare.png)
+
+#### In this article
+
+01 [Are YouTube Shorts and Tiktok the same thing?](#part1)
+
+02 [YouTube Shorts & TikTok: Which one Should You Choose for Personal Usage?](#part2)
+
+03 [How to make quality videos for the apps you choose?](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Are YouTube Shorts and Tiktok the same thing?
+
+Shorts and TikTok are not the same in various ways. TikTok first emerged in the market way before Shorts. TikTok was initially known as musically; and later revamped fully as TikTok in 2016\. It immediately gained a massive audience worldwide. This is what brought about competition from other apps, trying to replicate TikTok. Apps like Instagram and Facebook added some functionality to their platform to no match. Finally, YouTube pulled it off in 2020, rolling its version of Short videos but in beta version. These two apps have adequate similarities and differences.
+
+They are both for short-form videos and allow creators to add music from audio libraries. You can also earn some good bucks with these two apps. However, they differ in some aspects. As Shorts can only be 15-seconds long, TikTok can go as long as three minutes. You can also view TikTok directly from its app while for Shorts, you need a separate app, YouTube.
+
+## YouTube Shorts & TikTok: Which one Should You Choose for Personal Usage?
+
+Let’s focus on the TikTok and Shorts video by perusing the similarities and differences deeply.
+
+### \- Similiarity
+
+Check out in which aspects TikTok and Shorts are similar to each other.
+
+##### 1) Monetization
+
+Both platforms provide creators with tools to earn money from their content. TikTok’s first move was to pay selected influencers about $500 for joining the app and creating content. Creators make money from TikTok by promoting products and services of their audience as well as launching their careers through the app. Likewise, brands also get to creators through the “TikTok Creator Marketplace” platform for promotions.
+
+You can also earn on YouTube Shorts from Google AdSense. This is an in-built video monetization that creators use for showing ads on their videos. Earnings will accumulate every month-end for withdrawal.
+
+##### 2) Analytics
+
+Both YouTube and Shorts offer analytics like adding comments, likes, shares, and many more. Likewise, you can view your videos on either desktop or mobile platforms. With both platforms, you get an endless number of videos to watch and discover by scrolling. Also, both apps focus on short videos to entertain viewers.
+
+##### 3) Subscribe directly to creators
+
+You can directly get in touch with both YouTube shorts and TikTok creators. This gives an open leeway to discover new creators to follow and subscribe to. All you need to do is go to the creators’ videos in both feeds and hit the “Follow” or “Subscribe” button. Henceforth, you’ll start seeing what they post and keep in touch with their signs of progress.
+
+##### 4) Privacy
+
+Both apps have taken consideration into privacy issues. They allow creators to set their videos to either private or public. By this, your audience will only view what is set as “Public”. You can deter this by setting your content to “Private” or choosing who can view your content. This is a good aspect to let only those who wish to view certain clips as per your wish.
+
+##### 5) Edit video
+
+There’s much that your video can portray. In both apps, you choose what to give to your audience. Both platforms enable you edit your video before posting. You can alter the speed by increasing or decreasing it for slow motion. Also, you can set timers to help with the filming process among other functionalities.
+
+### \- Difference
+
+##### 1) Instant messaging app
+
+Generally, YouTube is not a traditional social media platform. Even though YouTube Shorts allows users to create videos, it is not a platform that users can engage in communication via instant messaging app. On the other hand, TikTok lets you directly message other users as you share experiences. This makes TikTok a one-stop social media exchange point where you easily interact with your peers and get instant feedback. You can also create group chats and keep the fun going.
+
+##### 2) In dependability
+
+TikTok Shorts videos also differ from the concept of stand along and built-in features. TikTok is a standalone app that doesn’t depend on another app for its normal operations. Users can independently create content directly from the app. On the contrary, Shorts is a built-in app on YouTube and users have to access it via the YouTube platform. This may be a plus for YouTube but it could eventually turn away those who want to work independently from the app.
+
+##### 3) Interface
+
+With TikTok, users can add video captions from the bottom left of the screen. It also comprises a large library of editing precepts like filters, greenscreen effects, among others. YouTube Shorts, on the other hand, is rich in a library of music. Users can access popular songs and directly switch to YouTube for trending videos as well.
+
 ### \- What More Should You Consider When Choosing - Your Personal Need
 
 Settling on YouTube Shorts and TikTok largely depends on your preferences. But being that TikTok has been in the limelight for a longer time, it has mastered users’ and creators’ preferences, bringing more to the table than YouTube Shorts.
@@ -726,9 +674,22 @@ For macOS 10.12 or later
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-6-hidden-sources-for-custom-youtube-symbols/"><u>[New] Unlocking 6 Hidden Sources for Custom YouTube Symbols</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-navigating-social-media-preferences-tiktok-versus-youtube-shorts/"><u>[Updated] In 2024, Navigating Social Media Preferences TikTok Versus YouTube Shorts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-driving-engagement-and-growth-the-role-of-brand-in-youtube-success/"><u>2024 Approved Driving Engagement and Growth The Role of Brand in YouTube Success</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-time-travelers-guide-to-youtube-queue-watch-from-end-to-start-for-2024/"><u>A Time Traveler’s Guide to YouTube Queue Watch From End to Start for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/add-a-professional-touch-youtube-video-image-crafting-for-2024/"><u>Add a Professional Touch YouTube Video Image Crafting for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/broadcast-preservation-in-the-age-of-web-radio/"><u>Broadcast Preservation in the Age of Web Radio</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/business-mastery-through-youtubes-top-ten-channels/"><u>Business Mastery Through YouTube's Top Ten Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-shareable-moments-a-guide-to-enhanced-viewership-in-15-second-videos/"><u>Crafting Shareable Moments A Guide to Enhanced Viewership in 15-Second Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/earning-strategies-for-successful-youtube-shorts-what-you-need-and-how-much-for-2024/"><u>Earning Strategies for Successful Youtube Shorts What You Need & How Much for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevated-engagement-awards-on-video-realms/"><u>Elevated Engagement Awards on Video Realms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartstrings-and-heritage-love-filled-french-films/"><u>Heartstrings and Héritage: Love-Filled French Films</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-prevent-titanfall-2-game-crashes-in-just-a-few-steps/"><u>How to Prevent Titanfall 2 Game Crashes in Just a Few Steps</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-a15-5g-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Samsung Galaxy A15 5G</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/intel-wi-fi-6e-ax200-drivers-download-and-update-compatible-with-windows-1110-systems/"><u>Intel Wi-Fi 6E AX200 Drivers Download & Update: Compatible with Windows 11/10 Systems</u></a></li>
+<li><a href="https://fox-links.techidaily.com/leveraging-tools-to-extract-mp3s-from-popular-video-platforms-like-pinterest-for-2024/"><u>Leveraging Tools to Extract MP3s From Popular Video Platforms Like Pinterest for 2024</u></a></li>
+</ul></div>
 

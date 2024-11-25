@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Efficient Tools  Simplifying the Task of Feedback Erasure\""
-date: 2024-11-01T23:39:20.894Z
-updated: 2024-11-05T01:54:00.853Z
+date: 2024-11-18T21:07:47.364Z
+updated: 2024-11-24T18:06:35.915Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,7 @@ In this section, we will tell you how you can do it from your desktop.
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
@@ -77,10 +74,7 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
@@ -117,6 +111,10 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -125,13 +123,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
@@ -144,10 +135,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Thoughts
@@ -155,6 +143,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -171,19 +163,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/rom-clicks-to-cash-elevating-exposure-economics/"><u>[New] From Clicks to Cash Elevating Exposure Economics</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-chilling-yet-heating-top-5-winter-scenes-for-vids/"><u>[Updated] Chilling Yet Heating Top 5 Winter Scenes for Vids</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-collect-premium-audio-for-video-editors/"><u>[Updated] Collect Premium Audio for Video Editors</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-creating-compelling-channel-names-simplified/"><u>[Updated] Creating Compelling Channel Names Simplified</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/avoid-these-6-inferior-chatgpt-extensions-for-a-better-experience/"><u>Avoid These 6 Inferior ChatGPT Extensions for a Better Experience</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/demystifying-nlp-mastery-comparing-gpt-and-bert-systems/"><u>Demystifying NLP Mastery: Comparing GPT and BERT Systems</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/exclusive-testing-results-the-premier-lineup-of-tablets-detailed-reviewed-insights/"><u>Exclusive Testing Results: The Premier Lineup of Tablets Detailed Reviewed Insights</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-oneplus-nord-ce-3-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on OnePlus Nord CE 3 5G online without jailbreak</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-itel-a60s-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Itel A60s Device</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/restarting-non-working-outlook-automated-filters-in-windows/"><u>Restarting Non-Working Outlook Automated Filters in Windows</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/strategies-for-success-in-online-content-creation/"><u>Strategies for Success in Online Content Creation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unleash-your-live-stream-potential-with-superior-webcam-tech/"><u>Unleash Your Live Stream Potential with Superior Webcam Tech</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-shorts-music-things-you-need-to-know/"><u>YouTube Shorts Music - Things You Need to Know</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dive-into-the-world-of-enhanced-youtube-content-with-premium-subscription/"><u>[New] Dive Into the World of Enhanced YouTube Content with Premium Subscription</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-laughter-lines-timely-meme-trends-to-share/"><u>[New] Laughter Lines Timely Meme Trends to Share</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-5-pro-tips-to-perfectly-tag-videos-and-maximize-views/"><u>[Updated] 5 Pro Tips to Perfectly Tag Videos and Maximize Views</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-carryminatis-income-evolution-with-ajey-nagar/"><u>[Updated] CarryMinati's Income Evolution with Ajey Nagar</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-decoding-youtube-income-how-much-does-each-1000-viewer-earn/"><u>[Updated] Decoding YouTube Income How Much Does Each 1,000 Viewer Earn?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-x-spectrum-visual-recorder-pc-for-2024/"><u>[Updated] X-Spectrum Visual Recorder, PC for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-charting-success-with-youtube-income-streams/"><u>2024 Approved Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://blog-min.techidaily.com/movmp4-mac-windows-10/"><u>免費MOV到MP4切換程式：適用於 Mac 和 Windows 10系統使用者</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/audiovisual-excellence-youtube-videos-in-premiere-pro/"><u>Audiovisual Excellence YouTube Videos in Premiere Pro</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/demystifying-youtubes-video-editing-power/"><u>Demystifying YouTube's Video Editing Power</u></a></li>
+<li><a href="https://extra-information.techidaily.com/easy-steps-to-activatedisable-video-multitasking-on-devices/"><u>Easy Steps to Activate/Disable Video Multitasking on Devices</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-honor-x50iplus-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Honor X50i+ Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-clearer-eliminate-backgrounds-effectively/"><u>In 2024, Ultimate Clearer Eliminate Backgrounds Effectively</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-drivers-for-logitech-gaming-steering-wheel-compatible-with-modern-windows-os-versions/"><u>Latest Drivers for Logitech Gaming Steering Wheel - Compatible with Modern Windows OS Versions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/samsungs-2/"><u>Samsung's 2</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/supercharge-your-productivity-with-chatgpt-integration-into-onlyfreeceonline-document-management/"><u>Supercharge Your Productivity with ChatGPT Integration Into ONLYFREECEONLINE Document Management</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-30-pro-freefire-hashtags-for-boosting-video-popularity/"><u>Top 30 Pro-FreeFire Hashtags for Boosting Video Popularity</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/what-is-virtual-reality-and-how-does-it-work-in-2024/"><u>What Is Virtual Reality and How Does It Work, In 2024</u></a></li>
 </ul></div>
 

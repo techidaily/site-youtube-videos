@@ -1,7 +1,7 @@
 ---
 title: "Top 10 Funny YouTube Shorts Video Ideas"
-date: 2024-11-13T16:29:04.328Z
-updated: 2024-11-15T01:53:57.292Z
+date: 2024-11-21T18:47:38.196Z
+updated: 2024-11-24T23:17:09.825Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ Yeah! The first idea looks so catchy. Everyone holds some dreams. And if you hav
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Also, you can discuss different sorts of dreams that the human genre has been dreaming of for years. You can even add a flavor of future dreams that will open up the space of excellent speculation one can think of.
 
 #### Idea 2: Story Timeline Series
@@ -49,6 +53,10 @@ Also, you can discuss different sorts of dreams that the human genre has been dr
 Who doesn’t love the stories? Everyone is somewhat fond of listening to different kinds of stories. And, if you can trim those long stories into small ones or can create some short stories. Then, you can make the best YouTube Shorts stories ideas that will go a long way, not only kids but unique and exciting stories loved by all.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
 
@@ -65,6 +73,10 @@ Using different online software, you can enhance the pictures or modify the back
 Life is indeed full of surprises, events, and glory. Then, why not tailor some of its moments under best YouTube Shorts ideas. These experiences vary from your home, neighbor, society, college, office, or anywhere.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You need to keep your judging eyes open to catch all the moments, and you can also note it down to make a series so as not to miss any exciting experience.
 
@@ -100,6 +112,10 @@ Kids love cartoons, but the hidden fact is that everyone enjoys watching cartoon
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Mixing some comedy flavor to life will add more fun and enjoyment to all those seeking funny moments to reflect their days. Come on; show up your humor with this unique style.
 
 #### Idea 9: Funny act with pets
@@ -107,6 +123,10 @@ Mixing some comedy flavor to life will add more fun and enjoyment to all those s
 Pets are the favorite of those who own them. They are excellent; they play, dance, and do different kinds of fun activities. Have you ever noticed that, if not, they must take notice now?
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You will be surprised to see how much fun-loving these cute pets are—so, geared up to capture the funny acts of pets through YouTube Shorts ideas. It will bring a smile to everyone’s face.
 
@@ -119,13 +139,6 @@ Everybody holds some unique talent. You just need to identify it. If you have so
 Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Choose the one that fits you and start creating YouTube Shorts Channel with these ideas.
 
 Wait, there is much more than these best YouTube Shorts ideas. Yes, you heard that right! The following paragraph will lead you to get some important tips, with the help of which you can raise YouTube Short Videos views. So, without waiting anymore, move on to the next paragraph to get a glimpse of it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Tips to Get More Views for Your YouTube Shorts Videos
 
@@ -173,13 +186,6 @@ Thus, start utilizing these powerful ideas and tips and head towards your YouTub
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -195,20 +201,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-a-comprehensive-walkthrough-for-embedding-youtube-plays-in-web-design/"><u>[New] A Comprehensive Walkthrough for Embedding YouTube Plays in Web Design</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-creating-content-with-purpose-balancing-job-and-youtube/"><u>[New] Creating Content with Purpose Balancing Job & YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-creating-stunning-youtube-openings-best-tools-list/"><u>[New] Creating Stunning YouTube Openings - Best Tools List</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-formulating-impressive-online-media-introductions-for-2024/"><u>[New] Formulating Impressive Online Media Introductions for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-epic-historical-combat-showdowns-the-top-7-games/"><u>[New] In 2024, Epic Historical Combat Showdowns – The Top 7 Games</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-giggle-grove-memetic-magic-for-all-ages/"><u>[New] In 2024, Giggle Grove Memetic Magic for All Ages</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-diy-movie-making-on-youtube-and-comparable-creative-tools/"><u>[Updated] In 2024, DIY Movie Making on YouTube & Comparable Creative Tools</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-metaverse-inspiration-enhanced-by-ar-and-vr-for-2024/"><u>[Updated] Metaverse Inspiration Enhanced by AR & VR for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/p-editing-apps-at-no-cost-online-for-2024/"><u>10 Top Editing Apps at No Cost Online for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-compreehensive-guide-to-youtube-thumbnail-creation-mac/"><u>2024 Approved A Compreehensive Guide to YouTube Thumbnail Creation (Mac)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-youtube-tagging-strategies-for-optimal-visibility/"><u>Essential YouTube Tagging Strategies for Optimal Visibility</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/framing-the-perfect-waterway-narrative/"><u>Framing the Perfect Waterway Narrative</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2527799-9780811740722-haunted-new-york/"><u>Haunted New York | Free Book</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/leveraging-the-power-of-windows-11s-auto-hdr-enhancement-for-2024/"><u>Leveraging the Power of Windows 11'S Auto HDR Enhancement for 2024</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/maximizing-profits-with-ai-the-case-for-smart-scanning-technologies-in-modern-business-insights-from-the-abbyy-experts/"><u>Maximizing Profits with AI: The Case for Smart Scanning Technologies in Modern Business - Insights From the ABBYY Experts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-amp-up-your-ig-videos-crafting-winning-marketing-tactics/"><u>[New] In 2024, Amp Up Your IG Videos Crafting Winning Marketing Tactics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-becoming-a-savvy-vr-tour-connoisseur/"><u>[New] In 2024, Becoming a Savvy VR Tour Connoisseur</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-viral-spotlight-top-10-tiktoks-of-the-week/"><u>[New] In 2024, Twitter's Viral Spotlight Top 10 TikToks of the Week</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-ae-text-configurations-from-basics-to-brilliance/"><u>[New] Top AE Text Configurations From Basics to Brilliance</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-displayinspector-critique-service/"><u>[Updated] DisplayInspector Critique Service</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-ghostly-horizons-video-tech-update/"><u>[Updated] Ghostly Horizons Video Tech Update</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-content-reach-keeping-creative-commons-engagement-high/"><u>2024 Approved Enhancing Content Reach Keeping Creative Commons Engagement High</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-identifying-tech-giants-iphone-x-and-samsungs-face-recognition/"><u>2024 Approved Identifying Tech Giants IPhone X & Samsung's Face Recognition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effortless-resolution-of-macs-green-screen-problem-for-youtubers-for-2024/"><u>Effortless Resolution of Mac's Green Screen Problem for YouTubers for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/expert-advice-overcoming-heartstone-crashing-problem-on-desktop-computers/"><u>Expert Advice: Overcoming HeartStone Crashing Problem on Desktop Computers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-achieving-affiliate-success-with-online-videos/"><u>In 2024, Achieving Affiliate Success with Online Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-samsung-galaxy-s23-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Samsung Galaxy S23 Lock Screen Password</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/quick-response-guide-adding-youtubes-closed-captions-and-subtitles/"><u>Quick-Response Guide Adding YouTube's Closed Captions and Subtitles</u></a></li>
 </ul></div>
 

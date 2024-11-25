@@ -1,7 +1,7 @@
 ---
 title: "What’s in It for a Million YouTube Viewers?"
-date: 2024-11-13T11:39:10.278Z
-updated: 2024-11-15T00:38:24.404Z
+date: 2024-11-18T16:04:06.697Z
+updated: 2024-11-24T21:21:14.546Z
 tags:
   - ai video
   - ai youtube
@@ -57,10 +57,7 @@ The AdSense revenue that you earn through YouTube will vary depending on a large
 ## Understanding CPM and CPCs
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What is CPM?
@@ -98,16 +95,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 ![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 02 [How is the revenue calculated?](#part2)
@@ -138,13 +126,6 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Understanding CPM and CPCs
 
 ### What is CPM?
@@ -155,9 +136,17 @@ Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking o
 
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Changes on YouTube and How You Can Earn More
 
@@ -187,13 +176,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 04 [How monetization is changing](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## $2000 for 1 Million Views
 
 In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
@@ -218,13 +200,6 @@ The AdSense revenue that you earn through YouTube will vary depending on a large
 
 ## Understanding CPM and CPCs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What is CPM?
 
 CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
@@ -232,6 +207,10 @@ CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
 Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
 
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What is CPC?
 
@@ -297,9 +276,17 @@ Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking o
 
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Changes on YouTube and How You Can Earn More
 
@@ -344,10 +331,7 @@ If yes, please read this article furtherly. We'll provide you with a list of the
 Without any delay, let's hit the road directly!
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best 30 FreeFire Hashtags In 2024
@@ -387,13 +371,6 @@ To make things easier and help you get started, we've compiled a list of the 30 
 
 ![garena freefire](https://images.wondershare.com/filmora/article-images/2023/03/garena-freefire.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How To Optimize your YouTube Tags To Win More Views
 
 Tags are one of the most important aspects of YouTube videos, yet creators often need to pay more attention to them. This is because YouTube uses them to categorize and organize videos and play a significant role in determining which videos are shown to which viewers.
@@ -405,10 +382,7 @@ Your gameplay footage will likely do most of the heavy lifting in terms of getti
 Give them a shot and see if they can help you take your gaming channel on YouTube to the next level. To learn more about YouTube tags and the tips and tricks for adding them to your videos, [click here!](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: Improve Your Gaming Recording Video With Filmora
@@ -422,6 +396,10 @@ Here are some advanced features of Wonderdahre Filmora that can help you improve
 [**Screen Recorder**](https://tools.techidaily.com/wondershare/filmora/download/)**:** With its screen recorder, you can simultaneously **record your gaming** screen and webcam. Additionally, you can show the mouse while recording and set the Frame Rate, Quality, and Record Timer.
 
 ![wondershare filmora screen recorder](https://images.wondershare.com/filmora/guide/recording-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [**Audio Ducking**](https://tools.techidaily.com/wondershare/filmora/download/)**:** Audio ducking lets you automatically lower the volume of background noise in your gaming videos when someone is speaking and is a great way to ensure that your audio is always clear and easy to understand.
 
@@ -474,24 +452,14 @@ Hopefully, this article helped resolve your query, and you can now use the right
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/treamline-your-youtube-experience-shareable-playlists/"><u>[New] Streamline Your YouTube Experience Shareable Playlists</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unifying-your-musical-journey-converting-spotify-plays-into-youtube-music-lists/"><u>[New] Unifying Your Musical Journey Converting Spotify Plays Into YouTube Music Lists</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-boosting-narrative-pace-in-vlogging-through-jump-cuts/"><u>[Updated] Boosting Narrative Pace in Vlogging Through Jump Cuts</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-complete-beginners-manual-to-using-final-cut-pro/"><u>[Updated] The Complete Beginner's Manual to Using Final Cut Pro</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-undead-uprising-your-essential-compilation-of-zombie-gaming-for-2024/"><u>[Updated] Undead Uprising Your Essential Compilation of Zombie Gaming for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-10-best-hd-android-video-player-apps-you-should-know/"><u>2024 Approved 10 Best Hd Android Video Player Apps You Should Know</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-identity-made-simple-with-these-top-11-zero-cost-tools/"><u>Channel Identity Made Simple with These Top 11 Zero-Cost Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-your-youtube-legacy-a-deep-dive-into-creator-studio-mastery/"><u>Crafting Your YouTube Legacy A Deep Dive Into Creator Studio Mastery</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/easy-paths-to-profitable-youtube-business-channels-top-10-list/"><u>Easy Paths to Profitable YouTube Business Channels, Top 10 List</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/eco-friendly-creations-crafting-quality-3d-print-filaments-from-used-plastic-utensils/"><u>Eco-Friendly Creations: Crafting Quality 3D Print Filaments From Used Plastic Utensils</u></a></li>
-<li><a href="https://windows11.techidaily.com/guiding-users-through-printer-access-errors/"><u>Guiding Users Through Printer Access Errors</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-xiaomi-redmi-note-12r-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Xiaomi Redmi Note 12R Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-charting-innovative-territory-with-youtubers-best-ad-work/"><u>In 2024, Charting Innovative Territory with Youtubers’ Best Ad Work</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-comprehensive-codes-of-conduct-for-the-yt-community/"><u>In 2024, Comprehensive Codes of Conduct for the Yt Community</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mcb-video-graphics-pack-for-youtube-channels/"><u>MCB Video Graphics Pack for YouTube Channels</u></a></li>
-<li><a href="https://win11.techidaily.com/swift-solution-to-fixing-windows-error-0xc00000f/"><u>Swift Solution to Fixing Windows Error 0Xc00000f</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/twice-the-joy-twice-the-fun-televised-repetition-made-easy/"><u>Twice the Joy, Twice the Fun Televised Repetition Made Easy</u></a></li>
-<li><a href="https://games-able.techidaily.com/unlock-multiplayer-access-via-ps5/"><u>Unlock Multiplayer Access via PS5</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-earnings-per-thousand-views-explained/"><u>YouTube Earnings Per Thousand Views Explained</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/vobmp4-easily-convert-vob-files-to-mp4-for-free-in-real-time/"><u>「無料で簡単! VOBファイルをMP4にリアルタイム変換」 - Easily Convert VOB Files to MP4 for Free in Real Time</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mp4wav-movavi/"><u>免費在線MP4到WAV格式的轉換 - Movavi自動化工具</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/freemake-video-downloader/"><u>Freemake Video Downloader使用時に落ちるときの解決策</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/real-time-conversion-of-online-streaming-content-into-gifs/"><u>Real-Time Conversion of Online Streaming Content Into GIFs</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/step-by-step-strategies-to-repair-the-msedgenet-application-setback-in-windows/"><u>Step-by-Step Strategies to Repair the MSEdge.NET Application Setback in Windows</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-video-potential-the-best-10-flv-to-youtube-tools-at-a-glance/"><u>Unlock Video Potential The Best 10 Flv to YouTube Tools at a Glance</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-youtube-success-subscriber-boosts-at-a-bargain/"><u>Unlock YouTube Success - Subscriber Boosts at a Bargain</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlocking-network-troubleshooting-power-with-windows-telnet/"><u>Unlocking Network Troubleshooting Power with Windows Telnet</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtubes-monetization-metrics-for-a-million-viewers/"><u>Youtube's Monetization Metrics for A Million Viewers</u></a></li>
 </ul></div>
 

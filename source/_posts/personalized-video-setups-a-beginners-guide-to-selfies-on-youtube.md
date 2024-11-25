@@ -1,7 +1,7 @@
 ---
 title: "\"Personalized Video Setups  A Beginner's Guide to Selfies on YouTube\""
-date: 2024-11-13T06:02:58.282Z
-updated: 2024-11-15T12:32:21.307Z
+date: 2024-11-17T22:55:41.002Z
+updated: 2024-11-24T16:51:28.569Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,19 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -52,13 +64,6 @@ In the video above, Sean Cannell demonstrates this set-up. As you can see from t
 Objects and people that just make it into the sides of the frame will appear more stretched out as the wide-angle causes distortion and enhances perspectives.
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
 
@@ -75,10 +80,7 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -105,27 +107,17 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -142,22 +134,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-auto-subscribe-url-creation-for-youtube-enthusiasts/"><u>[New] Auto Subscribe URL Creation for YouTube Enthusiasts</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-professional-insights-enhancing-digital-videos-and-photos-online/"><u>[New] Professional Insights Enhancing Digital Videos & Photos Online</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-enhance-your-shorts-fresh-and-original-thumbnails-with-minimal-effort/"><u>[Updated] Enhance Your Shorts Fresh and Original Thumbnails with Minimal Effort</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-direct-to-mp3-ease-select-10-video-to-audio-devices/"><u>2024 Approved Direct to Mp3 Ease Select 10 Video-to-Audio Devices</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/best-focus-effects-iphone-vs-android-photo-solutions/"><u>Best Focus Effects IPhone vs Android Photo Solutions</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/best-video-on-demand-options-of-2024-the-ultimate-selection-list/"><u>Best Video on Demand Options of 2024: The Ultimate Selection List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-bank-balance-effective-tactics-for-mobile-video-money-making-for-2024/"><u>Boosting Bank Balance Effective Tactics for Mobile Video Money-Making for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/flipping-photo-lightness-for-an-alternate-look/"><u>Flipping Photo Lightness for an Alternate Look</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-infinix-note-30-vip-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Infinix Note 30 VIP to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-convert-youtube-music-seamlessly-for-mac-users-2023-edition/"><u>In 2024, Convert YouTube Music Seamlessly for Mac Users, 2023 Edition</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-efficiently-removing-youtube-channels-a-device-centric-approach/"><u>In 2024, Efficiently Removing Youtube Channels A Device-Centric Approach</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-motorola-defy-2-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Motorola Defy 2 to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/making-sense-of-mukbangs-crafting-foodie-streams/"><u>Making Sense of Mukbangs Crafting Foodie Streams</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-top-10-alternatives-of-facetime-on-android/"><u>New Top 10 Alternatives of FaceTime on Android</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/strategies-for-stumbling-upon-covert-youtube-videos/"><u>Strategies for Stumbling Upon Covert YouTube Videos</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-9-essential-technology-tools-all-students-must-have-in-the-classroom/"><u>Top 9 Essential Technology Tools All Students Must Have in the Classroom</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/troubleshooting-non-synchronizing-sticky-notes-on-w11/"><u>Troubleshooting Non-Synchronizing Sticky Notes on W11</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-beauty-blogging-101-starting-up-as-an-aesthetic-vlogger/"><u>[New] Beauty Blogging 101 Starting Up as an Aesthetic Vlogger</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-income-flow-to-creators-within-the-short-video-model/"><u>[New] Demystifying Income Flow to Creators Within the Short Video Model</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-enhanced-viewing-fb-videos-on-large-displays/"><u>[New] Enhanced Viewing FB Videos On Large Displays</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-create-captivating-cover-cinematics/"><u>[New] In 2024, Create Captivating Cover Cinematics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-for-aspiring-movie-makers-beyond-youtube-for-2024/"><u>[New] The Ultimate Guide for Aspiring Movie Makers, Beyond YouTube for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-charting-new-heights-with-popular-youtube-content/"><u>[Updated] Charting New Heights with Popular YouTube Content</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-elemental-aspects-in-crafting-tales-for-2024/"><u>[Updated] Elemental Aspects in Crafting Tales for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-ultimate-livestream-guidebook-recommended-tools-and-devices-compilation/"><u>2024 Approved Ultimate Livestream Guidebook Recommended Tools and Devices Compilation</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/diy-fixes-for-the-persistent-camera-error-code-0xa00f4244-on-windows-11-devices/"><u>DIY Fixes for the Persistent 'Camera Error Code 0Xa00f4244' On Windows 11 Devices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/master-the-art-of-subtitlecc-integration-in-youtube-with-this-guide/"><u>Master the Art of Subtitle/CC Integration in YouTube with This Guide</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-pc-launch-issues-successful-troubleshooting-of-everspace-2/"><u>Resolving PC Launch Issues: Successful Troubleshooting of Everspace 2</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-11-strategies-for-boosting-your-youtube-videos-seo/"><u>Top 11 Strategies for Boosting Your YouTube Videos' SEO</u></a></li>
 </ul></div>
 

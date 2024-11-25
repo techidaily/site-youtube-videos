@@ -1,7 +1,7 @@
 ---
 title: "The Secrets of Captivating Audiences in Your Videos"
-date: 2024-10-31T07:36:05.466Z
-updated: 2024-11-05T06:33:20.259Z
+date: 2024-11-23T19:53:25.180Z
+updated: 2024-11-24T23:18:39.342Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -58,13 +62,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -72,19 +69,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -98,6 +82,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -109,10 +97,7 @@ Good preparation includes having all your gear ready for filming when you need i
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
@@ -126,10 +111,7 @@ Consider your audience: they are coming home from school or work, where there we
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
@@ -156,6 +138,10 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -173,24 +159,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/-pioneering-exercise-videos-to-keep-your-viewers-active/"><u>[New] 8 Pioneering Exercise Videos To Keep Your Viewers Active</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-best-collection-sites-for-quick-access-to-youtube-vids/"><u>[New] Best Collection Sites for Quick Access to YouTube Vids</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-charting-out-youtubes-financial-strategy-for-nurturing-short-videos/"><u>[New] Charting Out YouTube's Financial Strategy for Nurturing Short Videos</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-from-basic-recording-to-masterpiece-your-webcam-guide-for-2024/"><u>[New] From Basic Recording to Masterpiece Your WebCam Guide for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-11-best-free-youtube-name-generators-you-should-try/"><u>[Updated] 11 Best Free YouTube Name Generators You Should Try</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-download-youtube-playlists-with-ease-our-instructions/"><u>[Updated] Download YouTube Playlists with Ease - Our Instructions</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-instant-guide-how-to-safely-gratisly-download-vlc-on-macos/"><u>[Updated] Instant Guide How to Safely, Gratisly Download VLC on MacOS</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-psychology-of-persuasion-in-subscription-growth/"><u>[Updated] The Psychology of Persuasion in Subscription Growth</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-free-up-iphone-11-pro-max-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Free Up iPhone 11 Pro Max Space | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-samsung-galaxy-a05s-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Samsung Galaxy A05s Device</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-hyper-v-deployment-in-windows-10-a-comprehensive-guide/"><u>Mastering Hyper-V Deployment in Windows 10 – A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-youtube-submission-a-filmmakers-guide-to-360-video/"><u>Navigating YouTube Submission A Filmmaker's Guide to 360 Video</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-infinix-note-30-vip-racing-edition-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Infinix Note 30 VIP Racing Edition Screen | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-dev-error-6034-issue-fix-guide-for-call-of-duty-modern-warfare-pc-and-xbox/"><u>Resolving Dev Error 6034 Issue - Fix Guide for Call of Duty: Modern Warfare (PC & Xbox)</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplified-process-to-eliminate-a-business-profile-from-fb/"><u>Simplified Process to Eliminate a Business Profile From FB</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/transforming-raw-footage-expert-pc-editing-tips-for-youtube-creators/"><u>Transforming Raw Footage Expert PC Editing Tips for YouTube Creators</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/your-path-to-perfect-videos-with-any-of-these-7-free-tools/"><u>Your Path to Perfect Videos with Any of These 7 Free Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-unleashed-a-creators-guide-to-greatness/"><u>YouTube Unleashed A Creator's Guide to Greatness</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-update-your-shorts-are-visible-again/"><u>YouTube Update - Your Shorts Are Visible Again</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-guide-to-effective-nvidia-video-capture/"><u>[New] Guide to Effective NVIDIA Video Capture</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unmatched-visual-quality-in-the-best-4k-panels-ranked-1-10/"><u>[New] Unmatched Visual Quality in the Best 4K Panels, Ranked #1-10</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-capturing-chats-storing-gh-live-sessions/"><u>[Updated] 2024 Approved Capturing Chats Storing GH Live Sessions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-craft-a-vibrant-youtube-experience-with-tracks/"><u>[Updated] Craft a Vibrant Youtube Experience with Tracks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-metaverse-explorers-best-virtual-reality-list/"><u>[Updated] Metaverse Explorers Best Virtual Reality List</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unearth-17-methods-a-complete-guide-to-tracking-internet-radio/"><u>[Updated] Unearth 17 Methods A Complete Guide to Tracking Internet Radio</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-10-must-see-vr-videos-on-youtube-for-deep-immersion/"><u>2024 Approved 10 Must-See VR Videos on YouTube for Deep Immersion</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/decoding-the-mysteries-of-effective-youtube-keywords/"><u>Decoding the Mysteries of Effective YouTube Keywords</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discovering-the-worlds-most-popular-shorter-videos-free/"><u>Discovering the World's Most Popular Shorter Videos (FREE)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-vivo-y100-5g-device-sim-by-drfone-android/"><u>Easily Unlock Your Vivo Y100 5G Device SIM</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/elevating-your-podcast-remote-recording-done-right-for-2024/"><u>Elevating Your Podcast Remote Recording Done Right for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-follows-into-genuine-subscriptions-for-2024/"><u>Enhancing Follows Into Genuine Subscriptions for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-motorola-moto-g-stylus-5g-2023-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Motorola Moto G Stylus 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-bringing-videos-to-life-using-youtube-in-educational-environments/"><u>In 2024, Bringing Videos to Life Using YouTube in Educational Environments</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-captivating-viewers-with-youtubes-visual-polishing/"><u>In 2024, Captivating Viewers with Youtube's Visual Polishing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-constructing-coherent-youtube-video-sequences/"><u>In 2024, Constructing Coherent YouTube Video Sequences</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/integrate-twitter-and-snapchat-posting-tweets-as-snaps/"><u>Integrate Twitter & Snapchat Posting Tweets as Snaps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/understanding-youtubers-income-average-ad-revenues-per-play/"><u>Understanding Youtuber's Income Average Ad Revenues per Play?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/usb-20-demystified-an-in-depth-look-at-transfer-rates-cord-types-and-plug-ins/"><u>USB 2.0 Demystified: An In-Depth Look at Transfer Rates, Cord Types & Plug-Ins</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Demystifying Video SEO on YouTube as a Novice"
-date: 2024-11-03T07:08:15.527Z
-updated: 2024-11-05T02:14:21.393Z
+date: 2024-11-17T18:31:15.797Z
+updated: 2024-11-24T17:31:47.222Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Nothing complicated. No paid programs or expensive apps needed. We are going bac
 Ready?
 
 Let’s Go!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Research Your Topic and Competitors
 
@@ -89,6 +93,10 @@ This app gives you a whole list of long-tail keywords, which are 3-4-word phrase
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ####  
 
@@ -156,13 +164,6 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -207,6 +208,10 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -215,31 +220,11 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
-
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -248,6 +233,10 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -273,16 +262,13 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -299,17 +285,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-blending-beats-with-video-footage-on-vimeo-platform/"><u>[New] Blending Beats with Video Footage on Vimeo Platform</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-embark-on-a-wanderlust-adventure-becoming-a-professional-travel-vlogger/"><u>[New] Embark on a Wanderlust Adventure Becoming A Professional Travel Vlogger</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-capture-the-essence-your-free-screen-recording-solution-on-mac-and-pc/"><u>[New] In 2024, Capture the Essence - Your FREE Screen Recording Solution on Mac & PC</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-mastering-electrical-energy-the-best-lipo-for-uavs/"><u>[New] Mastering Electrical Energy The Best LiPo for UAVs</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-uncomplicated-ways-to-save-vimeo-content/"><u>[Updated] 2024 Approved Uncomplicated Ways to Save Vimeo Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-boost-your-visibility-with-a-cutting-edge-set-of-banners/"><u>[Updated] Boost Your Visibility with a Cutting-Edge Set of Banners</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-cutting-edge-studio-lights-for-online-filmmakers/"><u>[Updated] Cutting-Edge Studio Lights for Online Filmmakers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-maximize-engagement-a-comprehensive-thumbnail-guidebook/"><u>[Updated] In 2024, Maximize Engagement A Comprehensive Thumbnail Guidebook</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-livegaze-app-reviews-and-ratings/"><u>[Updated] LiveGaze App Reviews & Ratings</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-13-mini-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account On iPhone 13 mini?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-google-pixel-7a-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Google Pixel 7a FRP</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-impact-with-tailored-youtube-cards-and-ends/"><u>Maximizing Impact with Tailored Youtube Cards and Ends</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-cinematic-composer-software/"><u>[New] Cinematic Composer Software</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-decoding-dangerous-subscriber-scams-online-for-2024/"><u>[New] Decoding Dangerous Subscriber Scams Online for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-your-video-presence-mastery-of-channel-art-and-banner-sizes/"><u>[New] Elevate Your Video Presence Mastery of Channel Art and Banner Sizes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-picks-17-superior-apps-for-quick-image-sharpening/"><u>[New] Expert Picks 17 Superior Apps for Quick Image Sharpening</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-flip-and-float-instagrams-guide-to-crafting-versatile-visual-content/"><u>[Updated] 2024 Approved Flip and Float Instagram's Guide to Crafting Versatile Visual Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-analyzing-tseries-income-via-subscriber-engagement-on-youtube/"><u>[Updated] Analyzing TSeries’ Income via Subscriber Engagement on YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-macos-11-big-sur-essential-guide-for-upgrades/"><u>[Updated] MacOS 11 Big Sur Essential Guide for Upgrades</u></a></li>
+<li><a href="https://extra-information.techidaily.com/amplify-your-audio-presence-learn-to-modify-voices-for-free-for-2024/"><u>Amplify Your Audio Presence Learn to Modify Voices for FREE for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fix-persistent-crashes-in-age-of-empires-iv-on-windows-solutions-inside/"><u>Fix: Persistent Crashes in Age of Empires IV on Windows – Solutions Inside</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Vivo Y100i Power 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/innovators-crafting-next-gen-virtual-worlds/"><u>Innovators Crafting Next-Gen Virtual Worlds</u></a></li>
+<li><a href="https://windows11.techidaily.com/turbo-steam-downloads-overcoming-frustrating-speed-halts/"><u>Turbo Steam Downloads: Overcoming Frustrating Speed Halts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-studio-editors-guide-to-flawless-filming/"><u>YouTube Studio Editor's Guide to Flawless Filming</u></a></li>
 </ul></div>
 

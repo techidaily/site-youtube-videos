@@ -1,7 +1,7 @@
 ---
 title: "The Vlogger's Guide to Optimal Lens Performance"
-date: 2024-10-30T20:30:00.070Z
-updated: 2024-11-04T20:44:22.962Z
+date: 2024-11-22T20:26:53.006Z
+updated: 2024-11-24T23:13:23.753Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -55,6 +59,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 #### Telephoto Lens
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
 
@@ -78,13 +86,6 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -92,6 +93,10 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -108,27 +113,17 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -137,10 +132,7 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 But do you even need a fast lens?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
@@ -186,24 +178,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-explore-the-best-spots-for-acquiring-got-tones/"><u>[New] 2024 Approved Explore the Best Spots for Acquiring GoT Tones</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-achieve-sharpness-camera-tips-without-a-tripod/"><u>[New] Achieve Sharpness Camera Tips Without a Tripod</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-charting-the-course-from-adsense-income-to-savings/"><u>[New] Charting the Course From AdSense Income to Savings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-dismantling-the-economics-of-youtubes-ambitious-shorts-fund/"><u>[New] Dismantling the Economics of YouTube's Ambitious Shorts Fund</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-amplifying-your-youtube-presence-through-consistent-content-release/"><u>[Updated] Amplifying Your YouTube Presence Through Consistent Content Release</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-attract-more-viewers-boosting-your-youtube-following/"><u>[Updated] Attract More Viewers Boosting Your YouTube Following</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-easy-steps-to-save-youtube-videos/"><u>[Updated] Easy Steps to Save YouTube Videos</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-infusing-personality-with-custom-fonts-in-ae-workflows/"><u>[Updated] Infusing Personality with Custom Fonts in AE Workflows</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-perfect-stitching-of-gopro-videos-into-complete-360-imagery-for-2024/"><u>[Updated] Perfect Stitching of GoPro Videos Into Complete 360 Imagery for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/addressing-v22h2-update-installation-obstacle-in-win11/"><u>Addressing V22H2 Update Installation Obstacle in Win11</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-pictures-files-on-nokia-by-fonelab-android-recover-pictures/"><u>Complete guide for recovering pictures files on Nokia .</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-the-ideal-spots-to-purchase-mobile-phones/"><u>Discover the Ideal Spots to Purchase Mobile Phones</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-tecno-pova-5-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Tecno Pova 5 Contacts An Easy Method Explained.</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-se-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone SE without Losing Anything? | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/live-cam-pro-the-ultimate-multiplecam-alternative-for-seamless-online-broadcasts/"><u>Live Cam Pro: The Ultimate MultipleCam Alternative for Seamless Online Broadcasts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-traffic-for-new-content-creators/"><u>Mastering YouTube Traffic for New Content Creators</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/pinnacle-partnership-portrayal-picking-an-ideal-mcn/"><u>Pinnacle Partnership Portrayal Picking an Ideal MCN</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/pump-up-your-viewership-with-these-proven-methods/"><u>Pump Up Your Viewership with These Proven Methods</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/streamline-your-vids-with-these-15-royalty-free-tracks-sites/"><u>Streamline Your Vids with These 15 Royalty-Free Tracks Sites</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expand-your-video-editing-experience-no-inshot-required/"><u>[New] Expand Your Video Editing Experience No Inshot Required</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-achieving-top-quality-on-youtube-video-enhancement-fundamentals/"><u>[Updated] Achieving Top Quality on YouTube Video Enhancement Fundamentals</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-boosting-profitability-in-the-world-of-youtube-shorts/"><u>[Updated] Boosting Profitability in the World of Youtube Shorts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-dive-deep-into-the-past-with-these-top-10-student-friendly-yt-channels/"><u>[Updated] Dive Deep Into the Past with These Top 10 Student-Friendly YT Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-essential-7-android-apps-to-eliminate-intrusive-ads/"><u>[Updated] Essential 7 Android Apps to Eliminate Intrusive Ads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-gain-massive-viewership-with-a-small-financial-investment/"><u>[Updated] Gain Massive Viewership with a Small Financial Investment</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-superior-lineup-elite-webcam-mounts-for-2024/"><u>[Updated] Superior Lineup Elite Webcam Mounts for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-practices-for-youtube-thumbnail-dimensions/"><u>Best Practices for YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/creating-compelling-youtube-live-content-with-wirecast/"><u>Creating Compelling Youtube Live Content with WireCast</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discovering-chatgpt-the-powerhouse-behind-innovations-in-generative-ai-solutions/"><u>Discovering ChatGPT: The Powerhouse Behind Innovations in Generative AI Solutions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/download-premium-quality-designs-at-no-cost-for-youtube-creators/"><u>Download Premium-Quality Designs at No Cost – For YouTube Creators</u></a></li>
+<li><a href="https://win11.techidaily.com/getting-acquainted-with-microsofts-phone-link-for-device-connection/"><u>Getting Acquainted with Microsoft's Phone Link for Device Connection</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-eyes-on-the-digital-winners-top-channels/"><u>In 2024, Eyes on the Digital Winners Top Channels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-mastering-the-art-of-youtube-teaser-videos/"><u>In 2024, Mastering the Art of YouTube Teaser Videos</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934799-9781782497721-mindfulness-and-sleep/"><u>Mindfulness and Sleep | Free Book</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/prime-recommendations-downloading-video-intros-and-templates-for-2024/"><u>Prime Recommendations Downloading Video Intros & Templates for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/reimagine-your-youtube-approach-with-tubebuddy/"><u>Reimagine Your YouTube Approach with TubeBuddy</u></a></li>
 </ul></div>
 
