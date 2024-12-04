@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Comprehensive Review  Camera Lenses for YouTube\""
-date: 2024-11-20T19:21:57.663Z
-updated: 2024-11-24T20:48:15.812Z
+date: 2024-11-30T17:33:42.576Z
+updated: 2024-12-03T19:55:18.586Z
 tags:
   - ai video
   - ai youtube
@@ -39,10 +39,6 @@ In this article, I’m going to help you figure that out.
 * [Part 5: Aperture](#aperture)
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
@@ -82,21 +78,17 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -117,9 +109,17 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -128,7 +128,7 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 But do you even need a fast lens?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
@@ -146,7 +146,7 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Optical Image Stabilization
@@ -178,20 +178,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-make-reels-on-instagram/"><u>[New] How to Make Reels on Instagram</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-boost-communication-capabilities-from-skype-to-zoom/"><u>[New] In 2024, Boost Communication Capabilities From Skype to Zoom</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-roadmap-to-thriving-in-digital-advertising/"><u>[New] The Roadmap to Thriving in Digital Advertising</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-engage-enchant-excel-the-quintessential-5-strategies-for-youtube-marketing/"><u>[Updated] Engage, Enchant, Excel The Quintessential 5 Strategies for YouTube Marketing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-create-harmonious-hits-a-step-by-step-guide-to-making-youtube-playlists-online-and-app/"><u>2024 Approved Create Harmonious Hits A Step-by-Step Guide to Making YouTube Playlists Online & App</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/an-in-depth-look-at-video-apps-for-iphone-and-android-users-for-2024/"><u>An In-Depth Look at Video Apps for iPhone & Android Users for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-cash-crusade-harnessing-every-device-with-yt-studio/"><u>Channel Cash Crusade Harnessing Every Device with YT Studio</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-vivo-v27-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Vivo V27 Pro | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-stop-zoom-from-crashing-in-windows-11-and-10-top-troubleshooting-steps/"><u>How to Stop Zoom From Crashing in Windows 11 & 10: Top Troubleshooting Steps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-decode-youtube-shorts-a-complete-breakdown/"><u>In 2024, Decode YouTube Shorts A Complete Breakdown</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-seamless-media-switching-your-ultimate-guide-for-srt-conversion/"><u>In 2024, Seamless Media Switching Your Ultimate Guide for SRT Conversion</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/infographic-review-fifa-video-gains-on-social-platforms/"><u>Infographic Review FIFA Video Gains on Social Platforms</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-complete-walkthrough-on-reactivating-your-iphone-15/"><u>The Complete Walkthrough on Reactivating Your iPhone 15</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/vital-guide-to-cost-effective-video-and-photography-archives/"><u>Vital Guide to Cost-Effective Video and Photography Archives</u></a></li>
-<li><a href="https://techtrends.techidaily.com/wma-movavi/"><u>WMA 아이콘을 비용 없이 웹상에서 바꾸기: Movavi 가이드</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-fix-blurry-facebook-videos-in-smartphones-and-chromebooks/"><u>[New] 2024 Approved Fix Blurry Facebook Videos in Smartphones & Chromebooks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-pathway-to-a-powerful-instagram-influence-for-2024/"><u>[New] The Pathway to a Powerful Instagram Influence for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unveiling-the-top-15-no-cost-audio-archives-for-content-makers/"><u>[Updated] 2024 Approved Unveiling the Top 15 No-Cost Audio Archives for Content Makers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-a-viral-path-best-hashtags-for-youtube-riches/"><u>2024 Approved Crafting a Viral Path Best Hashtags for YouTube Riches</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-potential-the-right-propeller-match-in-fpv-flight/"><u>2024 Approved Unlocking Potential The Right Propeller Match in FPV Flight</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-guide-to-getting-jdk-rolled-out-in-windows-11-dev-environment/"><u>A Guide to Getting JDK Rolled Out in Windows 11 Dev Environment</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/captivating-viewers-top-10-creative-yt-reaction-tactics/"><u>Captivating Viewers Top 10 Creative YT Reaction Tactics</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/craft-a-unique-channel-look-for-free-for-2024/"><u>Craft a Unique Channel Look for Free for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-positivity-in-a-constructive-space/"><u>Elevating Positivity in a Constructive Space</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-visual-experience-youtubes-quality-boosting-guide/"><u>Elevating Visual Experience YouTube's Quality Boosting Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-speed-up-windows-file-inspection/"><u>How To Speed Up Windows File Inspection</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-ace-choices-top-10-streaming-apps-for-live-soccer-and-football-action/"><u>In 2024, Ace Choices Top 10 Streaming Apps for Live Soccer & Football Action</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/top-rated-free-mp4-video-converter-easy-downloads-and-file-format-transformation/"><u>Top Rated Free MP4 Video Converter: Easy Downloads & File Format Transformation</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-x100-pro-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo X100 Pro Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
 </ul></div>
 

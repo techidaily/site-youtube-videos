@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube 101  Tips for a Distraction-Free Video Backdrop\""
-date: 2024-11-21T20:34:38.251Z
-updated: 2024-11-24T17:45:39.074Z
+date: 2024-11-28T21:07:24.788Z
+updated: 2024-12-04T02:10:44.736Z
 tags:
   - ai video
   - ai youtube
@@ -36,7 +36,7 @@ Even if your set is clean, there could be things like books behind you, which wi
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Blur Background of Your YouTube Video in Shooting Videos
@@ -64,10 +64,6 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -83,10 +79,14 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
@@ -101,18 +101,18 @@ Here, I will select the **Tilt-Shift Circle** effect and drop it to the track ab
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -129,18 +129,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-strategic-tips-to-enhance-your-gmeet-ppt-presentations-on-mobilelaptop/"><u>[New] 2024 Approved Strategic Tips to Enhance Your GMeet PPT Presentations on Mobile/Laptop</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-a-guide-to-gathering-gold-from-guided-goods-gazes-online/"><u>[New] A Guide to Gathering Gold From Guided Goods' Gazes Online</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-a-comprehensible-approach-to-personal-branding-in-the-youtube-sphere/"><u>[Updated] A Comprehensible Approach to Personal Branding in the YouTube Sphere</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-flavorful-frames-stepwise-food-film-making-for-2024/"><u>[Updated] Flavorful Frames Stepwise Food Film-Making for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-free-youtube-intros-a-comprehensive-instructional-guide/"><u>[Updated] Free YouTube Intros A Comprehensive Instructional Guide</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/comment-ouvrir-correctement-les-photos-au-format-jpg-sous-windows-11/"><u>Comment Ouvrir Correctement Les Photos Au Format JPG Sous Windows 11 ?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-persistent-screen-flashes-on-your-windows-10-pc/"><u>Fixing Persistent Screen Flashes on Your Windows 10 PC</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-essential-insights-into-youtube-live-image-crafting/"><u>In 2024, Essential Insights Into YouTube Live Image Crafting</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-harnessing-tech-acquiring-fb-status-video-content/"><u>In 2024, Harnessing Tech Acquiring FB Status Video Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-mp4-editing-on-mac-top-selections-for-youtubers/"><u>Mastering MP4 Editing on Mac Top Selections for YouTubers</u></a></li>
-<li><a href="https://solve-info.techidaily.com/missing-page-alert-content-doesnt-exist-here/"><u>Missing Page Alert: Content Doesn't Exist Here</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-famebit-pathways-to-secure-youtube-partnerships/"><u>Navigating FameBit Pathways to Secure YouTube Partnerships</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-pictures-from-realme-gt-5-240w-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Realme GT 5 (240W).</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-how-to-manual-for-time-stamped-videos-on-youtubes/"><u>[New] The How-To Manual for Time-Stamped Videos on YouTubes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-boosting-narrative-pace-in-vlogging-through-jump-cuts/"><u>[Updated] Boosting Narrative Pace in Vlogging Through Jump Cuts</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-incorporating-music-seamlessly-in-projects-with-premiere-pro-for-2024/"><u>[Updated] Incorporating Music Seamlessly in Projects with Premiere Pro for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-sleep-optimal-asmr-experiences-and-picks/"><u>2024 Approved Mastering Sleep Optimal ASMR Experiences & Picks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-supercharge-your-games-premium-top-10-drives/"><u>2024 Approved Supercharge Your Games Premium Top 10 Drives</u></a></li>
+<li><a href="https://techtrends.techidaily.com/all-about-the-upcoming-google-pixel-timepiece-series-4-price-predictions-expected-debut-date-and-speculations-unveiled/"><u>All About The Upcoming Google Pixel Timepiece (Series 4): Price Predictions, Expected Debut Date, and Speculations Unveiled</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-your-youtube-legacy-a-deep-dive-into-creator-studio-mastery/"><u>Crafting Your YouTube Legacy A Deep Dive Into Creator Studio Mastery</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/creating-a-singular-stream-from-diverse-youtube-videos-for-2024/"><u>Creating a Singular Stream From Diverse YouTube Videos for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-xs-max-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>How to Unlock iPhone XS Max Passcode without iTunes without Knowing Passcode?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722963963389-install-official-iphone-support-software-on-your-windows-11-pc-now/"><u>Install Official iPhone Support Software on Your Windows 11 PC Now</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/secrets-of-8-high-quality-gratis-videogame-audio-assets-for-2024/"><u>Secrets of 8 High-Quality, Gratis Videogame Audio Assets for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/stand-alone-hold-tight-camera-stability-techniques/"><u>Stand Alone, Hold Tight Camera Stability Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-manual-to-creating-youtube-playlists/"><u>The Essential Manual to Creating YouTube Playlists</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-earnings-per-thousand-views-explained/"><u>YouTube Earnings Per Thousand Views Explained</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Boosting Views Through Imaginative Video Thumbnails"
-date: 2024-11-22T19:46:06.258Z
-updated: 2024-11-24T18:02:46.349Z
+date: 2024-11-29T00:24:36.083Z
+updated: 2024-12-04T03:00:17.136Z
 tags:
   - ai video
   - ai youtube
@@ -39,7 +39,7 @@ Here are 5 easy tips for creating thumbnails that get views.
  _Contest now closed._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Your Videos Before Creating Video Thumbnails
@@ -47,11 +47,11 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -63,7 +63,7 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -73,7 +73,7 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -115,24 +115,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-beginners-bible-to-your-youtube-audio-visual-arsenal/"><u>[New] Beginner's Bible to Your YouTube Audio-Visual Arsenal</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-detailed-procedures-for-elevating-youtube-clips-through-wm-maker/"><u>[New] Detailed Procedures for Elevating YouTube Clips Through WM Maker</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-techniques-for-youtube-end-screen-designs/"><u>[New] Essential Techniques for YouTube End Screen Designs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-essential-tips-for-iphone-shadow-photography/"><u>[Updated] 2024 Approved Essential Tips for iPhone Shadow Photography</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-expand-your-knowledge-elite-15-sci-yt-channels-list/"><u>[Updated] 2024 Approved Expand Your Knowledge Elite 15 Sci-YT Channels List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-access-your-favorites-anytime-the-leading-6-free-video-downloaders/"><u>[Updated] Access Your Favorites Anytime The Leading 6 Free Video Downloaders</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-12-flipscreen-cam-titles-for-optimal-vlogging/"><u>[Updated] Essential 12 Flipscreen Cam Titles for Optimal Vlogging</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-from-novice-to-pro-the-complete-creator-hub-guide-for-2024/"><u>[Updated] From Novice to Pro The Complete Creator Hub Guide for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-how-to-add-music-to-youtubevideo-with-youtube-video-editor/"><u>[Updated] How to Add Music to YouTubeVideo with YouTube Video Editor</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-premier-top-selections-affordable-sbd-applications/"><u>2024 Approved Premier Top Selections Affordable SBD Applications</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/efficient-solutions-to-the-crashed-graphics-driver-problem-in-valorant-a-step-by-step-fix/"><u>Efficient Solutions to the 'Crashed Graphics Driver' Problem in Valorant – A Step-by-Step Fix</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/formulating-flashy-podcast-teasers/"><u>Formulating Flashy Podcast Teasers</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1723011886453-genshin-impact-wont-start-discover-these-effortless-fixes-today/"><u>Genshin Impact Won't Start? Discover These Effortless Fixes Today!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-vivo-v30-lock-screen-password-by-drfone-android/"><u>How to Reset your Vivo V30 Lock Screen Password</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-xiaomi-redmi-k70-by-drfone-android/"><u>How to Show Wi-Fi Password on Xiaomi Redmi K70</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-top-tier-external-ssds-for-elevated-xbox-use/"><u>In 2024, Top-Tier External SSDs for Elevated Xbox Use</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/relaxation-reigns-top-pc-titles-for-2024/"><u>Relaxation Reigns Top PC Titles for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-guide-to-global-exploration-by-channel/"><u>The Ultimate Guide to Global Exploration, By Channel</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/understanding-where-youtube-transforms-videos-into-art/"><u>Understanding Where YouTube Transforms Videos Into Art</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-captivate-your-market-the-blueprint-for-effective-instagram-video-plans-for-2024/"><u>[Updated] Captivate Your Market The Blueprint for Effective Instagram Video Plans for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-creating-a-lasting-impression-the-ultimate-youtube-live-thumbnail-guide/"><u>[Updated] Creating a Lasting Impression The Ultimate YouTube Live Thumbnail Guide</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-bypassing-tiktoks-watermarking-for-iphones-how-to-guide/"><u>[Updated] In 2024, Bypassing TikTok's Watermarking for iPhones – How-To Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-iphone-hdr-photography-tips-and-tricks/"><u>[Updated] IPhone HDR Photography Tips & Tricks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-achieving-million-sub-milestone-the-youtube-guide/"><u>2024 Approved Achieving Million-Sub Milestone The YouTube Guide</u></a></li>
+<li><a href="https://discover-able.techidaily.com/3-effective-methods-to-restore-deleted-driver-files-on-windows-11/"><u>3 Effective Methods to Restore Deleted Driver Files on Windows 11</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-your-youtube-earnings-on-mobile-devices-a-comprehensive-guide-for-2024/"><u>Boosting Your YouTube Earnings on Mobile Devices - A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/budget-friendly-travel-can-uber-outpace-the-expense-of-taxi-services/"><u>Budget-Friendly Travel: Can Uber Outpace the Expense of Taxi Services?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-a-hit-list-youtubes-way-for-fans/"><u>In 2024, Crafting a Hit-List Youtube's Way for Fans</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Realme 12+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/pushing-the-boundaries-of-classic-gaming-with-pi-power/"><u>Pushing the Boundaries of Classic Gaming with Pi Power</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/swift-switcheroo-rearranging-yt-lists-in-a-minute/"><u>Swift Switcheroo Rearranging YT Lists in a Minute</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-messages-from-pixel-7a-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Pixel 7a</u></a></li>
 </ul></div>
 

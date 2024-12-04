@@ -1,7 +1,7 @@
 ---
 title: "Turning Your YouTube Views Into a Screen Capture Made Simple and Free"
-date: 2024-09-06T12:35:15.238Z
-updated: 2024-09-07T12:35:15.238Z
+date: 2024-11-29T18:30:50.986Z
+updated: 2024-12-03T16:28:44.849Z
 tags:
   - ai video
   - ai youtube
@@ -14,18 +14,6 @@ keywords: "\"Easy YouTube Screenshots,Simplify Video Capture,Free Screen Capturi
 thumbnail: https://thmb.techidaily.com/9530a6a7ae2d76ba480cbada332a623fd47509bd2903fa4cfebcaa0c3ca3de95.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Turning Your YouTube Views Into a Screen Capture Made Simple and Free
 
 # How To Record Screencast From YouTube For Free
@@ -44,12 +32,6 @@ There is a wide range of software tools that can assists you with screencasting 
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The All-in-One Screen Recorder & Video Editor
 
 * Record desktop screen, voiceover, and webcam simultaneously
@@ -81,26 +63,18 @@ Step 4: Hit the screen share button from the left toolbox and choose the desktop
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## A better way to record Screencast and Upload to YouTube
 
 For those who are interested in capturing screencast with high-quality videos and need an easy to use the built-in editor to customize these videos; it is good to look for some dedicated screencast tools. Experts recommend using Wondershare [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) due to its advanced features and interactive software platform.
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Top Features
 
 * Filmora is one of the most interactive software tools that works perfectly on Windows and Mac platforms.
@@ -158,17 +132,9 @@ For macOS 10.12 or later
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Recording Screencast Video with YouTube
 
 Step 1: Open YouTube on your computer and sign by using your Google Account. On the top left corner, you will find the Upload button, press it and go to live streaming section and choose events from the drop-down menu. When you are doing this for the very first time, YouTube will ask your phone number to verify the streaming process. You can also click [here to get to the Livestreaming page directly.](https://www.youtube.com/live%5Fdashboard)
@@ -177,24 +143,12 @@ Step 2: On the create an event page, add a title for your screencast video; set 
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
 
 Step 4: Hit the screen share button from the left toolbox and choose the desktop window that you wish to record. Now press start the Broadcast button to start screen recording. Note that it is a private session that cannot be watched by anyone else.
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
 
 ## A better way to record Screencast and Upload to YouTube
@@ -218,18 +172,6 @@ Let's watch the video below to check how to record your screen with Filmora and 
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Conclusion
 
 With all impressive features, there is no doubt to say that Filmora can serve your screencasting needs in the best possible manner. Whether you are a crazy gamer interested to share your adventure videos with the world or want to create useful tutorials for your audience, Filmora is your best companion for all your needs.
@@ -272,23 +214,9 @@ For macOS 10.12 or later
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Recording Screencast Video with YouTube
 
 Step 1: Open YouTube on your computer and sign by using your Google Account. On the top left corner, you will find the Upload button, press it and go to live streaming section and choose events from the drop-down menu. When you are doing this for the very first time, YouTube will ask your phone number to verify the streaming process. You can also click [here to get to the Livestreaming page directly.](https://www.youtube.com/live%5Fdashboard)
@@ -311,12 +239,6 @@ For those who are interested in capturing screencast with high-quality videos an
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Top Features
 
 * Filmora is one of the most interactive software tools that works perfectly on Windows and Mac platforms.
@@ -338,12 +260,6 @@ With all impressive features, there is no doubt to say that Filmora can serve yo
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -362,12 +278,6 @@ There is a wide range of software tools that can assists you with screencasting 
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The All-in-One Screen Recorder & Video Editor
 
 * Record desktop screen, voiceover, and webcam simultaneously
@@ -399,12 +309,6 @@ Step 4: Hit the screen share button from the left toolbox and choose the desktop
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
 
 ## A better way to record Screencast and Upload to YouTube
@@ -413,18 +317,6 @@ For those who are interested in capturing screencast with high-quality videos an
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Top Features
 
 * Filmora is one of the most interactive software tools that works perfectly on Windows and Mac platforms.
@@ -496,12 +388,6 @@ A lot of people automatically want to approach their YouTube hero, and that can 
 
 ![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Will Kitty get to collab with the big dog?_
 
 Larger YouTubers get a lot of collab requests, and they are really busy with their own channels. Even if they love your content, it can be hard to justify taking time away from working on their own channel to do videos that won’t help them grow too.
@@ -516,12 +402,6 @@ Also, try to find someone whose channel has something in common with yours thema
 
 A good way to find potentially collab partners is to look at your list of subscribers. You already know everyone there likes your channel!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. How to contact a partner
 
 Sometimes people leave contact info in their video descriptions, but it might be easier to go to the **About** tab on their channel page and check for an email address. Look for a field that says **for business inquiries**, click on **view email address**, and use the CAPTCHA that appears to prove you aren’t a robot.
@@ -559,11 +439,9 @@ _**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in To
 Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Getting the Most Out of Your Collaborations
 
 Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
@@ -572,12 +450,6 @@ Commenting on each other’s videos, and responding to viewer comments, is one o
 
 ![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
 
  What have your experiences with YouTube collaborations been like?
@@ -588,12 +460,6 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -621,11 +487,229 @@ The following post will teach you how to find and contact partners for YouTube c
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## 1\. Choosing A Potential Partner
+
+Before you think about how you’re going to approach someone you need to decide who you want to approach.
+
+A lot of people automatically want to approach their YouTube hero, and that can be a mistake. Liking your partner’s videos is a must – why would you want to refer your subscribers to someone whose channel you wouldn’t watch yourself? – but it can be really hard to get someone with a significantly bigger channel than yours to work with you.
+
+![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+_Will Kitty get to collab with the big dog?_
+
+Larger YouTubers get a lot of collab requests, and they are really busy with their own channels. Even if they love your content, it can be hard to justify taking time away from working on their own channel to do videos that won’t help them grow too.
+
+Collaborating with someone your own size means you both stand to gain equally in channel growth. Instead of approaching someone you love that’s huge, try finding someone you like just as much whose sub count is similar to yours.
+
+There are exceptions to this, of course. The team at **[Mr.Kate](https://www.youtube.com/channel/UCDVPcEbVLQgLZX0Rt6jo34A)** managed to work with YouTubers who had millions of subs while they were still under 1 million. They got these high profile collabs because they had something additional to offer that made up for the subscriber gap – they were redesigning the apartments, offices, or studios of the YouTubers they did the collabs with. If you want to work with someone bigger than you, think about what you might be able to offer them in place of new subscribers.
+
+_Mr.Kate makes over **[MyLifeAsEva](https://www.youtube.com/channel/UCAoMPWcQKA%5F9Af5YhWdrZgw?sub%5Fconfirmation=1)**’s bedroom._
+
+Also, try to find someone whose channel has something in common with yours thematically so you know your subscribers will be interested in them. They don’t have to do exactly what you do, but your topics should be related. For example: if you do quirky video game reviews and they do quirky movie reviews, you could team up to review a movie based on a game. That would make sense. But if you quirky video game reviews and they review do very serious ice cream reviews, that’ll make a lot less sense.
+
+A good way to find potentially collab partners is to look at your list of subscribers. You already know everyone there likes your channel!
+
+## 2\. How to contact a partner
+
+Sometimes people leave contact info in their video descriptions, but it might be easier to go to the **About** tab on their channel page and check for an email address. Look for a field that says **for business inquiries**, click on **view email address**, and use the CAPTCHA that appears to prove you aren’t a robot.
+
+Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is good too, but you should use those platforms more to build a relationship that could lead to a collab. If someone had never commented on a video of yours before and then commented once just to ask you to collab it’d be hard to believe they were really interested in your channel.
+
+## 3\. Popular Types of Collab Videos
+
+_[**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ)talks about different types of collabs and how well they work._
+
+In most cases when you do a collab, you’ll each want to have content to post to your own channels (unless you’re doing some type of interview). You don’t want to put a lot of effort into a video that won’t end up being ‘yours’. Here are a few different ways to collaborate:
+
+#### #1\. Shout outs
+
+In this type of collab all you do is mention each other and, usually, use YouTube cards to link to each other’s channels. You make a video that is completely yours, and at some point in it you talk about your partner’s channel and why you like it. To make things fair, you should discuss how long the mentions will be and where in the videos they will happen. It wouldn’t feel good to gush about how great someone is for a full minute near the beginning of your video and have them spend two seconds mentioning you near the end of theirs.
+
+I personally don’t check people out just because someone I like mentions them, so this might not be the best way to go if you’re hoping to bring in new subscribers. It is the easiest kind of collab to do, though.
+
+#### 2\. Guest spots
+
+This is my favorite kind of collab to watch, because each YouTuber has sole creative control over the video that goes on their channel. Instead of trying to blend your styles together, you each make videos that reflect your own personal styles.
+
+For your video, you have the other vlogger on as a guest. In the video you do the same kinds of things your fans like watching you do, and you include the other person. If they’re alright with it, it can be fun to draw them a bit outside their comfort zone. If you like to dance on your channel, and they never dance on theirs, ask them to dance with you!
+
+_**[Matthias](https://www.youtube.com/channel/UC9VX0KXNH20x9MCH3xGjisg)** gets **[NateWantsToBattle](https://www.youtube.com/user/NateWantsToBattle)** – who does song parodies on his channel – to make balloon animals._
+
+Turnabout is fair play, of course, so be prepared to step a bit outside of your own comfort zone when you appear as a guest in one of their videos.
+
+Alternatively, you could just introduce your guest and then let them take over and then do the same thing in reverse on their channel.
+
+#### 3\. Long distance collabs
+
+_**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in Toronto and **[Aja](https://www.youtube.com/channel/UCmiE7g4J3QXBwPUybbRdioQ)** is in LA, but that doesn’t mean they can’t cook together! Also: Lauren’s channel is about food and Aja’s is about healthy living – they aren’t exactly the same, but they’re related enough that the collab makes sense._
+
+Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
+
+## 4\. Getting the Most Out of Your Collaborations
+
+Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
+
+Commenting on each other’s videos, and responding to viewer comments, is one of the best. It will help you seem more like a person who is being introduced than a guest star in a video.
+
+![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
+
+_Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
+
+ What have your experiences with YouTube collaborations been like?
+
+## Use Split-Screen Presets to Create Collab Videos in Filmora
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The following post will teach you how to find and contact partners for YouTube collaborations, as well as provide advice for actually making the collab. We also did a post earlier this week about [**how to get other creators to collab with you,**](https://tools.techidaily.com/wondershare/filmora/download/)which includes videos from 4 different YouTubers on that subject.
+
+* [**Choosing A Potential Partner**](#choose)
+* [**How to Contact A Partner**](#contact)
+* [**Types of collab videos**](#types)  
+  * [**Shout outs**](#shout)  
+  * [**Guest spots**](#guest)  
+  * [**Long-distance collabs**](#distance)
+* [**Getting the Most Out of Your Collaborations**](#getmore)
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 1\. Choosing A Potential Partner
+
+Before you think about how you’re going to approach someone you need to decide who you want to approach.
+
+A lot of people automatically want to approach their YouTube hero, and that can be a mistake. Liking your partner’s videos is a must – why would you want to refer your subscribers to someone whose channel you wouldn’t watch yourself? – but it can be really hard to get someone with a significantly bigger channel than yours to work with you.
+
+![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+_Will Kitty get to collab with the big dog?_
+
+Larger YouTubers get a lot of collab requests, and they are really busy with their own channels. Even if they love your content, it can be hard to justify taking time away from working on their own channel to do videos that won’t help them grow too.
+
+Collaborating with someone your own size means you both stand to gain equally in channel growth. Instead of approaching someone you love that’s huge, try finding someone you like just as much whose sub count is similar to yours.
+
+There are exceptions to this, of course. The team at **[Mr.Kate](https://www.youtube.com/channel/UCDVPcEbVLQgLZX0Rt6jo34A)** managed to work with YouTubers who had millions of subs while they were still under 1 million. They got these high profile collabs because they had something additional to offer that made up for the subscriber gap – they were redesigning the apartments, offices, or studios of the YouTubers they did the collabs with. If you want to work with someone bigger than you, think about what you might be able to offer them in place of new subscribers.
+
+_Mr.Kate makes over **[MyLifeAsEva](https://www.youtube.com/channel/UCAoMPWcQKA%5F9Af5YhWdrZgw?sub%5Fconfirmation=1)**’s bedroom._
+
+Also, try to find someone whose channel has something in common with yours thematically so you know your subscribers will be interested in them. They don’t have to do exactly what you do, but your topics should be related. For example: if you do quirky video game reviews and they do quirky movie reviews, you could team up to review a movie based on a game. That would make sense. But if you quirky video game reviews and they review do very serious ice cream reviews, that’ll make a lot less sense.
+
+A good way to find potentially collab partners is to look at your list of subscribers. You already know everyone there likes your channel!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## 2\. How to contact a partner
+
+Sometimes people leave contact info in their video descriptions, but it might be easier to go to the **About** tab on their channel page and check for an email address. Look for a field that says **for business inquiries**, click on **view email address**, and use the CAPTCHA that appears to prove you aren’t a robot.
+
+Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is good too, but you should use those platforms more to build a relationship that could lead to a collab. If someone had never commented on a video of yours before and then commented once just to ask you to collab it’d be hard to believe they were really interested in your channel.
+
+## 3\. Popular Types of Collab Videos
+
+_[**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ)talks about different types of collabs and how well they work._
+
+In most cases when you do a collab, you’ll each want to have content to post to your own channels (unless you’re doing some type of interview). You don’t want to put a lot of effort into a video that won’t end up being ‘yours’. Here are a few different ways to collaborate:
+
+#### #1\. Shout outs
+
+In this type of collab all you do is mention each other and, usually, use YouTube cards to link to each other’s channels. You make a video that is completely yours, and at some point in it you talk about your partner’s channel and why you like it. To make things fair, you should discuss how long the mentions will be and where in the videos they will happen. It wouldn’t feel good to gush about how great someone is for a full minute near the beginning of your video and have them spend two seconds mentioning you near the end of theirs.
+
+I personally don’t check people out just because someone I like mentions them, so this might not be the best way to go if you’re hoping to bring in new subscribers. It is the easiest kind of collab to do, though.
+
+#### 2\. Guest spots
+
+This is my favorite kind of collab to watch, because each YouTuber has sole creative control over the video that goes on their channel. Instead of trying to blend your styles together, you each make videos that reflect your own personal styles.
+
+For your video, you have the other vlogger on as a guest. In the video you do the same kinds of things your fans like watching you do, and you include the other person. If they’re alright with it, it can be fun to draw them a bit outside their comfort zone. If you like to dance on your channel, and they never dance on theirs, ask them to dance with you!
+
+_**[Matthias](https://www.youtube.com/channel/UC9VX0KXNH20x9MCH3xGjisg)** gets **[NateWantsToBattle](https://www.youtube.com/user/NateWantsToBattle)** – who does song parodies on his channel – to make balloon animals._
+
+Turnabout is fair play, of course, so be prepared to step a bit outside of your own comfort zone when you appear as a guest in one of their videos.
+
+Alternatively, you could just introduce your guest and then let them take over and then do the same thing in reverse on their channel.
+
+#### 3\. Long distance collabs
+
+_**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in Toronto and **[Aja](https://www.youtube.com/channel/UCmiE7g4J3QXBwPUybbRdioQ)** is in LA, but that doesn’t mean they can’t cook together! Also: Lauren’s channel is about food and Aja’s is about healthy living – they aren’t exactly the same, but they’re related enough that the collab makes sense._
+
+Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
+
+## 4\. Getting the Most Out of Your Collaborations
+
+Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
+
+Commenting on each other’s videos, and responding to viewer comments, is one of the best. It will help you seem more like a person who is being introduced than a guest star in a video.
+
+![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
+
+_Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
+
+ What have your experiences with YouTube collaborations been like?
+
+## Use Split-Screen Presets to Create Collab Videos in Filmora
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The following post will teach you how to find and contact partners for YouTube collaborations, as well as provide advice for actually making the collab. We also did a post earlier this week about [**how to get other creators to collab with you,**](https://tools.techidaily.com/wondershare/filmora/download/)which includes videos from 4 different YouTubers on that subject.
+
+* [**Choosing A Potential Partner**](#choose)
+* [**How to Contact A Partner**](#contact)
+* [**Types of collab videos**](#types)  
+  * [**Shout outs**](#shout)  
+  * [**Guest spots**](#guest)  
+  * [**Long-distance collabs**](#distance)
+* [**Getting the Most Out of Your Collaborations**](#getmore)
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 ## 1\. Choosing A Potential Partner
 
 Before you think about how you’re going to approach someone you need to decide who you want to approach.
@@ -654,12 +738,6 @@ Sometimes people leave contact info in their video descriptions, but it might be
 
 Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is good too, but you should use those platforms more to build a relationship that could lead to a collab. If someone had never commented on a video of yours before and then commented once just to ask you to collab it’d be hard to believe they were really interested in your channel.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Popular Types of Collab Videos
 
 _[**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ)talks about different types of collabs and how well they work._
@@ -691,11 +769,9 @@ _**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in To
 Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Getting the Most Out of Your Collaborations
 
 Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
@@ -708,326 +784,14 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
 
  What have your experiences with YouTube collaborations been like?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Use Split-Screen Presets to Create Collab Videos in Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-The following post will teach you how to find and contact partners for YouTube collaborations, as well as provide advice for actually making the collab. We also did a post earlier this week about [**how to get other creators to collab with you,**](https://tools.techidaily.com/wondershare/filmora/download/)which includes videos from 4 different YouTubers on that subject.
-
-* [**Choosing A Potential Partner**](#choose)
-* [**How to Contact A Partner**](#contact)
-* [**Types of collab videos**](#types)  
-  * [**Shout outs**](#shout)  
-  * [**Guest spots**](#guest)  
-  * [**Long-distance collabs**](#distance)
-* [**Getting the Most Out of Your Collaborations**](#getmore)
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## 1\. Choosing A Potential Partner
-
-Before you think about how you’re going to approach someone you need to decide who you want to approach.
-
-A lot of people automatically want to approach their YouTube hero, and that can be a mistake. Liking your partner’s videos is a must – why would you want to refer your subscribers to someone whose channel you wouldn’t watch yourself? – but it can be really hard to get someone with a significantly bigger channel than yours to work with you.
-
-![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-_Will Kitty get to collab with the big dog?_
-
-Larger YouTubers get a lot of collab requests, and they are really busy with their own channels. Even if they love your content, it can be hard to justify taking time away from working on their own channel to do videos that won’t help them grow too.
-
-Collaborating with someone your own size means you both stand to gain equally in channel growth. Instead of approaching someone you love that’s huge, try finding someone you like just as much whose sub count is similar to yours.
-
-There are exceptions to this, of course. The team at **[Mr.Kate](https://www.youtube.com/channel/UCDVPcEbVLQgLZX0Rt6jo34A)** managed to work with YouTubers who had millions of subs while they were still under 1 million. They got these high profile collabs because they had something additional to offer that made up for the subscriber gap – they were redesigning the apartments, offices, or studios of the YouTubers they did the collabs with. If you want to work with someone bigger than you, think about what you might be able to offer them in place of new subscribers.
-
-_Mr.Kate makes over **[MyLifeAsEva](https://www.youtube.com/channel/UCAoMPWcQKA%5F9Af5YhWdrZgw?sub%5Fconfirmation=1)**’s bedroom._
-
-Also, try to find someone whose channel has something in common with yours thematically so you know your subscribers will be interested in them. They don’t have to do exactly what you do, but your topics should be related. For example: if you do quirky video game reviews and they do quirky movie reviews, you could team up to review a movie based on a game. That would make sense. But if you quirky video game reviews and they review do very serious ice cream reviews, that’ll make a lot less sense.
-
-A good way to find potentially collab partners is to look at your list of subscribers. You already know everyone there likes your channel!
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## 2\. How to contact a partner
-
-Sometimes people leave contact info in their video descriptions, but it might be easier to go to the **About** tab on their channel page and check for an email address. Look for a field that says **for business inquiries**, click on **view email address**, and use the CAPTCHA that appears to prove you aren’t a robot.
-
-Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is good too, but you should use those platforms more to build a relationship that could lead to a collab. If someone had never commented on a video of yours before and then commented once just to ask you to collab it’d be hard to believe they were really interested in your channel.
-
-## 3\. Popular Types of Collab Videos
-
-_[**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ)talks about different types of collabs and how well they work._
-
-In most cases when you do a collab, you’ll each want to have content to post to your own channels (unless you’re doing some type of interview). You don’t want to put a lot of effort into a video that won’t end up being ‘yours’. Here are a few different ways to collaborate:
-
-#### #1\. Shout outs
-
-In this type of collab all you do is mention each other and, usually, use YouTube cards to link to each other’s channels. You make a video that is completely yours, and at some point in it you talk about your partner’s channel and why you like it. To make things fair, you should discuss how long the mentions will be and where in the videos they will happen. It wouldn’t feel good to gush about how great someone is for a full minute near the beginning of your video and have them spend two seconds mentioning you near the end of theirs.
-
-I personally don’t check people out just because someone I like mentions them, so this might not be the best way to go if you’re hoping to bring in new subscribers. It is the easiest kind of collab to do, though.
-
-#### 2\. Guest spots
-
-This is my favorite kind of collab to watch, because each YouTuber has sole creative control over the video that goes on their channel. Instead of trying to blend your styles together, you each make videos that reflect your own personal styles.
-
-For your video, you have the other vlogger on as a guest. In the video you do the same kinds of things your fans like watching you do, and you include the other person. If they’re alright with it, it can be fun to draw them a bit outside their comfort zone. If you like to dance on your channel, and they never dance on theirs, ask them to dance with you!
-
-_**[Matthias](https://www.youtube.com/channel/UC9VX0KXNH20x9MCH3xGjisg)** gets **[NateWantsToBattle](https://www.youtube.com/user/NateWantsToBattle)** – who does song parodies on his channel – to make balloon animals._
-
-Turnabout is fair play, of course, so be prepared to step a bit outside of your own comfort zone when you appear as a guest in one of their videos.
-
-Alternatively, you could just introduce your guest and then let them take over and then do the same thing in reverse on their channel.
-
-#### 3\. Long distance collabs
-
-_**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in Toronto and **[Aja](https://www.youtube.com/channel/UCmiE7g4J3QXBwPUybbRdioQ)** is in LA, but that doesn’t mean they can’t cook together! Also: Lauren’s channel is about food and Aja’s is about healthy living – they aren’t exactly the same, but they’re related enough that the collab makes sense._
-
-Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
-
-## 4\. Getting the Most Out of Your Collaborations
-
-Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
-
-Commenting on each other’s videos, and responding to viewer comments, is one of the best. It will help you seem more like a person who is being introduced than a guest star in a video.
-
-![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-_Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
-
- What have your experiences with YouTube collaborations been like?
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Use Split-Screen Presets to Create Collab Videos in Filmora
-
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-The following post will teach you how to find and contact partners for YouTube collaborations, as well as provide advice for actually making the collab. We also did a post earlier this week about [**how to get other creators to collab with you,**](https://tools.techidaily.com/wondershare/filmora/download/)which includes videos from 4 different YouTubers on that subject.
-
-* [**Choosing A Potential Partner**](#choose)
-* [**How to Contact A Partner**](#contact)
-* [**Types of collab videos**](#types)  
-  * [**Shout outs**](#shout)  
-  * [**Guest spots**](#guest)  
-  * [**Long-distance collabs**](#distance)
-* [**Getting the Most Out of Your Collaborations**](#getmore)
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## 1\. Choosing A Potential Partner
-
-Before you think about how you’re going to approach someone you need to decide who you want to approach.
-
-A lot of people automatically want to approach their YouTube hero, and that can be a mistake. Liking your partner’s videos is a must – why would you want to refer your subscribers to someone whose channel you wouldn’t watch yourself? – but it can be really hard to get someone with a significantly bigger channel than yours to work with you.
-
-![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
-
-_Will Kitty get to collab with the big dog?_
-
-Larger YouTubers get a lot of collab requests, and they are really busy with their own channels. Even if they love your content, it can be hard to justify taking time away from working on their own channel to do videos that won’t help them grow too.
-
-Collaborating with someone your own size means you both stand to gain equally in channel growth. Instead of approaching someone you love that’s huge, try finding someone you like just as much whose sub count is similar to yours.
-
-There are exceptions to this, of course. The team at **[Mr.Kate](https://www.youtube.com/channel/UCDVPcEbVLQgLZX0Rt6jo34A)** managed to work with YouTubers who had millions of subs while they were still under 1 million. They got these high profile collabs because they had something additional to offer that made up for the subscriber gap – they were redesigning the apartments, offices, or studios of the YouTubers they did the collabs with. If you want to work with someone bigger than you, think about what you might be able to offer them in place of new subscribers.
-
-_Mr.Kate makes over **[MyLifeAsEva](https://www.youtube.com/channel/UCAoMPWcQKA%5F9Af5YhWdrZgw?sub%5Fconfirmation=1)**’s bedroom._
-
-Also, try to find someone whose channel has something in common with yours thematically so you know your subscribers will be interested in them. They don’t have to do exactly what you do, but your topics should be related. For example: if you do quirky video game reviews and they do quirky movie reviews, you could team up to review a movie based on a game. That would make sense. But if you quirky video game reviews and they review do very serious ice cream reviews, that’ll make a lot less sense.
-
-A good way to find potentially collab partners is to look at your list of subscribers. You already know everyone there likes your channel!
-
-## 2\. How to contact a partner
-
-Sometimes people leave contact info in their video descriptions, but it might be easier to go to the **About** tab on their channel page and check for an email address. Look for a field that says **for business inquiries**, click on **view email address**, and use the CAPTCHA that appears to prove you aren’t a robot.
-
-Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is good too, but you should use those platforms more to build a relationship that could lead to a collab. If someone had never commented on a video of yours before and then commented once just to ask you to collab it’d be hard to believe they were really interested in your channel.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## 3\. Popular Types of Collab Videos
-
-_[**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ)talks about different types of collabs and how well they work._
-
-In most cases when you do a collab, you’ll each want to have content to post to your own channels (unless you’re doing some type of interview). You don’t want to put a lot of effort into a video that won’t end up being ‘yours’. Here are a few different ways to collaborate:
-
-#### #1\. Shout outs
-
-In this type of collab all you do is mention each other and, usually, use YouTube cards to link to each other’s channels. You make a video that is completely yours, and at some point in it you talk about your partner’s channel and why you like it. To make things fair, you should discuss how long the mentions will be and where in the videos they will happen. It wouldn’t feel good to gush about how great someone is for a full minute near the beginning of your video and have them spend two seconds mentioning you near the end of theirs.
-
-I personally don’t check people out just because someone I like mentions them, so this might not be the best way to go if you’re hoping to bring in new subscribers. It is the easiest kind of collab to do, though.
-
-#### 2\. Guest spots
-
-This is my favorite kind of collab to watch, because each YouTuber has sole creative control over the video that goes on their channel. Instead of trying to blend your styles together, you each make videos that reflect your own personal styles.
-
-For your video, you have the other vlogger on as a guest. In the video you do the same kinds of things your fans like watching you do, and you include the other person. If they’re alright with it, it can be fun to draw them a bit outside their comfort zone. If you like to dance on your channel, and they never dance on theirs, ask them to dance with you!
-
-_**[Matthias](https://www.youtube.com/channel/UC9VX0KXNH20x9MCH3xGjisg)** gets **[NateWantsToBattle](https://www.youtube.com/user/NateWantsToBattle)** – who does song parodies on his channel – to make balloon animals._
-
-Turnabout is fair play, of course, so be prepared to step a bit outside of your own comfort zone when you appear as a guest in one of their videos.
-
-Alternatively, you could just introduce your guest and then let them take over and then do the same thing in reverse on their channel.
-
-#### 3\. Long distance collabs
-
-_**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in Toronto and **[Aja](https://www.youtube.com/channel/UCmiE7g4J3QXBwPUybbRdioQ)** is in LA, but that doesn’t mean they can’t cook together! Also: Lauren’s channel is about food and Aja’s is about healthy living – they aren’t exactly the same, but they’re related enough that the collab makes sense._
-
-Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
-
-## 4\. Getting the Most Out of Your Collaborations
-
-Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
-
-Commenting on each other’s videos, and responding to viewer comments, is one of the best. It will help you seem more like a person who is being introduced than a guest star in a video.
-
-![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-_Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
-
- What have your experiences with YouTube collaborations been like?
-
-## Use Split-Screen Presets to Create Collab Videos in Filmora
-
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -1047,9 +811,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-ensuring-precision-the-art-of-skype-call-documentation/"><u>[New] Ensuring Precision The Art of Skype Call Documentation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-key-approaches-converting-visual-content-on-pinterest-to-audio/"><u>[New] Key Approaches Converting Visual Content on Pinterest To Audio</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cut-to-perfection-editing-video-duration-on-youtube/"><u>[Updated] Cut to Perfection Editing Video Duration on YouTube</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-androids-premier-8-apps-harmonizing-free-and-paid-videomosaic-experience/"><u>[Updated] In 2024, Android's Premier 8 Apps Harmonizing Free & Paid Videomosaic Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-diy-youtube-thumbnails-made-simple/"><u>[Updated] In 2024, DIY YouTube Thumbnails Made Simple</u></a></li>
+<li><a href="https://location-fake.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/beginners-blueprint-to-youtube-streaming-games-for-2024/"><u>Beginner's Blueprint to YouTube Streaming Games for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/converting-youtube-broadcasts-into-listenable-formats/"><u>Converting YouTube Broadcasts Into Listenable Formats</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cutting-edge-youtube-video-editing-techniques-premiere-pro-for-2024/"><u>Cutting Edge YouTube Video Editing Techniques - Premiere Pro for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/hulu-stuck-solve-common-playback-problems-and-revive-your-streaming-experience/"><u>Hulu Stuck? Solve Common Playback Problems and Revive Your Streaming Experience</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-video-magic-summit/"><u>In 2024, Crafting Video Magic Summit</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-unleash-your-creativity-3-simple-ways-to-record-video-games/"><u>New Unleash Your Creativity 3 Simple Ways to Record Video Games</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/seamlessly-embedding-youtube-subtitles-an-easy-to-follow-guide/"><u>Seamlessly Embedding YouTube Subtitles An Easy-to-Follow Guide</u></a></li>
+</ul></div>
 

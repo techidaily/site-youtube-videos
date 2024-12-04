@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2024-11-17T17:13:22.979Z
-updated: 2024-11-24T23:17:59.606Z
+date: 2024-12-01T20:22:43.880Z
+updated: 2024-12-03T21:27:43.518Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ They say that less is more, so let's have a look at how you can apply this princ
 10. [Video Rant](#ten)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Introduce Yourself
@@ -57,6 +57,10 @@ Anything that happens during your day can become a topic for your YouTube vlog. 
 
 Strive to make visually dynamic videos, because just sitting or standing and talking in front of a camera for a few minutes isn't going to create much on-screen action.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Express An Opinion
 
 Social media culture has enabled us to receive news instantly and react to it in any way we want. If you didn't like the latest update of your favorite video game, or if you’re excited about a line of makeup that’s coming out soon, make a video about it and share your opinion with the community that follows you on YouTube.
@@ -65,15 +69,15 @@ Opinion videos are great conversation starters. Expressing an opinion through a 
 
 You can express your opinions on virtually any topic, but being respectful while doing so is for the best if you don’t want to find yourself in a YouTube feud.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Review Anything
 
 Everywhere around you, there are items you can review. The Apple Watch and the latest season of Game of Thrones are equally good choices for a review video. However, when creating review videos you need to make sure that all the factual information you have is accurate, which is why it is much better to make review videos about topics you know a lot about.
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Your Favorite Songs / Movies / Etc
 
@@ -86,10 +90,6 @@ You can do a ‘my 5 favorite songs’ type of video, or talk in detail about ju
 There were over two billion smartphone users worldwide in 2017, and this number is only going to continue rising in the next couple of years. Furthermore, thousands of YouTubers are already producing unimaginable amounts of videos about the latest apps or smartphone devices.
 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
 
@@ -118,7 +118,7 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Start Editing Videos with Beginner-friendly Software
@@ -128,7 +128,7 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -148,16 +148,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-quickquip-quartermotion-grip/"><u>[Updated] In 2024, QuickQuip QuarterMotion Grip</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-screen-saver-games-the-top-9-independent-titles-for-android-no-wi-fi/"><u>[Updated] In 2024, Screen-Saver Games The Top 9 Independent Titles for Android (No Wi-Fi)</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-perfect-tape-mac-based-recording/"><u>[Updated] Perfect Tape Mac-Based Recording</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-creating-costless-webinars-on-youtube-a-handbook/"><u>2024 Approved Creating Costless Webinars on YouTube A Handbook</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-success-in-youtubes-creator-hub-for-2024/"><u>Crafting Success in YouTube's Creator Hub for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/easy-online-and-offline-methods-transforming-mp4-files-into-xvid-format/"><u>Easy Online & Offline Methods: Transforming MP4 Files Into XviD Format</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-ultimate-instagram-hashtag-guide/"><u>In 2024, The Ultimate Instagram Hashtag Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-steam-display-fixes-on-microsoft-os/"><u>Mastering Steam Display Fixes on Microsoft OS</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/maximizing-your-dslr-footage-with-pc-or-mac-for-social-media/"><u>Maximizing Your DSLR Footage with PC or Mac for Social Media</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-complete-youtube-video-editor-reference-manual/"><u>The Complete YouTube Video Editor Reference Manual</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/turning-your-youtube-views-into-a-screen-capture-made-simple-and-free/"><u>Turning Your YouTube Views Into a Screen Capture Made Simple and Free</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-video-clarity-with-expert-tips-for-youtube-editors/"><u>[New] Elevate Video Clarity with Expert Tips for YouTube Editors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-engineering-captivating-video-teasers-for-online-presence/"><u>[New] Engineering Captivating Video Teasers for Online Presence</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-create-impactful-valorant-thumbnails-a-compreayers-guide/"><u>[New] In 2024, How to Create Impactful Valorant Thumbnails A Compreayer's Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-beginners-guide-to-crafting-trendy-mac-video-content/"><u>[Updated] Beginner's Guide to Crafting Trendy Mac Video Content</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-superior-economical-live-camera-snapper-for-2024/"><u>[Updated] Superior Economical Live Camera Snapper for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-links-for-acquiring-youtube-preview-templates-online/"><u>2024 Approved Essential Links for Acquiring YouTube Preview Templates Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-comprehensive-tour-youtube-creator-suite-for-2024/"><u>A Comprehensive Tour YouTube Creator Suite for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-chromebook-c202-sa-evaluation-built-tough-for-the-academic-and-young-user-base/"><u>Asus Chromebook C202 SA Evaluation: Built Tough for the Academic & Young User Base</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/confirming-youtube-pro-rated-earnings/"><u>Confirming YouTube Pro-Rated Earnings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/content-creators-earnings-timeline-on-youtube/"><u>Content Creators’ Earnings Timeline on YouTube</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/from-antitrust-battles-to-smart-growth-samsungs-rise-on-the-ai-frontier-outshines-industry-peers-in-latest-tech-index/"><u>From Antitrust Battles to Smart Growth: Samsung's Rise on the AI Frontier Outshines Industry Peers in Latest Tech Index</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harnessing-voice-recognition-for-dynamic-decks-for-2024/"><u>Harnessing Voice Recognition for Dynamic Decks for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-bite-size-broadcasting-battle-which-platform-dominates-in-shorter-videos/"><u>In 2024, Bite-Size Broadcasting Battle Which Platform Dominates in Shorter Videos?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-vivo-y100a-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-essential-components-of-podcast-scripting-guide-plus-free-examples/"><u>In 2024, The Essential Components of Podcast Scripting (Guide + Free Examples)</u></a></li>
+<li><a href="https://extra-support.techidaily.com/prime-free-enhancement-tool-for-pics-onlineapp-for-2024/"><u>Prime Free Enhancement Tool for Pics Online/App for 2024</u></a></li>
 </ul></div>
 

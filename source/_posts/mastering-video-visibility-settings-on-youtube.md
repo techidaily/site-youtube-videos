@@ -1,7 +1,7 @@
 ---
 title: "Mastering Video Visibility Settings on YouTube"
-date: 2024-11-23T16:29:41.055Z
-updated: 2024-11-24T23:06:28.005Z
+date: 2024-11-26T17:10:18.263Z
+updated: 2024-12-04T00:12:34.560Z
 tags:
   - ai video
   - ai youtube
@@ -38,10 +38,6 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -64,6 +60,10 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -74,10 +74,6 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -85,13 +81,13 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
@@ -101,7 +97,7 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -109,6 +105,10 @@ thumbnail: https://www.lifewire.com/thmb/qNkFgtP2CzmQ0IlAZm65I2IKxgw=/540x405/fi
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -127,16 +127,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-how-to-take-screenshots-on-a-chromebook/"><u>[New] 2024 Approved How to Take Screenshots on A Chromebook</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-building-a-studio-quality-setup-at-home/"><u>[New] Building a Studio-Quality Setup at Home</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-insights-for-integrating-hashtags-into-game-focused-yt-content/"><u>[New] Essential Insights for Integrating Hashtags Into Game-Focused YT Content</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-excellence-the-thorough-review-of-the-samsung-galaxy-a20-for-savvy-android-users/"><u>Affordable Excellence: The Thorough Review of the Samsung Galaxy A20 for Savvy Android Users</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-update-thinkpad-t420s-drivers-for-windows-11-a-comprehensive-guide/"><u>Download and Update ThinkPad T420s Drivers for Windows 11: A Comprehensive Guide</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fixing-invalid-service-installation-parameters-in-inf/"><u>Fixing Invalid Service Installation Parameters in INF</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/maximizing-your-monetary-gains-on-social-media-with-snapchat/"><u>Maximizing Your Monetary Gains on Social Media with Snapchat</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-12-tactics-for-amplifying-your-youtube-traffic/"><u>Top 12 Tactics for Amplifying Your YouTube Traffic</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/transformative-tips-making-an-indelible-mark-in-the-digital-world/"><u>Transformative Tips Making an Indelible Mark in the Digital World</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unleash-creativity-with-these-8-mirrorless-cams-for-video/"><u>Unleash Creativity with These 8 Mirrorless Cams For Video</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Realme Narzo 60 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-crafting-a-youtube-video-essential-writing-guide/"><u>[New] Crafting a YouTube Video Essential Writing Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-ultimate-compendium-of-top-rated-instagram-analytics-applications/"><u>[New] In 2024, The Ultimate Compendium of Top-Rated Instagram Analytics Applications</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-direct-youtube-stream-of-google-meet-step-by-step-instructions/"><u>[Updated] Direct YouTube Stream of Google Meet - Step-by-Step Instructions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-sony-s6700-updated-summary-unpacked/"><u>[Updated] Sony S6700 Updated Summary Unpacked</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-avoid-blandness-optimize-your-thumbnail-with-20-fonts/"><u>2024 Approved Avoid Blandness - Optimize Your Thumbnail with 20 Fonts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/bring-your-spotify-mixes-online-5-top-playlist-conversion-apps-for-youtube/"><u>Bring Your Spotify Mixes Online 5 Top Playlist Conversion Apps for YouTube</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/complete-guide-connecting-your-subwoofer-with-a-samsung-soundbar/"><u>Complete Guide: Connecting Your Subwoofer with a Samsung Soundbar</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-youtube-short-content-techniques-unveiled-for-2024/"><u>Essential YouTube Short Content Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/flickering-fonts-2-innovative-text-techniques/"><u>Flickering Fonts 2 Innovative Text Techniques</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-teleport-your-gps-location-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Vivo X90S? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-amplify-your-storytelling-music-for-instagram-stories-and-videos/"><u>In 2024, Amplify Your Storytelling Music for Instagram Stories & Videos</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Come up With the Best Pokemon Team On Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-secret-sauce-of-submillion-success-youtube-edition/"><u>In 2024, The Secret Sauce of Submillion Success Youtube Edition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-video-landscape-vimeo-and-youtube-distinguished/"><u>Navigating Video Landscape Vimeo and YouTube Distinguished</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/1726030615059-pc/"><u>スマートフォン撮影したビデオがPC上で動かない理由・対策</u></a></li>
 </ul></div>
 

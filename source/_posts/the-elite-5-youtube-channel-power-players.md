@@ -1,7 +1,7 @@
 ---
 title: "\"The Elite 5  YouTube Channel Power Players\""
-date: 2024-11-23T21:28:05.520Z
-updated: 2024-11-24T20:57:05.769Z
+date: 2024-11-30T17:25:55.504Z
+updated: 2024-12-03T19:04:27.874Z
 tags:
   - ai video
   - ai youtube
@@ -58,10 +58,6 @@ YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in G
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ###  2\.  HolaSoyGerman
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
@@ -71,7 +67,7 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  3\.  ElrubiusOMG
@@ -86,10 +82,6 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
@@ -97,16 +89,12 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -116,11 +104,23 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -137,24 +137,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-aim-higher-boosting-views-and-reach-on-youtube/"><u>[New] Aim Higher Boosting Views and Reach on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-discover-the-tricks-to-recording-and-screencasting-your-youtube-views-without-cash/"><u>[New] Discover The Tricks to Recording & Screencasting Your YouTube Views without Cash</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-ergonomic-hold-techniques-for-clarity/"><u>[New] Ergonomic Hold Techniques for Clarity</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-influencing-minds-with-music-selection-for-movie-previews/"><u>[New] Influencing Minds with Music Selection for Movie Previews</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/op-insights-into-2018-fifa-football-videos-on-youtube-infographic-for-2024/"><u>[New] Top Insights Into 2018 FIFA Football Videos On YouTube [Infographic] for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-best-mac-slicer-software-enhance-video-production-prowess/"><u>[Updated] Best Mac Slicer Software Enhance Video Production Prowess</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-steps-to-apply-a-creative-commons-copyright/"><u>[Updated] Essential Steps to Apply a Creative Commons Copyright</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-screen-lock-pin-on-vivo-y77t-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Vivo Y77t Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-infinix-zero-30-5g-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Infinix Zero 30 5G Is Unlocked</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-the-activation-lock-on-your-ipad-and-apple-iphone-12-pro-max-without-apple-account-by-drfone-ios/"><u>In 2024, How to Remove the Activation Lock On your iPad and Apple iPhone 12 Pro Max without Apple Account</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-stolen-iphone-se-in-different-conditionsin-by-drfone-ios/"><u>In 2024, How To Unlock Stolen iPhone SE In Different Conditionsin</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-partner-selection-for-youtube-joint-ventures/"><u>Navigating Partner Selection for YouTube Joint Ventures</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-video-aspect-ratio-how-to-adjust-and-customize/"><u>New In 2024, Video Aspect Ratio How to Adjust and Customize</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/strategies-for-captivating-end-moments/"><u>Strategies for Captivating End Moments</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-setup-for-championship-streaming/"><u>The Ultimate Setup for Championship Streaming</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-youtube-lives-thumbnail-code/"><u>Unlocking YouTube Live's Thumbnail Code</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unmasking-impostor-gpts-with-strategic-acknowledgments/"><u>Unmasking Impostor GPTs with Strategic Acknowledgments</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-identify-some-outdated-hardware-drivers-in-windows-1110-by-drivereasy-guide/"><u>Use Device Manager to identify some outdated hardware drivers in Windows 11/10</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/wie-kann-man-onedrive-dateiubertragungen-und-geloschte-dokumente-wiederherstellen/"><u>Wie Kann Man OneDrive-Dateiübertragungen Und Gelöschte Dokumente Wiederherstellen?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-can-youtube-sub4sub-really-enhance-viewing-experience/"><u>[New] Can YouTube Sub4Sub Really Enhance Viewing Experience?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-essential-elements-for-fascinating-vlog-dialogues/"><u>[Updated] Essential Elements for Fascinating Vlog Dialogues</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-essential-guide-for-youtube-video-clips/"><u>[Updated] Essential Guide for YouTube Video Clips</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-live-streaming-console-gaming-secrets-on-a-computer/"><u>[Updated] Live-Streaming Console Gaming Secrets on a Computer</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-logitech-4k-pro-webcam-complete-review-for-2024/"><u>[Updated] Logitech 4K Pro Webcam Complete Review for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-get-hooked-on-fast-forward-finesse-in-snapchat-writes/"><u>2024 Approved Get Hooked on Fast-Forward Finesse in Snapchat' Writes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-positivity-in-a-constructive-space-for-2024/"><u>Elevating Positivity in a Constructive Space for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-prevent-thumbnail-absence-in-shorts-uploads/"><u>How to Prevent Thumbnail Absence in Shorts Uploads</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/launching-a-channel-a-comprehensive-discosteps-guide-for-2024/"><u>Launching a Channel A Comprehensive DiscoSteps Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/5-video-vaults-for-science-buffs-online-for-2024/"><u>Top 15 Video Vaults for Science Buffs Online for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1716463575911-top-tier-video-transcription-aid-automated/"><u>Top-Tier Video Transcription Aid, Automated!</u></a></li>
+<li><a href="https://win-latest.techidaily.com/troubleshooting-tips-fixing-display-problems-with-split-view-in-emeditor/"><u>Troubleshooting Tips: Fixing Display Problems with Split View in EmEditor</u></a></li>
 </ul></div>
 

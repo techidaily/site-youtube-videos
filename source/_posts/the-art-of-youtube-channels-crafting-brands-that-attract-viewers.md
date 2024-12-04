@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of YouTube Channels  Crafting Brands That Attract Viewers\""
-date: 2024-11-18T21:06:27.709Z
-updated: 2024-11-24T20:23:02.480Z
+date: 2024-11-27T20:51:45.254Z
+updated: 2024-12-04T03:08:56.947Z
 tags:
   - ai video
   - ai youtube
@@ -40,15 +40,15 @@ _Michelle Phan’s YouTube brand is calm, whimsical, and aspirational._
 
 They have different branding because they want to reflect different feelings for different audiences.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bad Branding Causes Mistrust
 
 When a branding element does not align with the message or the tone does not match with the material, then the audience is not going to trust what you offer. Without trust, you won’t be able to get the advocacy that is essential for a YouTube channel to grow.
 
 Imagine Michelle Phan using the aggressive colors of Epic Meal Time or vice versa. Pretty weird, huh?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What is YouTube Branding?
 
@@ -75,7 +75,7 @@ Here are notable elements of your channel’s branding:
 \- Style of video
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Start Branding Your YouTube Channel?
@@ -186,10 +186,6 @@ Want more resources for creating your channel’s visual elements? Yes? Well, we
 
 \- [Free Youtube Banners](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Make Your Visuals Consistent?
 
 When a viewer finds your video and considers it pretty interesting, they will then go into your channel page to learn more. Here is where they make their decision: subscribe or not subscribe?
@@ -199,6 +195,10 @@ Consistent branding affirms the viewer that they are in the right place. Peter M
 ![Peter McKinnon](https://images.wondershare.com/filmora/article-images/peter-mckinnon.png)
 
 _Peter McKinnon is best known for his photography and cinematography, and his branding amplifies that._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## But Branding Is Not Designing, It’s A Feeling
 
@@ -218,11 +218,11 @@ The humor in PewDiePie’s brand is consistent, even though his thumbnails don�
 
 ![Philip DeFranco](https://images.wondershare.com/filmora/article-images/philip-defranco.jpg)
 
-_Philip DeFranco supplies commentary on current events with a satirical flair. Like a news broadcast, his branding and video format are consistent, while the daily news is different._
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+_Philip DeFranco supplies commentary on current events with a satirical flair. Like a news broadcast, his branding and video format are consistent, while the daily news is different._
 
 ## Inserting A Watermark
 
@@ -242,14 +242,10 @@ When a viewer lands on their video, the watermark gives the viewer another way t
 
 Want to set up your subscription watermark? Here is a quick tutorial:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Coming Up With A Catchphrase
@@ -259,6 +255,10 @@ A catchphrase can be your greeting or sign off, but it doesn’t have to be an o
 Check out some of the popular YouTuber’s catchphrases:
 
   When coming up with a catchphrase that is connected to your channel’s branding remember how you want the viewer to feel. Do you want to leave them with a smile? Or do you want them to take action?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Thoughts On YouTube Branding
 
@@ -285,16 +285,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/rom-free-to-fortune-unlocking-youtubes-earnings-at-the-500-subscriber-level/"><u>[New] From Free to Fortune Unlocking YouTube's Earnings at the 500 Subscriber Level</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unveiling-vlcs-network-live-stream-capabilities/"><u>[New] Unveiling VLC's Network Live Stream Capabilities</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-7-top-free-instagram-video-clips-tools-for-daily-entertainment/"><u>[Updated] 2024 Approved 7 Top Free Instagram Video Clips Tools for Daily Entertainment</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-ideal-capturists-for-academic-presentations-for-2024/"><u>[Updated] Ideal Capturists for Academic Presentations for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-soundsreview-insight/"><u>[Updated] In 2024, SoundsReview Insight</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-decoding-aspect-ratios-for-effective-youtube-videos/"><u>2024 Approved Decoding Aspect Ratios for Effective YouTube Videos</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-honor-magic-5-pro-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Honor Magic 5 Pro Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/behind-closed-doors-of-youtube-a-discovery-manual/"><u>Behind Closed Doors of YouTube A Discovery Manual</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-online-oasis-secure-re-entry-to-social-networks/"><u>In 2024, Online Oasis Secure Re-Entry to Social Networks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716464492646-jumpstart-your-channelstopwatch-seeking-viewers-with-these-youtube-seo-essentials/"><u>Jumpstart Your Channel’stopwatch-Seeking Viewers with These YouTube SEO Essentials.</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-the-secrets-of-earning-via-youtube/"><u>Unlocking the Secrets of Earning via YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-art-of-youtube-management-by-studio-techniques/"><u>[Updated] The Art of YouTube Management by Studio Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-avoiding-pitfalls-in-sub4sub-key-lessons-from-a-seasoned-guide/"><u>2024 Approved Avoiding Pitfalls in Sub4sub Key Lessons From a Seasoned Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-channels-standing-with-these-tactics/"><u>2024 Approved Elevate Your Channel's Standing with These Tactics</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-outreach-with-strategic-partner-selection-on-youtube/"><u>2024 Approved Enhancing Outreach with Strategic Partner Selection on YouTube</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-infinix-gt-10-pro-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Infinix GT 10 Pro</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/color-dynamics-bringing-artistic-vision-to-life/"><u>Color Dynamics Bringing Artistic Vision to Life</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cutting-edge-techniques-for-aspiring-youtube-game-streamers-for-2024/"><u>Cutting-Edge Techniques for Aspiring YouTube Game Streamers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-your-footage-imovie-videos-for-youtube-enthusiasts/"><u>Elevating Your Footage IMovie Videos for YouTube Enthusiasts</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-issue-of-unresponsive-keyboard-buttons-in-windows-pcs/"><u>Fixing the Issue of Unresponsive Keyboard Buttons in Windows PCs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/review-of-m3-macbook-air-the-accessible-intelligent-machine-from-apple-revolutionizes-computing/"><u>Review of M3 MacBook Air: The Accessible, Intelligent Machine From Apple Revolutionizes Computing</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-comprehensive-guide-to-computer-hardware/"><u>Tom's Tech Hub - Comprehensive Guide to Computer Hardware</u></a></li>
 </ul></div>
 

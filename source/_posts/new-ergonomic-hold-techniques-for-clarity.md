@@ -1,7 +1,7 @@
 ---
 title: "[New] Ergonomic Hold Techniques for Clarity"
-date: 2024-11-19T23:36:07.001Z
-updated: 2024-11-24T18:23:58.764Z
+date: 2024-11-28T21:34:54.829Z
+updated: 2024-12-04T01:52:11.170Z
 tags:
   - ai video
   - ai youtube
@@ -28,20 +28,20 @@ thumbnail: https://thmb.techidaily.com/48bbf816680af2439ef36580a7c2fe3c4155339da
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -59,24 +59,16 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -103,6 +95,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -125,6 +121,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -140,22 +140,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-6-easy-free-youtube-closers-for-your-videos-top-picks/"><u>[New] 6 Easy, Free YouTube Closers for Your Videos (Top Picks)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-behind-the-scenes-of-youtube-income-generation/"><u>[New] Behind the Scenes of YouTube Income Generation</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-how-to-embellish-videos-with-melodies-on-iphone-three-free-ways/"><u>[New] How to Embellish Videos with Melodies on iPhone – Three Free Ways</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-decorate-your-snaps-iphoneandroids-best-10-sticker-enhancing-apps/"><u>[New] In 2024, Decorate Your Snaps IPhone/Android's Best 10 Sticker-Enhancing Apps</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-investigating-the-prowess-of-splitcam-cameras/"><u>[New] In 2024, Investigating the Prowess of SplitCam Cameras</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-salty-sessions-captured-best-cams-for-surfers/"><u>[Updated] In 2024, Salty Sessions Captured - Best Cams for Surfers</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-miniature-asian-houses-innovative-designs-for-mcers-for-2024/"><u>[Updated] Miniature Asian Houses Innovative Designs for MCers for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/audiovisual-power-evaluating-mirrorless-vs-dslr-cameras/"><u>Audiovisual Power Evaluating Mirrorless vs DSLR Cameras</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/beginners-guide-to-pro-youtube-tech/"><u>Beginner's Guide to Pro YouTube Tech</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/behind-the-scenes-how-much-creators-earn-from-youtube-shorts/"><u>Behind the Scenes How Much Creators Earn From YouTube Shorts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/fullframe-alliance-how-to-choose-your-mcn-strategically/"><u>FullFrame Alliance How to Choose Your MCN Strategically</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-huawei-p60-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-visual-wonders-home-made-effects-demystified/"><u>In 2024, Crafting Visual Wonders Home-Made Effects Demystified</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-youtube-presence-filmmaking-with-filmora/"><u>In 2024, Elevate Your YouTube Presence Filmmaking with Filmora</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-the-makeup-mavens-handbook-youtube-edition/"><u>In 2024, The Makeup Maven’s Handbook YouTube Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-definitive-ranking-master-the-list-of-most-exceptional-17-inch-laptops-available/"><u>The Definitive Ranking: Master the List of Most Exceptional 17-Inch Laptops Available</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-burning-videos-to-dvd-a-comprehensive-guide-for-windows-and-mac-users/"><u>Updated 2024 Approved Burning Videos to DVD A Comprehensive Guide for Windows and Mac Users</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-ultimate-gaming-lineup-bike-titles/"><u>[New] 2024 Approved Ultimate Gaming Lineup Bike Titles</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-discovering-the-top-5-smarter-url-lengtheners-for-youtube/"><u>[Updated] Discovering the Top 5 Smarter URL Lengtheners for YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-effective-visual-branding-crafting-compelling-youtube-logos/"><u>2024 Approved Effective Visual Branding Crafting Compelling YouTube Logos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-streamline-your-content-youtube-to-dailymotion-shift/"><u>2024 Approved Streamline Your Content YouTube to Dailymotion Shift</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-your-treasure-trove-of-free-marketing-50plus-youtube-ads-ready-to-go/"><u>2024 Approved Your Treasure Trove of Free Marketing 50+ YouTube Ads Ready to Go!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-video-apps-review-youtube-iphones-and-androids/"><u>Best Video Apps Review YouTube iPhones & Androids</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/budget-friendly-and-high-quality-the-ultimate-guide-to-choosing-wireless-gaming-headsets-in-202/"><u>Budget-Friendly and High-Quality: The Ultimate Guide to Choosing Wireless Gaming Headsets in 202 #</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpts-role-in-personalized-secure-fitness-plans/"><u>ChatGPT's Role in Personalized, Secure Fitness Plans</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-motorola-razr-40-by-drfone-android/"><u>How to Bypass FRP from Motorola Razr 40?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-nokia-c110-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Nokia C110 to iPad | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-boosting-or-slowing-down-the-netflix-playback-rate-guide/"><u>In 2024, Boosting or Slowing Down The Netflix Playback Rate Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-youtubes-queue-with-precision-a-comprehensive-tutorial/"><u>Navigating YouTube's Queue with Precision A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/protecting-data-while-transforming-youtube-videos-into-mp3-files/"><u>Protecting Data While Transforming YouTube Videos Into MP3 Files</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-shot-recording-camcorders-for-the-hunt-for-2024/"><u>Ultimate Shot-Recording Camcorders for the Hunt for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/understanding-youtube-shorts-earning-potential/"><u>Understanding YouTube Shorts Earning Potential</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-secure-video-sharing-youtube-to-gmail-with-google-access/"><u>Unlocking Secure Video Sharing YouTube to Gmail with Google Access</u></a></li>
 </ul></div>
 

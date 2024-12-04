@@ -1,7 +1,7 @@
 ---
 title: "Turn-Based Adventure Unveiled: A Deep Dive Into The Wasteland II - Director's Edition Analysis"
-date: 2024-11-19T19:45:28.750Z
-updated: 2024-11-24T21:10:30.941Z
+date: 2024-12-02T01:45:54.647Z
+updated: 2024-12-03T20:26:37.314Z
 categories:
   - BestProducts
 description: "This Article Describes Turn-Based Adventure Unveiled: A Deep Dive Into The Wasteland II - Director's Edition Analysis"
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
@@ -70,6 +66,10 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -90,14 +90,10 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
@@ -117,7 +113,7 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -128,11 +124,19 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
@@ -143,10 +147,6 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,20 +174,14 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-beginner-friendly-steps-to-record-your-mac-display/"><u>[Updated] 2024 Approved Beginner-Friendly Steps to Record Your Mac Display</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-decoding-the-modern-content-creators-dilemma/"><u>[Updated] Decoding the Modern Content Creator's Dilemma</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-delving-into-youtubes-functionality-after-upload/"><u>[Updated] Delving Into YouTube's Functionality After Upload</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-how-to-edit-uploaded-published-youtube-videos/"><u>[Updated] How to Edit Uploaded/ Published YouTube Videos</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-alluring-headline-manufacturer/"><u>2024 Approved Alluring Headline Manufacturer</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-mini-stories-decoded-whats-inside/"><u>2024 Approved Mini Stories Decoded What's Inside?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-perfect-your-podcast-secrets-for-compelling-opening-videos/"><u>2024 Approved Perfect Your Podcast Secrets for Compelling Opening Videos</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/a-curated-selection-of-top-10-luts-for-lightroom/"><u>A Curated Selection of Top 10 LUTs for LightRoom</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Oppo A1x 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/ensuring-proper-detection-of-bluetooth-adapters-fixing-hidden-entries-in-windows-device-manager/"><u>Ensuring Proper Detection of Bluetooth Adapters: Fixing Hidden Entries in Windows Device Manager</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-do-you-unlock-your-apple-iphone-7-plus-learn-all-4-methods-by-drfone-ios/"><u>How Do You Unlock your Apple iPhone 7 Plus? Learn All 4 Methods</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-the-art-of-choosing-winning-video-thumbnails/"><u>Mastering the Art of Choosing Winning Video Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-top-purchasers-for-monetized-yt-channels/"><u>Navigating Top Purchasers for Monetized YT Channels</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/pro-thumbnails-made-simple-macos-style/"><u>Pro Thumbnails Made Simple MacOS Style</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/viewpoint-visionaries-capturing-the-essence-with-3-viewpoint-strategies-in-reactions/"><u>Viewpoint Visionaries Capturing the Essence with 3 Viewpoint Strategies in Reactions</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-imovie-why-does-it-alter-my-videos-for-2024/"><u>[Updated] IMovie Why Does It Alter My Videos for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-behind-the-scenes-how-much-creators-earn-from-youtube-shorts/"><u>2024 Approved Behind the Scenes How Much Creators Earn From YouTube Shorts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-diy-tripods-how-to-stabilize-your-camera-without-buying-a-tripod/"><u>2024 Approved DIY Tripods| How to Stabilize Your Camera without Buying a Tripod</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-2023s-social-trend-peaks-in-graphs/"><u>Charting 2023'S Social Trend Peaks in Graphs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/diy-youtube-music-collection-a-comprehensive-online-and-app-method/"><u>DIY YouTube Music Collection A Comprehensive Online & App Method</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-to-effortlessly-align-movie-subtitles-unveiling-3-expert-techniques/"><u>How to Effortlessly Align Movie Subtitles: Unveiling 3 Expert Techniques</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-2024-approved-the-most-direct-guide-to-learning-how-to-clone-your-voice/"><u>New 2024 Approved The Most Direct Guide to Learning How to Clone Your Voice</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-top-5-best-vr-video-converters-how-to-convert-regular-videos-to-vr-for-2024/"><u>New Top 5 Best VR Video Converters How to Convert Regular Videos to VR for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Vivo X100 Pro? | Dr.fone</u></a></li>
 </ul></div>
 

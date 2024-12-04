@@ -1,7 +1,7 @@
 ---
 title: "\"Subscriber Supremacy  YouTube's Front-Runners\""
-date: 2024-11-22T20:42:45.149Z
-updated: 2024-11-24T18:29:07.285Z
+date: 2024-11-28T20:35:07.117Z
+updated: 2024-12-03T17:41:34.899Z
 tags:
   - ai video
   - ai youtube
@@ -51,16 +51,12 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Fernanfloo](#fern)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\.  PewDiePie
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
@@ -79,7 +75,7 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
@@ -89,6 +85,10 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -100,6 +100,10 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
 At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 million downloads in the first week. His videos are mostly in Spanish which somewhat limits his audience, but it is safe to say the Fernanfloo channel is among the most popular channels in the Latin American countries since most of his audience comes from Bolivia, Peru, and Ecuador.
@@ -108,16 +112,12 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -137,22 +137,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-the-ultimate-guide-to-optimal-screen-recording/"><u>[New] 2024 Approved The Ultimate Guide to Optimal Screen Recording</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-a-compreehed-guide-to-online-identity-youtube-account-setup/"><u>[New] A Compreehed Guide to Online Identity YouTube Account Setup</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-channel-command-center-masterminding-visionary-content/"><u>[Updated] Channel Command Center Masterminding Visionary Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-cyber-sovereigns-youtubes-number-one-tens/"><u>[Updated] Cyber Sovereigns YouTube’s Number One Tens</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1726029813860-windows/"><u>「Windowsで記録されたオーディオの最適な編集手法」について学ぶ</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/digital-image-detail-enhancement-with-top-frameer-tools/"><u>Digital Image Detail Enhancement with Top Frameer Tools</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-brother-mfc-l2740dw-printer-drivers-for-pc/"><u>Download Brother MFC-L2740DW Printer Drivers for PC</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/expertise-unlocked-find-your-perfect-gadgets-through-toms-hardware/"><u>Expertise Unlocked: Find Your Perfect Gadgets Through Tom's Hardware</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-jailbreak-icloud-locked-apple-iphone-15-pro-by-drfone-ios/"><u>In 2024, How to jailbreak iCloud locked Apple iPhone 15 Pro</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-iphone-8-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>In 2024, Unlock iPhone 8 With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/jumpstart-your-career-with-a-killer-youtube-gaming-channel/"><u>Jumpstart Your Career with a Killer YouTube Gaming Channel</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721478605172-mastering-silence-how-to-ensure-your-ipad-stays-muted-if-your-iphone-is-ringing/"><u>Mastering Silence: How To Ensure Your iPad Stays Muted If Your iPhone Is Ringing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/scholarly-streams-10-best-ed-tutorials-yt/"><u>Scholarly Streams 10 Best Ed Tutorials YT</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/see-the-world-through-different-lenses-3-strategies-for-successful-pov-reactions-on-youtube/"><u>See the World Through Different Lenses 3 Strategies for Successful POV Reactions on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/streaming-excellence-selecting-the-best-webcams-for-youtube/"><u>Streaming Excellence Selecting the Best Webcams for YouTube</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/sunshine-strategies-enhancing-indoor-luminary-quality-for-2024/"><u>Sunshine Strategies Enhancing Indoor Luminary Quality for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/tips-for-effective-tripod-usage-in-video-blogging/"><u>Tips for Effective Tripod Usage in Video Blogging</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-best-smile-generator-for-memes/"><u>[New] Best Smile Generator for Memes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-crafting-effective-teacher-videos-on-youtube-top-10-strategies/"><u>[New] Crafting Effective Teacher Videos on YouTube – Top 10 Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-ensuring-copyright-compliance-in-youtube-to-mp4/"><u>[New] Ensuring Copyright Compliance in Youtube-to-MP4</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-essential-tips-for-ppt-video-production-for-2024/"><u>[New] Essential Tips for PPT Video Production for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-time-lapse-a-guide-with-gopro-studio/"><u>[New] Mastering Time-Lapse A Guide with GoPro Studio</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-iphones-prime-camera-utilities-for-2024/"><u>[Updated] IPhone's Prime Camera Utilities for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-collaborative-listening-made-simple-on-youtube/"><u>2024 Approved Collaborative Listening Made Simple on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-watch-9-festive-feasts-of-film-with-zero-charges-online/"><u>2024 Approved Watch 9 Festive Feasts of Film with Zero Charges Online</u></a></li>
+<li><a href="https://win-premium.techidaily.com/1728505941219-usb/"><u>簡單指南：如何透過電腦通過USB光碟來下載歌曲</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-strategy-to-empower-short-form-content-makers/"><u>Dissecting YouTube’s Strategy to Empower Short-Form Content Makers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-discover-youtubes-frame-advantage-five-free-tools/"><u>In 2024, Discover YouTube's Frame Advantage - Five Free Tools</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-on-apple-iphone-6-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication On Apple iPhone 6? 5 Tips You Must Know</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-unlocking-the-secrets-of-expert-periscope-use/"><u>In 2024, Unlocking the Secrets of Expert Periscope Use</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/personalize-and-protect-youtube-channel-url-made-simple/"><u>Personalize & Protect YouTube Channel URL Made Simple</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocket-traffic-secrets-to-attract-more-viewers-online/"><u>Skyrocket Traffic Secrets to Attract More Viewers Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-mechanics-behind-youtube-once-a-video-goes-live/"><u>The Mechanics Behind YouTube Once a Video Goes Live</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-windows-10s-battery-status-tool-a-comprehensive-guide/"><u>Understanding Windows 10'S Battery Status Tool: A Comprehensive Guide</u></a></li>
 </ul></div>
 

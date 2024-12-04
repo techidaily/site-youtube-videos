@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Confidence  Tips for Trending on YouTube\""
-date: 2024-11-18T21:41:40.631Z
-updated: 2024-11-24T22:21:00.298Z
+date: 2024-12-02T16:19:25.018Z
+updated: 2024-12-03T19:10:06.206Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -58,6 +62,10 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -65,10 +73,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -83,7 +87,7 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -96,6 +100,10 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -105,10 +113,6 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -134,14 +138,10 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -159,18 +159,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-delightful-no-cost-access-to-youtubes-nine-full-length-yule-celebrations/"><u>[New] Delightful, No-Cost Access to YouTube's Nine Full-Length Yule Celebrations</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-enhancing-user-experience-a-quick-how-to-for-youtube-cc-and-subtitles/"><u>[New] Enhancing User Experience A Quick How-To for YouTube CC & Subtitles</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-itop-screen-recorder-essential-or-excessive/"><u>[New] ITop Screen Recorder - Essential or Excessive?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-a-creators-primer-to-understanding-major-content-providers/"><u>[Updated] A Creator's Primer to Understanding Major Content Providers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-elevate-your-channel-hit-the-10000-view-mark-fast/"><u>[Updated] Elevate Your Channel Hit the 10,000 View Mark Fast</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-the-faces-to-watch-top-cosmetic-creatives/"><u>2024 Approved The Faces to Watch Top Cosmetic Creatives</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1726227442060-voc-mp3-movavi/"><u>線上無付費 VOC 至 MP3 音頻改版 - 使用 Movavi 網站音頻編輯器</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discover-top-hardware-picks-expert-insights-from-toms-hardware/"><u>Discover Top Hardware Picks - Expert Insights From Tom's Hardware</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-itel-p55-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Itel P55 5G to Roku | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-analytical-approach-to-youtube-content-performance/"><u>The Analytical Approach to YouTube Content Performance</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-free-videography-programs-perfect-for-indie-filmmakers-for-2024/"><u>Top 8 Free Videography Programs Perfect For Indie Filmmakers for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/transforming-youtube-footage-the-essentials-of-wm-maker-use/"><u>Transforming YouTube Footage The Essentials of WM Maker Use</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/warranty-and-lifespan-higher-quality-led-systems-may-come-with-a-higher-upfront-price-but-can-offer-longer-lifespans-and-better-performance-which-should-be-/"><u>__Warranty and Lifespan Higher Quality LED Systems May Come with a Higher Upfront Price but Can Offer Longer Lifespans and Better Performance, Which Should Be Considered in the Overall Cost Evaluation</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-7-comedy-youtube-video-ideas-that-funny-people-can-try/"><u>[New] 7 Comedy YouTube Video Ideas That Funny People Can Try</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/diting-excellence-sports-videos-that-stand-out-for-2024/"><u>[New] Editing Excellence Sports Videos That Stand Out for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-download-youtube-playlists-without-hassle-our-guide/"><u>[New] In 2024, Download YouTube Playlists Without Hassle - Our Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-stunning-video-capture-best-youtube-cameras-reviewed/"><u>[Updated] 2024 Approved Stunning Video Capture Best YouTube Cameras Reviewed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-charting-a-course-through-youtubes-maker-domain/"><u>[Updated] Charting a Course Through YouTube's Maker Domain</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-6-cost-free-closers-for-your-youtube-video/"><u>[Updated] In 2024, 6 Cost-Free Closers for Your YouTube Video</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-audience-alchemy-converting-shorts-to-sensations/"><u>2024 Approved Audience Alchemy Converting Shorts to Sensations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-captivate-audiences-quickly-shortcuts-for-youtube-trailers-with-filmora/"><u>2024 Approved Captivate Audiences Quickly Shortcuts for YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-vivo-y78-5g-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Vivo Y78 5G Phone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/capture-and-keep-long-term-chat-gpt-storage/"><u>Capture & Keep: Long-Term Chat GPT Storage</u></a></li>
+<li><a href="https://win-dash.techidaily.com/complete-instructions-on-getting-and-installing-your-logitech-g402-drivers/"><u>Complete Instructions on Getting and Installing Your Logitech G402 Drivers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ensuring-thumbnails-show-shorts-video-troubleshooting/"><u>Ensuring Thumbnails Show Shorts Video Troubleshooting</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guia-completa-para-convertir-video-sin-coste-cambiar-formatos-mkv-a-mpeg-usando-freemake-video-converter-gratis/"><u>Guía Completa Para Convertir Vídeo Sin Coste: Cambiar Formatos MKV a MPEG Usando Freemake Video Converter Gratis</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-control-youtube-audio-mobiledesktop-approach/"><u>In 2024, Control YouTube Audio Mobile/Desktop Approach</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-moto-g-power-evaluation-impressive-endurance-and-exceptional-performance/"><u>In-Depth Moto G Power Evaluation: Impressive Endurance & Exceptional Performance</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-creativity-top-10-yt-reaction-hacks/"><u>Mastering Creativity Top 10 YT Reaction Hacks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/shield-yourself-online-strategies-to-hide-visual-identities/"><u>Shield Yourself Online Strategies to Hide Visual Identities</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-guide-updating-your-dell-camera-driver-properly/"><u>Step-by-Step Guide: Updating Your Dell Camera Driver Properly</u></a></li>
 </ul></div>
 

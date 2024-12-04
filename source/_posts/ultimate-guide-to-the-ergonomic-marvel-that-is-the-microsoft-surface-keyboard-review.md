@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to the Ergonomic Marvel That Is The Microsoft Surface Keyboard Review
-date: 2024-11-18T23:31:14.605Z
-updated: 2024-11-24T22:56:27.786Z
+date: 2024-11-27T00:52:11.478Z
+updated: 2024-12-04T00:40:27.152Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Guide to the Ergonomic Marvel That Is The Microsoft Surface Keyboard Review
@@ -16,10 +16,6 @@ thumbnail: https://www.lifewire.com/thmb/fwoVVARzxv1WmJLD7QvU3L8GEJ4=/400x300/fi
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/F035WaL3U8Q-n4fK2WBE6844lMo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -50,7 +46,7 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -79,6 +75,10 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -87,15 +87,15 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -109,6 +109,10 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
@@ -116,7 +120,7 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -132,10 +136,6 @@ Lifewire / Emily Isaacs
 [Microsoft Surface Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-surface-ergonomic-keyboard-review-4780282)
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -179,18 +179,20 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-beyond-the-ordinary-superior-share-like-software-for-2024/"><u>[New] Beyond the Ordinary Superior Share-Like Software for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-deciphering-old-facebook-threads-a-step-by-step-mobile-and-desktop-guide-for-2024/"><u>[New] Deciphering Old Facebook Threads A Step-by-Step Mobile & Desktop Guide for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-crafting-seamless-audiovisual-mixes-in-audacity/"><u>[Updated] 2024 Approved Crafting Seamless Audiovisual Mixes in Audacity</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-mastering-wide-angle-postings-integrating-360-photos-on-mobile-apps/"><u>[Updated] 2024 Approved Mastering Wide Angle Postings Integrating 360 Photos on Mobile Apps</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-lcv-video-monitoring-analysis-for-2024/"><u>[Updated] LCV Video Monitoring Analysis for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/black-ops-cold-war-audio-fixes-expert-solutions-to-bring-back-game-sounds-on-desktops/"><u>Black Ops Cold War Audio Fixes - Expert Solutions to Bring Back Game Sounds on Desktops</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-navigating-bandicams-new-features-the-2023-breakdown/"><u>In 2024, Navigating Bandicam's New Features – The 2023 Breakdown</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Sony Xperia 1 V? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-income-with-youtube-adsense/"><u>Maximizing Income with YouTube AdSense</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/overcoming-obscured-views-during-youtube-playback/"><u>Overcoming Obscured Views During YouTube Playback</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/transforming-spaces-with-channels-top-10-online-tools-revealed/"><u>Transforming Spaces with Channels Top 10 Online Tools Revealed</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/video-production-evolution-prime-lenses-for-youtube-enthusiasts/"><u>Video Production Evolution Prime Lenses for YouTube Enthusiasts</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/windows-7-aktualisierungsblockierung-wie-sie-dennoch-auf-die-neuesten-updates-zugreifen-konnen/"><u>Windows 7 Aktualisierungsblockierung: Wie Sie Dennoch Auf Die Neuesten Updates Zugreifen Können</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-a-guide-to-finding-hidden-youtube-treasures/"><u>[New] A Guide to Finding Hidden YouTube Treasures</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-the-financial-pathway-of-tseries-within-youtube-market-space/"><u>[New] Charting the Financial Pathway of TSeries Within YouTube Market Space</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-crafting-an-uninterrupted-viewing-experience-set-up-youtube-autoplay-on-fb/"><u>[New] In 2024, Crafting an Uninterrupted Viewing Experience Set Up Youtube Autoplay on FB</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-art-of-instagram-story-layering-a-visual-journey/"><u>[New] The Art of Instagram Story Layering A Visual Journey</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevate-your-video-game-top-unboxer-techniques/"><u>[Updated] Elevate Your Video Game Top Unboxer Techniques</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-enhancing-meet-visuals-applying-filters-effects-and-masks/"><u>[Updated] In 2024, Enhancing Meet Visuals Applying Filters, Effects & Masks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-potential-creating-your-youtube-identity-for-2024/"><u>[Updated] Unlocking Potential Creating Your YouTube Identity for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-make-your-own-youtube-opening-and-closing-graphics/"><u>2024 Approved Make Your Own YouTube Opening & Closing Graphics</u></a></li>
+<li><a href="https://blog-min.techidaily.com/clearing-moisture-warnings-fixes-for-liquid-detected-messages-in-ios-usb-connector-ports/"><u>Clearing Moisture Warnings: Fixes for 'Liquid Detected' Messages in iOS USB Connector Ports</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1716464360802-easy-paths-to-profitable-youtube-business-channels-top-10-list/"><u>Easy Paths to Profitable YouTube Business Channels, Top 10 List!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-much-wealth-can-you-generate-on-youtube-using-cpm/"><u>How Much Wealth Can You Generate on YouTube Using CPM?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-best-free-youtube-comment-finder-you-should-try/"><u>In 2024, Best Free YouTube Comment Finder You Should Try</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-redefine-your-viewing-experience-without-xplit/"><u>In 2024, Redefine Your Viewing Experience Without Xplit</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/keyboard-type-errors-corrected-enjoy-smooth-typing-once-again/"><u>Keyboard Type Errors Corrected: Enjoy Smooth Typing Once Again</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-infinix-zero-30-5g-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Infinix Zero 30 5G Location | Dr.fone</u></a></li>
 </ul></div>
 

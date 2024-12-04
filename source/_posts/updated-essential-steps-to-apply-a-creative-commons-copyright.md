@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Essential Steps to Apply a Creative Commons Copyright"
-date: 2024-11-20T20:44:16.500Z
-updated: 2024-11-24T22:51:30.458Z
+date: 2024-12-02T16:21:56.287Z
+updated: 2024-12-03T21:17:01.702Z
 tags:
   - ai video
   - ai youtube
@@ -58,15 +58,15 @@ If you’re using music or other media with this license, all you need to do is 
 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution-ShareAlike – CC BY-SA
 
 If you use music, photos, or any other media licensed this way, then you must both credit the artist and license your video this same way. Meaning, you can’t use YouTube’s standard license and must instead allow for others to use your work the way you are using the licensed media.
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
 
@@ -93,7 +93,7 @@ If you license your video this way, people can use it in whatever way they like 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
@@ -103,7 +103,7 @@ Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
@@ -112,18 +112,18 @@ There aren’t many situations where you would be using media licensed this way 
 
 You also probably shouldn’t use this license for your videos. ‘NoDerivs’ means there are not many ways people could use your content, except to repost full videos and steal your views.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Edit Video with the Most Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -141,22 +141,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://driver-error.techidaily.com/fixed-responsive-keys-restored-to-windows-11/"><u>[Fixed]: Responsive Keys Restored to Windows 11</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-ensuring-thumbnails-show-shorts-video-troubleshooting/"><u>[New] Ensuring Thumbnails Show Shorts Video Troubleshooting</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-enhancing-gopro-footage-minimizing-motion-blur/"><u>[Updated] 2024 Approved Enhancing GoPro Footage Minimizing Motion Blur</u></a></li>
-<li><a href="https://techtrends.techidaily.com/current-best-of-britain-premier-shows-to-watch-on-netflix/"><u>Current Best of Britain: Premier Shows to Watch on Netflix</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-youtubes-strategic-approach-to-short-form-video-promotion/"><u>Decoding YouTube's Strategic Approach to Short-Form Video Promotion</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discovering-gpt-4-in-action-the-mechanisms-behind-these-7-groundbreaking-ai-applications/"><u>Discovering GPT-4 in Action: The Mechanisms Behind These 7 Groundbreaking AI Applications</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-realme-gt-3-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Realme GT 3</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-amplify-your-channel-effortless-tactics-for-more-views/"><u>In 2024, Amplify Your Channel Effortless Tactics for More Views</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-masterful-use-of-luts-in-obs-studio-for-professional-results/"><u>In 2024, Masterful Use of LUTs in OBS Studio for Professional Results</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/leveraging-youtube-top-5-digital-strategies-for-brand-success/"><u>Leveraging YouTube Top 5 Digital Strategies for Brand Success</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/masterful-multiclip-management-on-youtube/"><u>Masterful Multiclip Management on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-youtubes-visual-flow-five-budget-friendly-methods/"><u>Mastering YouTube's Visual Flow - Five Budget-Friendly Methods</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/pro-audios-essential-guide-to-top-10-free-luts-for-2024/"><u>Pro Audio's Essential Guide to Top 10 Free LUTs for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-insiders-manual-posting-youtube-videos-on-yourfb-page/"><u>The Insider's Manual Posting YouTube Videos on YourFB Page</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-smart-way-to-save-youtube-sections-for-2024/"><u>The Smart Way to Save YouTube Sections for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-8-free-roku-streaming-options/"><u>Top 8 Free Roku Streaming Options</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/transform-your-streaming-experience-through-youtubes-av1-technology/"><u>Transform Your Streaming Experience Through YouTube's AV1 Technology</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-crafting-with-colors-principles-in-action/"><u>[New] Crafting with Colors Principles in Action</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-from-lurkers-to-leaders-elevate-your-facebook-game/"><u>[New] In 2024, From Lurkers to Leaders Elevate Your Facebook Game</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-download-facebook-videos-anywhere-winmacosiphone/"><u>[Updated] 2024 Approved Download Facebook Videos Anywhere Win/macOS/iPhone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-audiovisual-rhythm-optimal-dj-content-for-gatherings/"><u>[Updated] Audiovisual Rhythm Optimal DJ Content for Gatherings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-secrets-to-crafting-compelling-openers-in-game-videos-yt-freepremium-for-2024/"><u>[Updated] Secrets to Crafting Compelling Openers in Game Videos (YT Free/Premium) for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-techniques-in-producing-accelerated-video-narratives/"><u>[Updated] Techniques in Producing Accelerated Video Narratives</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-captivate-crowds-mastering-hashtag-use-in-high-traffic-short-videos/"><u>2024 Approved Captivate Crowds Mastering Hashtag Use in High-Traffic Short Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-infinix-zero-5g-2023-turbo-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Infinix Zero 5G 2023 Turbo to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/acquire-high-quality-sounds-for-media-creators/"><u>Acquire High-Quality Sounds for Media Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-your-visibility-with-a-cutting-edge-set-of-banners-in-2024/"><u>Boost Your Visibility with a Cutting-Edge Set of Banners, In 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/craft-a-memorable-first-snap-your-shorts-thumbnail-blueprint-for-2024/"><u>Craft a Memorable First Snap Your Shorts' Thumbnail Blueprint for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/identifying-causes-of-pdhdll-not-detected-and-how-to-resolve-them/"><u>Identifying Causes of 'pdh.dll Not Detected' And How to Resolve Them</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/ps5-worthiness-explored-here-are-4-factors-you-need/"><u>PS5 Worthiness Explored - Here Are 4 Factors You Need</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/tailor-made-youtube-closings-how-to-get-them-right/"><u>Tailor-Made YouTube Closings How to Get Them Right</u></a></li>
 </ul></div>
 
