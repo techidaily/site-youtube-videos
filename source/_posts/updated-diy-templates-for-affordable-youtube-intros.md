@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY Templates for Affordable YouTube Intros"
-date: 2024-11-27T18:59:00.864Z
-updated: 2024-12-04T00:04:35.093Z
+date: 2024-12-04T17:21:59.921Z
+updated: 2024-12-10T18:30:48.090Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ The good news is that YouTube intro making is not a complex process due to some 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle?spm=rs.filmora%5Fweb)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is YouTube Intro?
@@ -73,7 +73,7 @@ An intro makes sure that you get the recognition that you desire. It will also m
 It will make sure that the revenue bases, as well as the sales, are increased. The potential customers will only subscribe to your services and channel if your intro is relevant. Also, you need to keep it short and highly targeted.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Make Your Own Perfect YouTube Intro Using Filmora?
@@ -92,10 +92,6 @@ You need not be a tech-savvy person to operate the program as it is self-explana
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### The Process to create your own YouTube intro by Filmora?
 
 If you want to make intro using Filmora then it is advised to follow the steps as under to get the best outcome.
@@ -104,21 +100,25 @@ If you want to make intro using Filmora then it is advised to follow the steps a
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-import-media-interface.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Head over to “Title” and you can add them to you YouTube intro with ease:
 
 **Step 3:** To add opener you need to head to “Opener” under Titles and right-click the one you want to select. Click apply and it will be added to the timeline.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-openers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** You can also change the duration of the title effects. Drag its edge on the timeline you can also click the clock icon and enter new duration.
 
 **Step 5:** Under the style tab you can change the font, text type, and other settings.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 6:** To edit the intro, even more, click the “Advanced” button to access the advanced editing panel. Add text boxes, shapes and other effects from here.
 
@@ -139,6 +139,10 @@ Step 8: The default length of the filter is 5 seconds that can be extended by dr
 It's very easy right? Download Filmora and make a click-driven intro now!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Key Takeaways to Create Great Attractive YouTube Intro
 
@@ -173,10 +177,6 @@ HD and the high quality intro is the key to your channel’s success. It is high
 **6\. Technically Sound**
 
 It is again important to note that technically the intro that has been made is sound and is to the point. From transitions to fade and from animations to PIP there are a lot of details that should be taken care of. It will make sure that you get the intro that is highly professional and specialized.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Popular YouTube Intro Styles and Templates
 
@@ -239,24 +239,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-compelling-mp4-player-selections-reviewed/"><u>[New] 2024 Approved Compelling MP4 Player Selections Reviewed</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-content-creation-to-revenue-recognition-the-systematic-3-step-formula-for-youtube-income-examination/"><u>[New] In 2024, From Content Creation to Revenue Recognition The Systematic 3-Step Formula for YouTube Income Examination</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-mastering-the-art-of-tinder-profiles-top-tricks-for-instant-love-interest/"><u>[New] Mastering the Art of Tinder Profiles Top Tricks for Instant Love Interest</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-more-than-you-could-dream-or-imagine-final-cut-pro-x-is-a-powerful-software-one-such-hidden-feature-from-fcpx-is-jump-cuts-and-we-shall-know-m/"><u>2024 Approved More than You Could Dream or Imagine, Final Cut Pro X Is a Powerful Software. One Such Hidden Feature From FCPX Is Jump Cuts, and We Shall Know More About Final Cut Pro Jump Cuts in This Article</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-twitter-chatter-on-the-hottest-tiktoks/"><u>2024 Approved Twitter Chatter on the Hottest TikToks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/achieving-profitability-on-youtube-average-view-count-for-success/"><u>Achieving Profitability on YouTube Average View Count for Success</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/automatic-cycling-of-videos-on-iphone-ease-for-2024/"><u>Automatic Cycling of Videos on iPhone Ease for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/building-a-strong-network-how-to-form-effective-youtube-partner-relationships/"><u>Building a Strong Network How to Form Effective YouTube Partner Relationships</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/detailed-walkthrough-to-flawless-youtube-videos-using-imovie-software-for-2024/"><u>Detailed Walkthrough to Flawless YouTube Videos Using iMovie Software for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discover-the-7-most-popular-video-apps-for-iphones-and-android-live-streaming-for-2024/"><u>Discover The 7 Most Popular Video Apps for iPhones & Android Live Streaming for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discover-the-ultimate-list-of-smart-search-tools-for-efficient-web-exploration/"><u>Discover the Ultimate List of Smart Search Tools for Efficient Web Exploration</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-user-commentary-for-2024/"><u>Dissecting YouTubes' User Commentary for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/dive-into-films-at-zero-price-versatile-vob-player-software/"><u>Dive Into Films at Zero Price Versatile VOB PLAYER Software</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-engagement-discover-these-top-12-techniques-for-video-success/"><u>Elevate Engagement - Discover These Top 12 Techniques for Video Success</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/innovative-alternatives-to-openais-pos-mobile-platform/"><u>Innovative Alternatives to OpenAI’s POS Mobile Platform</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716464516434-short-film-synopsis-must-know-points/"><u>Short Film Synopsis Must-Know Points!</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-mp3-cutter-download-for-computer-and-mobile/"><u>Updated MP3 Cutter Download for Computer and Mobile</u></a></li>
-<li><a href="https://win-popular.techidaily.com/1728498174902-windows-1011/"><u>Windows 10/11用のデルスタートアップドライブ作りガイド</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-discovering-top-tools-the-2023-guide-to-browser-capture-tech/"><u>[New] 2024 Approved Discovering Top Tools The 2023 Guide to Browser Capture Tech</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-convert-spotify-playlist-to-youtube-5-best-tools/"><u>[New] Convert Spotify Playlist To YouTube 5 Best Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhancing-youtube-video-screens-without-barriers/"><u>[New] Enhancing YouTube Video Screens Without Barriers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-carminati-ajay-mastering-the-art-and-science-of-online-income/"><u>[Updated] Carminati (Ajay) Mastering the Art and Science of Online Income</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-4k-unveiled-hp-dreamcolors-technological-leap/"><u>[Updated] In 2024, 4K Unveiled HP DreamColor's Technological Leap</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/become-a-pro-at-utilizing-zoom-for-windows-11-users/"><u>Become a Pro at Utilizing Zoom for Windows 11 Users</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/breaking-even-on-youtube-key-view-figures-explored-for-2024/"><u>Breaking Even on YouTube Key View Figures Explored for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/enabling-efficient-access-connecting-win-prefixes-and-microsoft-accounts/"><u>Enabling Efficient Access: Connecting Win Prefixes & MICROSOFT ACCOUNTS</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essentials-for-youtube-music-playlists-for-2024/"><u>Essentials for YouTube Music Playlists for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/gratuita-conversione-dei-file-3gp-usare-lutilita-di-trasformatore-digitale-di-movavi-online/"><u>Gratuita Conversione Dei File .3Gp: Usare L'Utilità Di Trasformatore Digitale Di Movavi Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/hasty-instruction-saving-your-photos-as-youtube-channel-thumbnails/"><u>Hasty Instruction Saving Your Photos as YouTube Channel Thumbnails</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-converting-videos-to-gifs-online-the-ultimate-youtube-resource/"><u>In 2024, Converting Videos to Gifs Online The Ultimate YouTube Resource</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-step-by-step-tutorial-to-create-engaging-valorant-videos-with-thumbnails/"><u>In 2024, Step-by-Step Tutorial to Create Engaging Valorant Videos with Thumbnails</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-strategies-for-securing-an-original-tiktok-hashtag/"><u>In 2024, Strategies for Securing an Original TikTok Hashtag</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-drive-with-the-lihan-lhfm1039-a-comprehensive-review-of-bluetooth-car-stereo-connectivity/"><u>Revolutionize Your Drive with the LIHAN LHFM1039: A Comprehensive Review of Bluetooth Car Stereo Connectivity</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/secure-your-brand-on-youtube-adding-logos-and-watermarks/"><u>Secure Your Brand on YouTube Adding Logos & Watermarks</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-roadmap-to-prominence-increasing-your-apps-popularity-on-apple-tv-platform/"><u>The Roadmap to Prominence: Increasing Your App's Popularity on Apple TV Platform</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-viewing-the-transformers-film-series-sequentially/"><u>The Ultimate Guide: Viewing The Transformers Film Series Sequentially</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/yearly-insights-the-most-impactful-social-graphs/"><u>Yearly Insights - The Most Impactful Social Graphs</u></a></li>
 </ul></div>
 

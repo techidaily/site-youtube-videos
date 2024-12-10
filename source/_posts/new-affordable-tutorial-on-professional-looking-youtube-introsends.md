@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2024-11-27T18:20:47.736Z
-updated: 2024-12-04T02:01:05.614Z
+date: 2024-12-07T18:39:00.818Z
+updated: 2024-12-10T16:59:19.911Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/7c8eb4a6751ebbb720d8baa15eb6264cc6e760acb
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,20 +143,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-your-youtube-presence-filmmaking-with-filmora/"><u>[New] Elevate Your YouTube Presence Filmmaking with Filmora</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-virtual-mastery-top-5-karate-and-taekwondo-games-for-2024/"><u>[New] Virtual Mastery Top 5 Karate and Taekwondo Games for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-youtube-shorts-description-everything-you-need-to-know/"><u>[New] YouTube Shorts Description Everything You Need to Know</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-key-techniques-for-assessing-youtube-engagement-and-profitability/"><u>[Updated] In 2024, Key Techniques for Assessing YouTube Engagement and Profitability</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-study-partners-in-history-top-10-youtubers-and-channels/"><u>2024 Approved Best Study Partners in History Top 10 Youtubers & Channels</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-i-recover-my-data-if-my-iphone-14-pro-screen-turns-black-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Can I recover my data if my iPhone 14 Pro screen turns black? | Stellar</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-command-center-masterminding-visionary-content-for-2024/"><u>Channel Command Center Masterminding Visionary Content for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discovering-the-timeline-for-youtube-earnings/"><u>Discovering the Timeline for YouTube Earnings</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/exploring-microsofts-copilot-its-journey-through-windows-11/"><u>Exploring Microsoft's Copilot: Its Journey Through Windows 11</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-game-crash-issues-in-cult-of-the-lamb-for-windows-users/"><u>Fixing Game Crash Issues in Cult of the Lamb for Windows Users</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-incomplete-configuration-errors-solutions-to-fix-cd-and-dvd-drives-on-windows-11-code-19/"><u>Overcoming Incomplete Configuration Errors: Solutions to Fix CD and DVD Drives on Windows 11 (Code 19)</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/step-by-step-process-for-free-youtube-video-texting/"><u>Step-by-Step Process for FREE YouTube Video Texting</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlock-youtubes-potential-essential-tips-and-techniques-for-optimal-titles/"><u>Unlock YouTube's Potential Essential Tips & Techniques for Optimal Titles</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtubes-iconic-milestone-markers-for-viewership/"><u>YouTube's Iconic Milestone Markers for Viewership</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-5-leading-tools-for-crafting-superior-video-titles-and-tags/"><u>[Updated] 5 Leading Tools for Crafting Superior Video Titles and Tags</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-essential-techniques-to-elevate-your-channels-visibility/"><u>[Updated] Essential Techniques to Elevate Your Channel's Visibility</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-media-content-via-youtube-studio-editing-skills/"><u>2024 Approved Elevate Your Media Content via YouTube Studio Editing Skills</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-step-by-step-guide-to-a-speedy-google-photo-collage-masterpiece/"><u>2024 Approved Step-by-Step Guide to a Speedy Google Photo Collage Masterpiece</u></a></li>
+<li><a href="https://fake-location.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/churning-up-channels-top-gear-list/"><u>Churning Up Channels Top Gear List</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/discovering-the-location-of-your-microsofts-autosave-document-data/"><u>Discovering the Location of Your Microsoft's AutoSave Document Data</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064574-9781071549353-megans-trettonde/"><u>Megans Trettonde | Free Book</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-pictures-from-redmi-k70-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Redmi K70.</u></a></li>
 </ul></div>
 

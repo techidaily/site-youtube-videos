@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Practical Guide To Applying Creative Commons Rights"
-date: 2024-11-03T17:21:57.195Z
-updated: 2024-11-04T16:56:54.949Z
+date: 2024-12-06T17:01:21.470Z
+updated: 2024-12-10T17:23:39.376Z
 tags:
   - ai video
   - ai youtube
@@ -52,17 +52,29 @@ An example of a derivative someone might make of a YouTube video would be auto-t
 
 Here are the 6 creative commons licenses, and a chart you can use as a quick reference tool.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution-ShareAlike – CC BY-SA
 
 If you use music, photos, or any other media licensed this way, then you must both credit the artist and license your video this same way. Meaning, you can’t use YouTube’s standard license and must instead allow for others to use your work the way you are using the licensed media.
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
 
@@ -88,13 +100,6 @@ If you license your video this way, people can use it in whatever way they like 
 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
 
 Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license can be used in and altered for your videos, so long as you aren't making money off those videos. You must also use this same license for the video you create using elements licensed this way.
@@ -102,10 +107,7 @@ Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
@@ -118,20 +120,10 @@ You also probably shouldn’t use this license for your videos. ‘NoDerivs’ m
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -149,18 +141,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-advanced-strategies-for-youtube-audio-editing-mastery/"><u>[New] 2024 Approved Advanced Strategies for YouTube Audio Editing Mastery</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-your-personalized-playlist-blueprint-for-youtube/"><u>[New] Your Personalized Playlist Blueprint for YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-amplify-video-dynamics-a-guide-to-perfecting-jump-cutting/"><u>[Updated] Amplify Video Dynamics A Guide to Perfecting Jump Cutting</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-breaking-into-the-world-of-youtube-stellar-intros-in-imovie/"><u>[Updated] Breaking Into the World of YouTube Stellar Intros in iMovie</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-viewership-with-animated-subscribe-buttons-in-filmora-easy-guide/"><u>2024 Approved Boosting Viewership with Animated Subscribe Buttons in Filmora (Easy Guide)</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-introduction-to-kinetic-graphic-principles/"><u>2024 Approved Introduction to Kinetic Graphic Principles</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/grabacion-y-conversion-de-archivos-convertidor-en-linea-gratuito-mp3-a-ogg-por-movavi/"><u>Grabación Y Conversión De Archivos: Convertidor en Línea Gratuito MP3 a Ogg Por Movavi</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/step-into-the-spotlight-learning-youtube-vlogger-etiquette/"><u>Step Into the Spotlight Learning YouTube Vlogger Etiquette</u></a></li>
-<li><a href="https://fox-that.techidaily.com/stuck-with-iphone-app-downloads-unlock-the-problem-using-our-top-n-solutions/"><u>Stuck with iPhone App Downloads? Unlock the Problem Using Our Top N Solutions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unraveling-the-benefits-of-rapid-youtube-subscription/"><u>Unraveling the Benefits of Rapid YouTube Subscription</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-truth-a-critical-review-of-the-midland-lxt500vp3s-high-capabilities-and-poor-execution/"><u>Unveiling the Truth: A Critical Review of the Midland LXT500VP3's High Capabilities and Poor Execution</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-tech-basics-essential-equipment-guide/"><u>YouTube Tech Basics Essential Equipment Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-creating-illusionary-settings-with-instagrams-chroma-key/"><u>[New] 2024 Approved Creating Illusionary Settings with Instagram’s Chroma Key</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-auto-subscribe-url-creation-for-youtube-enthusiasts/"><u>[New] Auto Subscribe URL Creation for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enhance-your-shorts-fresh-and-original-thumbnails-with-minimal-effort/"><u>[Updated] Enhance Your Shorts Fresh and Original Thumbnails with Minimal Effort</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-skyrocket-traffic-secrets-to-attract-more-viewers-online/"><u>[Updated] Skyrocket Traffic Secrets to Attract More Viewers Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-direct-to-mp3-ease-select-10-video-to-audio-devices/"><u>2024 Approved Direct to Mp3 Ease Select 10 Video-to-Audio Devices</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-iphone-user-guide-to-hdr-image-creation/"><u>2024 Approved IPhone User Guide to HDR Image Creation</u></a></li>
+<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-on-your-iphone-14-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID On Your iPhone 14</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-convert-youtube-music-seamlessly-for-mac-users-2023-edition/"><u>In 2024, Convert YouTube Music Seamlessly for Mac Users, 2023 Edition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-efficiently-removing-youtube-channels-a-device-centric-approach/"><u>In 2024, Efficiently Removing Youtube Channels A Device-Centric Approach</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/lenovo-laptop-wins-over-power-users-with-exceptional-speed-and-robustness-insider-seo-testimony-on-why-it-stands-out-in-the-crowded-market/"><u>Lenovo Laptop Wins Over Power Users with Exceptional Speed and Robustness - Insider SEO Testimony on Why It Stands Out in the Crowded Market</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/spotting-semblances-real-versus-fabricated-data-by-machine-learning/"><u>Spotting Semblances: Real versus Fabricated Data by Machine Learning</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/strategies-for-stumbling-upon-covert-youtube-videos/"><u>Strategies for Stumbling Upon Covert YouTube Videos</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-tecno-camon-30-pro-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Tecno Camon 30 Pro 5G without Him Knowing | Dr.fone</u></a></li>
 </ul></div>
 

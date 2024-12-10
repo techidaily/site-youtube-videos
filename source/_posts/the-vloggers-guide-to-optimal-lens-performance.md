@@ -1,7 +1,7 @@
 ---
 title: "The Vlogger's Guide to Optimal Lens Performance"
-date: 2024-11-27T19:42:23.918Z
-updated: 2024-12-04T02:01:22.055Z
+date: 2024-12-06T16:41:23.490Z
+updated: 2024-12-10T16:39:03.989Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -78,17 +82,21 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
- In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 ### Focal Length Equivalency Table
 
@@ -105,17 +113,9 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -126,6 +126,10 @@ This table shows you the focal lengths needed to achieve the same shot between c
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -142,7 +146,7 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Optical Image Stabilization
@@ -159,10 +163,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -178,17 +178,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-reversing-the-flow-a-guide-to-tracing-instagram-pics-backwards/"><u>[New] 2024 Approved Reversing the Flow A Guide to Tracing Instagram Pics Backwards</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-from-fixed-frames-to-dynamic-circles-in-videos/"><u>[New] From Fixed Frames to Dynamic Circles in Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-decoding-whatsapp-voice-communication-for-2024/"><u>[Updated] Decoding WhatsApp Voice Communication for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-innovative-methods-for-effectful-tiktok-videos/"><u>[Updated] In 2024, Innovative Methods for Effectful TikTok Videos</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-screening-your-gaming-a-nintendo-switch-tutorial/"><u>2024 Approved Screening Your Gaming A Nintendo Switch Tutorial</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/audiences-delighted-best-editors-to-transform-youtube-shorts-for-2024/"><u>Audiences Delighted Best Editors to Transform Youtube Shorts for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/avoiding-poverty-earning-in-beauty-media-for-2024/"><u>Avoiding Poverty Earning in Beauty Media for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/effortless-subtitling-and-cc-addition-techniques-for-youtube-users-for-2024/"><u>Effortless Subtitling & CC Addition Techniques for YouTube Users for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716362054347-how-to-make-collab-videos-and-grow-your-channel/"><u>How to Make Collab Videos And Grow Your Channel?</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-restore-iphones-cellular-connection-top-10-solutions/"><u>How to Restore iPhone's Cellular Connection: Top 10 Solutions</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-dissecting-splitcams-superiority-as-a-recorder/"><u>In 2024, Dissecting SplitCam’s Superiority as a Recorder</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-pro-3-in-perspective-the-latest-from-ion-air-reviewed/"><u>In 2024, Pro 3 in Perspective The Latest From ION Air Reviewed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhance-every-viewing-moment-with-these-top-6-free-platforms-for-youtube-short-downloads/"><u>[New] Enhance Every Viewing Moment with These Top 6 Free Platforms for YouTube Short Downloads</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-idevice-audio-mastery-stepwise-recording-of-voices/"><u>[New] IDevice Audio Mastery Stepwise Recording of Voices</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-artisans-approach-to-gathering-stock-visuals-for-use/"><u>[Updated] The Artisan's Approach to Gathering Stock Visuals for Use</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-complete-guide-to-oem-unlocking-on-samsung-galaxy-a14-4g-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Samsung Galaxy A14 4G</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/advanced-array-manipulations-and-sorting-algorithms/"><u>Advanced Array Manipulations and Sorting Algorithms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/beat-the-blank-screen-overcoming-top-vlogging-anxieties/"><u>Beat the Blank Screen Overcoming Top Vlogging Anxieties</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/global-scoreboard-the-premier-six-of-video-downloads/"><u>Global Scoreboard The Premier Six of Video Downloads</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/lead-acquisition-mastery-using-the-power-of-cookiebot/"><u>Lead Acquisition Mastery Using the Power of Cookiebot</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/revolutionize-your-coding-workflow-using-chatgpt-in-vs-code/"><u>Revolutionize Your Coding Workflow: Using ChatGPT in VS Code</u></a></li>
+<li><a href="https://fox-within.techidaily.com/step-by-step-guide-capturing-your-next-online-workshop-successfully/"><u>Step-by-Step Guide: Capturing Your Next Online Workshop Successfully</u></a></li>
 </ul></div>
 

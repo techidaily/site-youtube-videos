@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing YouTube Videos  Proper Lighting Methods\""
-date: 2024-11-27T19:15:03.441Z
-updated: 2024-12-03T21:55:54.760Z
+date: 2024-12-06T18:13:23.130Z
+updated: 2024-12-10T17:00:37.478Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1.  Window Lighting
@@ -51,21 +51,17 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
@@ -77,13 +73,13 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
@@ -106,7 +102,7 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
@@ -116,6 +112,10 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -132,17 +132,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-enhance-your-shorts-fresh-and-original-thumbnails-with-minimal-effort/"><u>[New] Enhance Your Shorts Fresh and Original Thumbnails with Minimal Effort</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-high-fidelity-screen-recorder-for-windows-11/"><u>[New] In 2024, High-Fidelity Screen Recorder for Windows 11</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-essential-checklist-for-creating-stellar-titles/"><u>[New] The Essential Checklist for Creating Stellar Titles</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Motorola Moto G13? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/effortless-music-playlist-creation-for-youtube-anywhere-webmobile-for-2024/"><u>Effortless Music Playlist Creation for YouTube, Anywhere (Web/Mobile) for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/cing-income-through-the-science-of-youtube-trailer-creation-for-2024/"><u>Enhancing Income Through the Science of YouTube Trailer Creation for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/essential-tips-accessing-the-fax-editor-in-win11/"><u>Essential Tips: Accessing the Fax Editor in Win11</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/how-to-use-io-screen-recorder-for-2024/"><u>How to Use IO Screen Recorder for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-erase-unwanted-black-fringes-on-youtube-tracks/"><u>In 2024, Erase Unwanted Black Fringes on YouTube Tracks</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/precise-speech-to-text-the-google-standard-for-2024/"><u>Precise Speech to Text The Google Standard for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/revive-your-memories-a-simple-guide-to-bringing-life-back-to-faded-photographs-with-movavi/"><u>Revive Your Memories: A Simple Guide to Bringing Life Back to Faded Photographs with Movavi</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-6-youtube-outro-makers-lots-of-free-options/"><u>Top 6 YouTube Outro Makers - Lots of FREE Options</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-top-5-winter-frameworks-for-comfortable-cinematography/"><u>[New] 2024 Approved Top 5 Winter Frameworks for Comfortable Cinematography</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-comparing-streams-vimeo-versus-youtube/"><u>[New] Comparing Streams Vimeo Versus YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-how-to-screen-capture-anything-including-netflix-on-a-mac-in-six-steps/"><u>[New] In 2024, How to Screen Capture Anything, Including Netflix, on a Mac in Six Steps</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-maximizing-your-iphones-burst-photography/"><u>[New] Maximizing Your iPhone's Burst Photography</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-techniques-for-concurrent-webcam-and-screen-recordings/"><u>[New] Techniques for Concurrent Webcam & Screen Recordings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-the-art-of-personal-branding-mastery/"><u>[New] Unveiling the Art of Personal Branding Mastery</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cashing-in-on-content-the-carminati-effect-ajay/"><u>[Updated] Cashing In on Content The Carminati Effect (AJay)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-64gb-ideal-for-light-video-content/"><u>[Updated] In 2024, 64Gb Ideal for Light Video Content?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-bridging-twitter-and-fb-with-shared-vids/"><u>[Updated] In 2024, Bridging Twitter and FB with Shared Vids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhance-video-playback-with-av1-on-youtube-for-2024/"><u>Enhance Video Playback with AV1 on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/get-1000-subscribers-for-your-youtube-channel/"><u>Get 1000 Subscribers for Your YouTube Channel</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-realme-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Realme .</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-capturing-coziness-ideal-winter-scenes-for-yt-video/"><u>In 2024, Capturing Coziness Ideal Winter Scenes for YT Video</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-picks-for-effective-face-coverings-combatting-covid-19-with-proven-methods-insights-from-zdnet/"><u>Top Picks for Effective Face Coverings : Combatting Covid-19 with Proven Methods - Insights From ZDNet</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Dynamic Discussions for Regular Streaming"
-date: 2024-12-01T00:40:55.442Z
-updated: 2024-12-03T22:24:54.429Z
+date: 2024-12-06T18:24:13.466Z
+updated: 2024-12-10T17:18:47.535Z
 tags:
   - ai video
   - ai youtube
@@ -33,7 +33,7 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Do you have a niche?
@@ -49,19 +49,11 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Snapshots of Your Day
 
@@ -78,6 +70,10 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -96,7 +92,7 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## EVERYTHING
@@ -107,6 +103,10 @@ You could also just flick the camera on and tell the full story of your day like
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
@@ -114,7 +114,7 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -132,16 +132,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-synchronize-content-releases-with-audience-activity-cycles/"><u>[New] 2024 Approved Synchronize Content Releases with Audience Activity Cycles</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-top-10-gratuitous-video-chats-with-desktop-viewing/"><u>[New] 2024 Approved Top 10 Gratuitous Video Chats with Desktop Viewing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-crafting-a-viral-video-journey-6-key-strategies-on-youtube/"><u>[New] Crafting a Viral Video Journey 6 Key Strategies on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-break-through-bot-barriers-rising-from-the-crowd/"><u>[New] In 2024, Break Through Bot Barriers Rising From the Crowd</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-vrecorder-unpacked-step-by-step-download-procedures/"><u>[Updated] 2024 Approved VRecorder Unpacked Step-by-Step Download Procedures</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/celebrating-matrimony-the-best-wedding-movies-from-youtube-to-vimeo/"><u>Celebrating Matrimony The Best Wedding Movies From YouTube to Vimeo</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Tecno Spark 20 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-checking-credentials-on-youtube/"><u>In 2024, Checking Credentials on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-designing-the-ideal-youtube-playlist-for-you/"><u>In 2024, Designing the Ideal YouTube Playlist for You</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-photo-edits-partially-blurring-content/"><u>In 2024, Innovative Photo Edits Partially Blurring Content</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-seamless-streaming-screen-record-and-upload-from-macpc/"><u>In 2024, Seamless Streaming Screen Record & Upload From Mac/PC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-become-a-viral-sensation-maximizing-your-youtube-reach/"><u>[New] In 2024, Become a Viral Sensation Maximizing Your YouTube Reach</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-capture-composition-ideal-plugins-and-websites-to-frame-your-images/"><u>[Updated] Capture Composition Ideal Plugins and Websites to Frame Your Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-sustainable-traffic-growth-ethical-video-marketing-tips/"><u>[Updated] Sustainable Traffic Growth Ethical Video Marketing Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevating-your-listening-palette-with-youtube-music/"><u>2024 Approved Elevating Your Listening Palette with YouTube Music</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-top-20-budget-conscious-video-editing-applications/"><u>2024 Approved Top 20 Budget-Conscious Video Editing Applications</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/digital-dazzle-fine-tuning-video-chrominance-for-beauty/"><u>Digital Dazzle Fine-Tuning Video Chrominance for Beauty</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>How to Share/Fake Location on WhatsApp for Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-cross-platform-guide-extracting-facebook-video-content/"><u>In 2024, Cross-Platform Guide Extracting Facebook Video Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-digital-dollar-first-steps-in-youtubers-revenue/"><u>In 2024, Digital Dollar First Steps in YouTubers' Revenue</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-enhance-engagement-top-tools-and-tips-for-properly-tagged-videos/"><u>In 2024, Enhance Engagement Top Tools and Tips for Properly Tagged Videos</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-huawei-nova-y71-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Huawei Nova Y71 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-case-for-how-win11-wins-over-macos/"><u>The Case For: How Win11 Wins over macOS</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-device-mgmt-camera-not-displayed-heres-how/"><u>Windows Device Mgmt: Camera Not Displayed? Here's How</u></a></li>
 </ul></div>
 

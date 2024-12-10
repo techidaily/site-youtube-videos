@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Confidence  Tips for Trending on YouTube\""
-date: 2024-12-02T16:19:25.018Z
-updated: 2024-12-03T19:10:06.206Z
+date: 2024-12-09T17:15:56.631Z
+updated: 2024-12-10T17:43:51.696Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
@@ -54,6 +54,10 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -62,10 +66,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -73,6 +73,10 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -87,7 +91,7 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -99,10 +103,6 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -141,7 +141,7 @@ If you want to find a video editing solution that empowers your imagination and 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -159,24 +159,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/warranty-and-lifespan-higher-quality-led-systems-may-come-with-a-higher-upfront-price-but-can-offer-longer-lifespans-and-better-performance-which-should-be-/"><u>__Warranty and Lifespan Higher Quality LED Systems May Come with a Higher Upfront Price but Can Offer Longer Lifespans and Better Performance, Which Should Be Considered in the Overall Cost Evaluation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-7-comedy-youtube-video-ideas-that-funny-people-can-try/"><u>[New] 7 Comedy YouTube Video Ideas That Funny People Can Try</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/diting-excellence-sports-videos-that-stand-out-for-2024/"><u>[New] Editing Excellence Sports Videos That Stand Out for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-download-youtube-playlists-without-hassle-our-guide/"><u>[New] In 2024, Download YouTube Playlists Without Hassle - Our Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-stunning-video-capture-best-youtube-cameras-reviewed/"><u>[Updated] 2024 Approved Stunning Video Capture Best YouTube Cameras Reviewed</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-charting-a-course-through-youtubes-maker-domain/"><u>[Updated] Charting a Course Through YouTube's Maker Domain</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-6-cost-free-closers-for-your-youtube-video/"><u>[Updated] In 2024, 6 Cost-Free Closers for Your YouTube Video</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-audience-alchemy-converting-shorts-to-sensations/"><u>2024 Approved Audience Alchemy Converting Shorts to Sensations</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-captivate-audiences-quickly-shortcuts-for-youtube-trailers-with-filmora/"><u>2024 Approved Captivate Audiences Quickly Shortcuts for YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-vivo-y78-5g-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Vivo Y78 5G Phone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/capture-and-keep-long-term-chat-gpt-storage/"><u>Capture & Keep: Long-Term Chat GPT Storage</u></a></li>
-<li><a href="https://win-dash.techidaily.com/complete-instructions-on-getting-and-installing-your-logitech-g402-drivers/"><u>Complete Instructions on Getting and Installing Your Logitech G402 Drivers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/ensuring-thumbnails-show-shorts-video-troubleshooting/"><u>Ensuring Thumbnails Show Shorts Video Troubleshooting</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/guia-completa-para-convertir-video-sin-coste-cambiar-formatos-mkv-a-mpeg-usando-freemake-video-converter-gratis/"><u>Guía Completa Para Convertir Vídeo Sin Coste: Cambiar Formatos MKV a MPEG Usando Freemake Video Converter Gratis</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-control-youtube-audio-mobiledesktop-approach/"><u>In 2024, Control YouTube Audio Mobile/Desktop Approach</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-moto-g-power-evaluation-impressive-endurance-and-exceptional-performance/"><u>In-Depth Moto G Power Evaluation: Impressive Endurance & Exceptional Performance</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-creativity-top-10-yt-reaction-hacks/"><u>Mastering Creativity Top 10 YT Reaction Hacks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/shield-yourself-online-strategies-to-hide-visual-identities/"><u>Shield Yourself Online Strategies to Hide Visual Identities</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-guide-updating-your-dell-camera-driver-properly/"><u>Step-by-Step Guide: Updating Your Dell Camera Driver Properly</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-create-harmonious-hits-a-step-by-step-guide-to-making-youtube-playlists-online-and-app/"><u>[New] Create Harmonious Hits A Step-by-Step Guide to Making YouTube Playlists Online & App</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-cultivating-eco-diversity-in-metropolitan-land-use/"><u>[New] In 2024, Cultivating Eco-Diversity in Metropolitan Land Use</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-earnings-explorer-what-you-get-for-watching-one-million-videos/"><u>[Updated] Earnings Explorer What You Get for Watching One Million Videos?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebooks-favorites-top-10-viral-music-videos-guide-for-2024/"><u>[Updated] Facebook's Favorites TOP 10 Viral Music Videos Guide for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-content-discovery-the-tubebuddy-way/"><u>2024 Approved Elevate Content Discovery The TubeBuddy Way</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-penny-pinching-picks-microphones-under-50/"><u>2024 Approved Penny-Pinching Picks Microphones Under $50</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ais-transformative-impact-on-presentation-tech/"><u>AI's Transformative Impact on Presentation Tech</u></a></li>
+<li><a href="https://driver-install.techidaily.com/compatible-tp-link-dongle-supports-with-windows-driver-update/"><u>Compatible TP Link Dongle Supports with Windows Driver Update</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/curate-your-learning-best-15-science-yt-experts-for-2024/"><u>Curate Your Learning Best 15 Science YT Experts for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/earning-estimates-for-youtube-creators-adsense-pay-out-per-1000-viewers/"><u>Earning Estimates for YouTube Creators AdSense Pay-Out per 1,000 Viewers</u></a></li>
+<li><a href="https://discover-community.techidaily.com/fixing-the-0x45d-error-in-windows-7-a-comprehensive-guide/"><u>Fixing the 0X45D Error in Windows 7 - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ifying-10-quick-growth-youtube-blogs-that-encourage/"><u>Identifying 10 Quick-Growth YouTube Blogs that Encourage</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pause-unrequested-youtube-video-selections/"><u>Pause Unrequested YouTube Video Selections</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premium-drone-fleet-the-ultimate-cinematic-allies-for-2024/"><u>Premium Drone Fleet The Ultimate Cinematic Allies for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/premium-windows-based-podcast-options/"><u>Premium Windows-Based Podcast Options</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ultimate-step-by-step-youtube-editing-walkthrough/"><u>The Ultimate Step-by-Step YouTube Editing Walkthrough</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unbeatable-metas-latest-offer-on-512gb-quest-3-makes-waves-as-top-virtual-reality-bargain/"><u>Unbeatable: Meta's Latest Offer on 512GB Quest 3 Makes Waves as Top Virtual Reality Bargain</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unleash-creativity-with-top-9-free-tools-to-craft-your-brand/"><u>Unleash Creativity with Top 9 Free Tools to Craft Your Brand</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/vimeo-vs-youtube-vs-dailymotion-which-video-platform-is-right-for-you/"><u>Vimeo vs YouTube vs Dailymotion Which Video Platform Is Right for You?</u></a></li>
 </ul></div>
 
