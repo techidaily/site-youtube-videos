@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of YouTube Channels  Crafting Brands That Attract Viewers\""
-date: 2024-12-03T17:27:48.551Z
-updated: 2024-12-10T17:37:25.138Z
+date: 2024-12-10T19:52:11.229Z
+updated: 2024-12-16T21:14:45.718Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ _Michelle Phan’s YouTube brand is calm, whimsical, and aspirational._
 
 They have different branding because they want to reflect different feelings for different audiences.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bad Branding Causes Mistrust
 
 When a branding element does not align with the message or the tone does not match with the material, then the audience is not going to trust what you offer. Without trust, you won’t be able to get the advocacy that is essential for a YouTube channel to grow.
@@ -47,7 +51,7 @@ When a branding element does not align with the message or the tone does not mat
 Imagine Michelle Phan using the aggressive colors of Epic Meal Time or vice versa. Pretty weird, huh?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is YouTube Branding?
@@ -73,10 +77,6 @@ Here are notable elements of your channel’s branding:
 \- Catchphrase
 
 \- Style of video
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Start Branding Your YouTube Channel?
 
@@ -135,6 +135,10 @@ Passion = Makeup and Fashion
 Demand = Beauty School
 
 PURPOSE: Give people more confidence in beauty products.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Is Your Channel Different From the Others?
 
@@ -204,10 +208,6 @@ Look at PewDiePie’s branding. You can argue that it is inconsistent and the de
 
 ![Pew Die Pie Channel](https://images.wondershare.com/filmora/article-images/pew-die-pie-channel.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _PewDiePie’s brand highlights its upbeat and unpredictable personality._
 
  PewDiePie wants you to laugh. He is not branding his expertise like Peter McKinnon is, he’s branding his personality.
@@ -218,14 +218,10 @@ The humor in PewDiePie’s brand is consistent, even though his thumbnails don�
 
 ![Philip DeFranco](https://images.wondershare.com/filmora/article-images/philip-defranco.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Philip DeFranco supplies commentary on current events with a satirical flair. Like a news broadcast, his branding and video format are consistent, while the daily news is different._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Inserting A Watermark
@@ -237,7 +233,7 @@ Let’s be honest, YouTube content can all look the same, especially if you are 
  ![Improvement Pill](https://images.wondershare.com/filmora/article-images/improvement-pill.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Improvement Pill is a YouTube channel focused on inspiring and motivating its viewer to live a better life._
@@ -251,6 +247,10 @@ When a viewer lands on their video, the watermark gives the viewer another way t
 Want to set up your subscription watermark? Here is a quick tutorial:
 
 ##  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Coming Up With A Catchphrase
 
@@ -285,17 +285,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-the-most-trusted-free-open-source-video-meeting-solutions-for-companies-and-schools-for-2024/"><u>[New] The Most Trusted Free, Open Source Video Meeting Solutions for Companies & Schools for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-pro-tips-to-elevate-your-headline-game/"><u>[Updated] Pro Tips to Elevate Your Headline Game</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-copyright-laws-and-screencasting-of-online-video-platforms-youtube/"><u>2024 Approved Copyright Laws and Screencasting of Online Video Platforms (YouTube)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-detailed-tips-for-adequate-lighting-in-youtube-video-production/"><u>2024 Approved Detailed Tips for Adequate Lighting in YouTube Video Production</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtubes-centralized-digital-media-command-center/"><u>2024 Approved YouTube's Centralized Digital Media Command Center</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/conversion-libre-de-conexion-wifi-para-archivos-wav-y-flv-con-movavi/"><u>Conversión Libre De Conexión WiFi Para Archivos WAV Y FLV Con Movavi</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-captivating-youtube-thumbnails-on-smartphones-for-2024/"><u>Crafting Captivating YouTube Thumbnails on Smartphones for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/generate-laughter-kapwings-meme-creator-for-2024/"><u>Generate Laughter Kapwing's Meme Creator for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-best-practices-for-youtube-card-implementation/"><u>In 2024, Best Practices for YouTube Card Implementation</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/master-the-art-of-sharing-gaming-moments-xboxfb-livestream/"><u>Master the Art of Sharing Gaming Moments Xbox/FB Livestream</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtubes-monetary-system-monthly-or-quarterly/"><u>YouTube's Monetary System Monthly or Quarterly?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-a-step-by-step-guide-to-dominating-the-youtube-viewership-game/"><u>[New] A Step-by-Step Guide to Dominating the YouTube Viewership Game</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-countering-harshness-maintaining-poise-online/"><u>[New] Countering Harshness Maintaining Poise Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-discover-the-best-12-free-and-paid-video-game-openings-for-yt/"><u>[New] Discover the Best 12 Free and Paid Video Game Openings for YT</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-effortless-guide-never-see-youtube-shorts-again/"><u>[New] Effortless Guide Never See YouTube Shorts Again</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-your-look-expert-tutorials-for-everyone/"><u>[Updated] Elevating Your Look Expert Tutorials for Everyone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-exploring-and-utilizing-your-twitter-archive-for-2024/"><u>[Updated] Exploring and Utilizing Your Twitter Archive for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-are-we-impressed-the-full-on-evaluation-of-inshot-app/"><u>2024 Approved Are We Impressed? The Full-On Evaluation of InShot App</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-lumafusion-tips-for-subtle-sound-reduction/"><u>In 2024, Lumafusion Tips for Subtle Sound Reduction</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/mastering-video-codecs-for-ps4-and-ps5-installing-h265-support-step-by-step/"><u>Mastering Video Codecs for PS4 & PS5: Installing H.265 Support Step-by-Step</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-oneplus-ace-2-pro-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your OnePlus Ace 2 Pro Phone? Unlock It Now</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-unleash-your-creativity-top-video-collage-apps-for-iphone-and-ipad/"><u>New Unleash Your Creativity Top Video Collage Apps for iPhone and iPad</u></a></li>
 </ul></div>
 

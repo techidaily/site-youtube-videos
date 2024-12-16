@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Ad Revenue on YouTube with New Strategies"
-date: 2024-09-10T16:49:58.121Z
-updated: 2024-09-16T17:24:18.805Z
+date: 2024-12-09T16:22:02.208Z
+updated: 2024-12-16T16:53:08.621Z
 tags:
   - ai video
   - ai youtube
@@ -84,6 +84,10 @@ Ad revenue is the most sustainable form of monetization. Creators don’t have t
 
 ![shorts revenue sample](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-4.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Streamers usually have a higher watch time than the number of subscribers they have. So, the new policy will allow YouTubers will a low following to earn from streaming their content. Short creators will benefit from the high number of views shorts tend to generate.
 
 ### **New Policies Make YouTube More Competitive**
@@ -99,6 +103,10 @@ The new YouTube channel monetization rules will be great for advertisers. They w
 The new policies make it easier for more creators to monetize their channels. Since this is the goal of every creator, it will be an opportunity for more people to start committing to their YouTube career. With the new ways of making money being introduced, more YouTubers will be able to generate revenues from their channels.
 
 It’s interesting that watch hours from shorts will not count along the standard 4,000 public watch hours. This is a plus for many creators. You will find that many creators who post shorts on their channels have more views than their long views. With the new policies, it means that they can monetize their channels based only on the short’s figures.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 4\. Editing YouTube Videos For Monetization with Wondershare Filmora**
 
@@ -122,13 +130,6 @@ Quickly add relevant texts to your videos. You can include captions or subtitles
 
 ![add text to video](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-6.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **3\.** [**AI Smart Cutout**](https://images.wondershare.com/filmora/guide/filmora-ai-smart-cutout-images-on-windows-04.png)
 
 The AI Smart Cutout features allow you to easily edit out any unwanted background or objects in your clips. The AI-powered features help you edit your clips faster and finish your projects quickly.
@@ -150,13 +151,6 @@ The new YouTube monetization policy 2023 has created more opportunities for crea
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Part 1\. Introduction to YouTube Monetization: What You Need to Know**
 
@@ -250,6 +244,10 @@ Filmora gives you a quick and easy start to your creative video editing journey.
 
 ![preset templates](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-5.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **2\.** [**Add Text to Video**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Quickly add relevant texts to your videos. You can include captions or subtitles, choosing the font style and other formatting as desired.
@@ -260,11 +258,19 @@ Quickly add relevant texts to your videos. You can include captions or subtitles
 
 The AI Smart Cutout features allow you to easily edit out any unwanted background or objects in your clips. The AI-powered features help you edit your clips faster and finish your projects quickly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **4\.** [**Adjustment Layer**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The adjustment layer is a great feature on Filmora that allows you to add effects to multiple video clips at once. No need to keep going back and forth when making your edits.
 
 ![adjustment layer](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-7.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **5\.** [**Text to Speech**](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -379,16 +385,13 @@ Perhaps you are live-streaming a trip somewhere. There are other ways to do it n
 
 ![taking thumbnail photo on youtube mobile](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-6.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click the "Pencil" icon after YouTube has taken a photo.
 
 ![editing youtube live thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-7.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Select "Upload thumbnail."
 
@@ -465,6 +468,10 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 ![choosing a template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-4.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Edit the sample image and text. Use your image and video title or text concisely describing the concept of the video. Edit other aspects of the image as needed.
 
 ![editing chosen template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-5.JPG)
@@ -472,6 +479,10 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 * Click "Publish" > "Current frame as image."
 
 ![exporting the custom thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-6.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Set up your image. Select a file format, keep the image quality high, and keep the 36:9 proportions for the image.
 
@@ -535,10 +546,7 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 ![taking a snapshot on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-6.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Right-click the screenshot on the Media panel. Select "Reveal in Explorer." That will open the fulder where the thumbnail image is saved.
@@ -546,13 +554,6 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 ![revealing thumbnail image in explorer](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-7.jpg)
 
 Do you want to know more tips about making YouTube thumbnails using Wondershare Filmora? If so, watch this video:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How To Customize YouTube Livestream Thumbnail Online
 
@@ -601,6 +602,10 @@ If you're not new to YouTube, you have probably seen the "YouTube thumbnail face
 
 Add simple text with clear, buld, easy-to-read font.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Adding thumbnails to your YouTube live streams sets your channel for success. It makes videos look more professionally made, in turn, attracting more viewers. So, we recommend always adding thumbnails to your YouTube Live.
@@ -620,5 +625,21 @@ For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-the-buzz-creation-blueprint-for-marketing-success/"><u>[New] 2024 Approved The Buzz-Creation Blueprint for Marketing Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-voice-conversion-tools-for-vlogging-professionals/"><u>[New] Best Voice Conversion Tools for Vlogging Professionals</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-steps-to-apply-a-creative-commons-copyright/"><u>[New] Essential Steps to Apply a Creative Commons Copyright</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-a-stepwise-approach-to-youtube-caption-addition/"><u>[Updated] A Stepwise Approach to YouTube Caption Addition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-charting-your-youtube-trajectory-essential-tools-from-social-blade/"><u>[Updated] Charting Your YouTube Trajectory Essential Tools From Social Blade</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-mozilla-screen-recording-hacks/"><u>2024 Approved Mozilla Screen Recording Hacks</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/1728491721002-windows/"><u>復原Windows中刪除文件 - 方法及資源</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/avoiding-poverty-earning-in-beauty-media/"><u>Avoiding Poverty Earning in Beauty Media</u></a></li>
+<li><a href="https://win-net.techidaily.com/comprehensive-guide-to-rectify-error-80080005-during-windows-updates/"><u>Comprehensive Guide to Rectify Error 80080005 During Windows Updates</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/creating-a-clickable-thumbnail-enhancing-video-visibility-without-costs/"><u>Creating a Clickable Thumbnail Enhancing Video Visibility without Costs</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-navigating-the-best-pixel-soundtracks-online/"><u>In 2024, Navigating the Best Pixel Soundtracks Online</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-shaky-no-more-a-step-by-step-guide-to-video-stabilization-for-2024/"><u>New Shaky No More A Step-by-Step Guide to Video Stabilization for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/rejuvenating-your-apple-device-a-detailed-guide-to-full-resets-on-iphoneipad/"><u>Rejuvenating Your Apple Device: A Detailed Guide to Full Resets on iPhone/iPad</u></a></li>
+</ul></div>
 

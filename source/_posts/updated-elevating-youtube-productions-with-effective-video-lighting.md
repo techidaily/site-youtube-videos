@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevating YouTube Productions with Effective Video Lighting"
-date: 2024-12-06T18:18:43.320Z
-updated: 2024-12-10T16:02:51.286Z
+date: 2024-12-15T19:57:31.216Z
+updated: 2024-12-16T19:42:09.843Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,13 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 | Table of Contents [Using Light You Already Have](#USING-LIGHT-YOU-ALREADY-HAVE) [Window Lighting](#Window-Lighting)[Home Lighting](#Home-Lighting) [Home Studio Lighting](#HOME-STUDIO-LIGHTING) [Light Control](#Light-Control)[3-Point Lighting](#Three-Point-Lighting)[4-Point Lighting](#four-point-lighting) |
 | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Using Light You Already Have
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1.  Window Lighting
 
@@ -51,6 +51,10 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 ### 2. Home Lighting
@@ -58,10 +62,6 @@ Above are two freeze frames from one of Daniel's past window-lit vlogs. Although
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
@@ -83,6 +83,10 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
@@ -90,7 +94,7 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
@@ -108,14 +112,10 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -132,22 +132,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-classic-captures-portraiture-on-the-xiphone/"><u>[New] Classic Captures Portraiture on the XiPhone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-effortlessly-transform-youtube-tunes-to-mp3-with-mac/"><u>[New] Effortlessly Transform YouTube Tunes to MP3 with Mac</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-gear-picking-the-very-best-among-top-9-free-logomakers/"><u>[New] Essential Gear Picking the Very Best Among Top 9 Free Logomakers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-chart-topping-tunes-compiling-an-impressive-youtube-playlist/"><u>2024 Approved Chart-Topping Tunes Compiling an Impressive YouTube Playlist</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-compreran-exploration-of-giroptics-panorama/"><u>2024 Approved Compreran Exploration of Giroptic's Panorama</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-content-cultivating-capital-your-videography-voyage/"><u>2024 Approved Crafting Content, Cultivating Capital Your Videography Voyage</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-tips-for-pop-culture-meme-success/"><u>2024 Approved Top Tips for Pop Culture Meme Success</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/dont-miss-out-this-weeks-tiktok-trials/"><u>Don't Miss Out This Week’s TikTok Trials</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/en-ligne-transformation-gratuite-des-images-pcx-a-laide-de-movavi-solutions-detaillees/"><u>En Ligne: Transformation Gratuite Des Images PCX À L'aide De Movavi - Solutions Détaillées</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/exploring-photo-perfection-can-picku-be-top-for-android-users-for-2024/"><u>Exploring Photo Perfection Can PickU Be Top for Android Users for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Oppo A18 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-blueprint-for-buzzing-outro/"><u>In 2024, Blueprint for Buzzing Outro</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Vivo V29 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-efficiency-at-fingertips-swiftly-upload-videos-from-iphoneipad-to-youtube/"><u>In 2024, Efficiency at Fingertips Swiftly Upload Videos From iPhone/iPad to YouTube</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-tips-for-obtaining-pristine-photos-without-payment/"><u>In 2024, Top Tips for Obtaining Pristine Photos Without Payment</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/match-up-with-moguls-six-questions-to-identify-youtubers/"><u>Match Up With Moguls Six Questions to Identify YouTubers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-8-youtube-thumbnail-grabbers/"><u>Top 8 YouTube Thumbnail Grabbers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-comprehensive-but-concise-guide-to-keyers-techniques/"><u>[New] Comprehensive but Concise Guide to Keyers' Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-ensuring-profitability-in-youtube-with-correct-monetization/"><u>[New] Ensuring Profitability in YouTube with Correct Monetization</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-discover-the-joy-of-customized-messaging-downloading-and-tailoring-whatsapp-ringtones-on-mobile/"><u>[New] In 2024, Discover the Joy of Customized Messaging Downloading & Tailoring WhatsApp Ringtones on Mobile</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-hacking-twitters-humor-for-personal-use-on-pc/"><u>[New] In 2024, Hacking Twitter's Humor for Personal Use on PC</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-complete-price-proposition-the-first-step-in-podcasting/"><u>[Updated] Complete Price Proposition The First Step in Podcasting</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-oceans-bounty-best-cameras-for-anglers/"><u>[Updated] Ocean's Bounty - Best Cameras for Anglers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-craft-your-future-with-instagram-video-marketing-step-by-step-guide/"><u>2024 Approved Craft Your Future with Instagram Video Marketing Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-creating-costless-webinars-on-youtube-a-handbook/"><u>2024 Approved Creating Costless Webinars on YouTube A Handbook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/bite-sized-video-knowledge-now-for-2024/"><u>Bite-Sized Video Knowledge Now for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/character-inspector-easy-steps-for-windows-11/"><u>Character Inspector: Easy Steps for Windows 11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-zte-blade-a73-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone ZTE Blade A73 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-curated-collection-best-free-footage-websites-ranked/"><u>In 2024, Curated Collection Best Free Footage Websites Ranked</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-step-by-step-setting-up-unique-youtube-shorts-thumbnails/"><u>In 2024, Step-by-Step Setting Up Unique YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/premium-ddr5-8600-ram-by-gskill-optimized-for-intel-raptor-lake-cpu-upgrades/"><u>Premium DDR5-8600 RAM by G.SKILL: Optimized for Intel Raptor Lake CPU Upgrades</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-complete-youtube-video-editor-reference-manual/"><u>The Complete YouTube Video Editor Reference Manual</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/turning-your-youtube-views-into-a-screen-capture-made-simple-and-free/"><u>Turning Your YouTube Views Into a Screen Capture Made Simple and Free</u></a></li>
 </ul></div>
 

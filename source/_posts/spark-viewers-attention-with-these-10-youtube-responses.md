@@ -1,7 +1,7 @@
 ---
 title: "Spark Viewer's Attention with These 10 YouTube Responses"
-date: 2024-12-06T18:09:35.963Z
-updated: 2024-12-10T16:23:27.289Z
+date: 2024-12-15T16:13:05.364Z
+updated: 2024-12-16T21:45:11.595Z
 tags:
   - ai video
   - ai youtube
@@ -34,12 +34,16 @@ Previously we have demonstrated [how to create a YouTube reaction video with Fil
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10 Best YouTube Video Reaction Ideas You Should Try in 2021
 
 The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. React to music videos
@@ -62,33 +66,29 @@ Videos of children reacting to different genres of music are already getting tho
 
 Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Comment on your old videos
 
 Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. Record reactions of elderly people
 
 It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\. React to different challenges
 
 Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. React to TV shows
 
 We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10\. Comment on [movie trailers](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -100,15 +100,15 @@ With these reaction video ideas in mind, you can practise it on YouTube, or TikT
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Coming up with a unique idea for a reaction video isn’t necessarily a simple process, because there are so many reaction videos on YouTube. That is why the YouTube video reaction ideas you choose to have to fit perfectly into your channel’s theme. What is your favorite YouTube video reaction idea? Share your opinions in the comments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -125,16 +125,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-youtube-presence-ideal-release-windows/"><u>[New] Elevate Youtube Presence Ideal Release Windows</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-practices-for-youtube-card-implementation-for-2024/"><u>Best Practices for YouTube Card Implementation for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cut-beyond-youtube-unveiling-the-top-5-video-editor-options-for-2024/"><u>Cut Beyond Youtube Unveiling the Top 5 Video Editor Options for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-overcome-loading-deadlocks-in-minecraft-expert-tips-and-tricks/"><u>How to Overcome 'Loading...' Deadlocks in Minecraft - Expert Tips & Tricks</u></a></li>
-<li><a href="https://windows11.techidaily.com/immediate-steps-for-finding-absent-registry-program/"><u>Immediate Steps for Finding Absent Registry Program</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-y36i-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo Y36i</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-itel-a05s-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Itel A05s via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-comparing-streams-vimeo-versus-youtube/"><u>In 2024, Comparing Streams Vimeo Versus YouTube</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-share-on-apple-iphone-xs-drfone-by-drfone-ios/"><u>In 2024, How to Screen Share on Apple iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/installing-the-latest-nvidia-geforce-rtx-1080-driver-for-windows-11-a-step-by-step-guide/"><u>Installing the Latest Nvidia GeForce RTX 1080 Driver for Windows 11: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/picture-talk-engineer/"><u>Picture Talk Engineer</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-achieve-uninterrupted-youtube-experience-across-os-platforms/"><u>[New] Achieve Uninterrupted YouTube Experience Across OS Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-efficiently-downloading-youtube-sections-in-minutes/"><u>[New] Efficiently Downloading YouTube Sections in Minutes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-your-video-productions-15-top-tier-free-music-websites/"><u>[New] Elevate Your Video Productions 15 Top-Tier Free Music Websites</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-video-gear-for-youtube-starters/"><u>[New] Essential Video Gear for YouTube Starters</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-channel-expansion-techniques-for-30plus-online-platforms/"><u>[Updated] Channel Expansion Techniques for 30+ Online Platforms</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-demystifying-zoom-sessions-into-smaller-groups/"><u>[Updated] Demystifying Zoom Sessions Into Smaller Groups</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exclusive-list-of-premium-video-downloader-apps-for-2024/"><u>[Updated] Exclusive List of Premium Video Downloader Apps for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-natural-setups-comprehensive-free-screen-templates-for-cinephiles/"><u>[Updated] Natural Setups Comprehensive Free Screen Templates for Cinephiles</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-ps-tips-for-perfecting-photo-shades-and-saturation/"><u>[Updated] PS Tips for Perfecting Photo Shades and Saturation</u></a></li>
+<li><a href="https://win-answers.techidaily.com/banish-the-bug-effective-ways-to-address-minecrafts-crossbow-trouble/"><u>Banish the Bug: Effective Ways to Address Minecraft's Crossbow Trouble</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-the-beat-drops-essential-tiktok-rap-playlists/"><u>In 2024, The Beat Drops Essential TikTok Rap Playlists</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/is-the-premium-price-of-an-m3-macbook-air-justified/"><u>Is the Premium Price of an M3 MacBook Air Justified?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-tecno-camon-20-premier-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Tecno Camon 20 Premier 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/pemulihangatkan-tempel-bocoria-windows-10-langkah-langkah-utama-dan-efektifnya/"><u>Pemulihangatkan Tempel Bocoria Windows 10: Langkah-Langkah Utama Dan Efektifnya</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-rotators-playbook-for-youtube-video-spinning/"><u>The Essential Rotator's Playbook for YouTube Video Spinning</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-guide-resolving-the-recurring-overwatch-2-crashes-on-your-windows-machine/"><u>Ultimate Guide: Resolving the Recurring Overwatch 2 Crashes on Your Windows Machine</u></a></li>
 </ul></div>
 

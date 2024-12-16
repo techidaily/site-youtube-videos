@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Boosting Views Through Imaginative Video Thumbnails"
-date: 2024-12-05T18:35:17.681Z
-updated: 2024-12-10T17:56:52.831Z
+date: 2024-12-13T16:49:37.223Z
+updated: 2024-12-16T16:31:55.692Z
 tags:
   - ai video
   - ai youtube
@@ -43,11 +43,7 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -59,7 +55,11 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -68,10 +68,6 @@ People feel automatically connected and drawn into images that make eye contact.
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
@@ -79,7 +75,7 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -100,6 +96,10 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -115,24 +115,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-navigating-macs-best-screen-capturing-apps-and-tech-for-2024/"><u>[New] Navigating Mac's Best Screen Capturing Apps & Tech for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-20-greatest-sandbox-experiences-ever-made/"><u>[Updated] 2024 Approved 20 Greatest Sandbox Experiences Ever Made</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-professional-mac-strategies-for-classroom-audio-recording/"><u>[Updated] In 2024, Professional Mac Strategies for Classroom Audio Recording</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-versatility-of-virtual-worlds/"><u>[Updated] The Versatility of Virtual Worlds</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-behind-the-scenes-of-online-content-monetization/"><u>2024 Approved Behind the Scenes of Online Content Monetization</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-capture-the-best-moments-select-6-top-ranked-short-video-download-tools/"><u>2024 Approved Capture the Best Moments Select 6 Top-Ranked Short Video Download Tools</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/6-proven-ways-to-unlock-oppo-reno-8t-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Oppo Reno 8T Phone When You Forget the Password</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/avoid-unwanted-interrucier-top-7-selective-android-adblockers-reviewed/"><u>Avoid Unwanted Interrucier Top 7 Selective Android AdBlockers Reviewed</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/broadcast-brilliance-with-cost-effective-templates/"><u>Broadcast Brilliance with Cost-Effective Templates</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-the-economic-riches-of-mr-beast/"><u>Decoding the Economic Riches of Mr. Beast</u></a></li>
-<li><a href="https://win-forum.techidaily.com/digital-connections-unleashed-leveraging-facebook-twitter-instagram-and-youtube/"><u>Digital Connections Unleashed: Leveraging Facebook, Twitter, Instagram & YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dominate-the-scene-the-best-hashtag-tactics-for-youtube-gamers/"><u>Dominate the Scene The Best Hashtag Tactics for YouTube Gamers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/earnings-explosion-boosting-your-youtube-channels-income-via-mobile-for-2024/"><u>Earnings Explosion Boosting Your YouTube Channel's Income via Mobile for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/hidden-gems-galore-top-10-unique-meme-webpages/"><u>Hidden Gems Galore – Top 10 Unique Meme Webpages</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716464788910-how-to-avoid-the-biggest-slip-ups-for-new-youtube-enthusiasts/"><u>How to Avoid the Biggest Slip-Ups for New YouTube Enthusiasts!</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Samsung Galaxy M34 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-vivo-v29-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Vivo V29 to Mac? | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/online-flv-naar-ogv-converter-vrije-diensten-professioneel-techniek-movavi/"><u>Online FLV Naar OGV Converter Vrije Diensten - Professioneel Techniek Movavi</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/rapid-expansion-youtube-channels-boosting-brainpower/"><u>Rapid Expansion YouTube Channels Boosting Brainpower</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-expert-strategies-for-higher-youtube-shorts-revenue-for-2024/"><u>[New] Expert Strategies for Higher YouTube Shorts Revenue for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-step-by-step-picart-background-cleanse-method/"><u>[Updated] 2024 Approved Step-by-Step PicArt Background Cleanse Method</u></a></li>
+<li><a href="https://win-webster.techidaily.com/1-free-tamil-music-downloader-convert-and-save-songs-in-various-formats-like-mp3-aac-and-more/"><u>1. Free Tamil Music Downloader - Convert and Save Songs in Various Formats Like MP3, AAC & More</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/budget-friendly-amazonbasics-reusable-6-sheet-paper-shredder-a-comprehensive-review/"><u>Budget-Friendly AmazonBasics Reusable 6-Sheet Paper Shredder - A Comprehensive Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-interest-with-budget-friendly-youtube-video-intros/"><u>Building Interest with Budget-Friendly YouTube Video Intros</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channel-acquisition-101-maximizing-youtubers-earnings-for-2024/"><u>Channel Acquisition 101 Maximizing Youtubers' Earnings for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dominate-the-digital-space-youtube-leadership-for-2024/"><u>Dominate the Digital Space YouTube Leadership for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-video-view-count-top-hashtag-trends-guide-for-2024/"><u>Elevating Video View Count Top Hashtag Trends Guide for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-vivo-x-flip-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Vivo X Flip | Dr.fone</u></a></li>
 </ul></div>
 

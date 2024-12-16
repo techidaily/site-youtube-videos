@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Bringing Your Vision Alive  Transferring Vids From Premiere\""
-date: 2024-12-03T18:25:44.145Z
-updated: 2024-12-10T18:21:41.401Z
+date: 2024-12-09T19:23:08.070Z
+updated: 2024-12-16T19:45:25.266Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,10 @@ thumbnail: https://www.lifewire.com/thmb/nddT7xpdIb204fnLyNuwQ_BtFXk=/540x405/fi
 
 ![youtube-recommended-settings](https://images.wondershare.com/multimedia/youtube-recommended-settings.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  We can also see further recommended settings in this screenshot that will be covered later.
 
  The good news is that Premiere automatically selects the appropriate container for us when we select our codec, however it is worth knowing the file type YouTube is expecting just to check yourself.
@@ -69,7 +73,7 @@ thumbnail: https://www.lifewire.com/thmb/nddT7xpdIb204fnLyNuwQ_BtFXk=/540x405/fi
 ![choosing-format](https://images.wondershare.com/multimedia/choosing-format.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Once you select  you can check the 'output name' field and see that premiere is automatically set the output file to .mp4 which is exactly what we need.
@@ -80,15 +84,15 @@ thumbnail: https://www.lifewire.com/thmb/nddT7xpdIb204fnLyNuwQ_BtFXk=/540x405/fi
 
 ![presets](https://images.wondershare.com/multimedia/presets.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  It is important here to select the correct preset from the various YouTube options. You want to select the resolution and frame rate that match your source file, for the best results. So, if your source file is 1080p with a frame rate of 29.97 fps then that is the YouTube setting you would select.
 
  Once a preset is selected a summary of the settings is displayed below, normally these will be well suited to your project, however you can fine tune anything you wish by selecting the video or audio tabs at the bottom which give you the chance to adjust each parameter individually. If you do this, you can save these changes as a custom preset by clicking the button at the side of the Preset dropdown menu and simply use it on later projects by selecting it from the list the same as any other, a great time saving tool.
 
 ![finetuning](https://images.wondershare.com/multimedia/finetuning.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5\. Rendering
 
@@ -101,10 +105,6 @@ thumbnail: https://www.lifewire.com/thmb/nddT7xpdIb204fnLyNuwQ_BtFXk=/540x405/fi
  I normally use a filename that includes the destination medium so I can differentiate between different versions of a project and know which one to upload where, in this case I include 'youtube', but if I were planning on uploading clips of the project to vimeo as well for instance there may be a cut of the project with 'vimeo' in the name too. The destination is personal preference, because I do use filenames to differentiate versions I can put the various iterations into a single project file, others have folder structures for each type of file , so all YouTube output goes into a single folder and so on, how you organize is entirely dependent on how you work.
 
 ![filename](https://images.wondershare.com/multimedia/filename.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Once those are selected clicking 'Export' starts the rendering process, and eventually (how long depends on the speed of your computer and the size and type of file involved), you will end up with your YouTube optimized video in the location you chose.
 
@@ -121,7 +121,7 @@ thumbnail: https://www.lifewire.com/thmb/nddT7xpdIb204fnLyNuwQ_BtFXk=/540x405/fi
 ![upload-menu](https://images.wondershare.com/multimedia/upload-menu.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can either drag your file into the window or click on it to open a standard file browser to locate the desired file, click and the upload will begin. The dropdown underneath allows you to set the video as Public, Unlisted or Private. You can change this at any time once the video is uploaded as well.
@@ -134,11 +134,11 @@ thumbnail: https://www.lifewire.com/thmb/nddT7xpdIb204fnLyNuwQ_BtFXk=/540x405/fi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -155,18 +155,18 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-broadcasting-brevity-news-outro-tips/"><u>[New] Broadcasting Brevity News Outro Tips</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-demystifying-video-profit-on-youtube/"><u>[New] Demystifying Video Profit on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ne-youtube-feed-how-to-merge-multiple-videos/"><u>[New] One YouTube Feed How to Merge Multiple Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-duration-calculation-a-20-megabit-video-for-2024/"><u>[Updated] Duration Calculation A 20 Megabit Video for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/about-honor-play-8t-frp-bypass-by-drfone-android/"><u>About Honor Play 8T FRP Bypass</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boost-income-secrets-to-successful-youtube-shorts-earning/"><u>Boost Income Secrets to Successful YouTube Shorts Earning</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/comprehensive-directory-of-inexpensive-stock-images/"><u>Comprehensive Directory of Inexpensive Stock Images</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-how-the-paper-clippers-challenge-reflects-key-issues-in-artific-illigence-development/"><u>Exploring How the Paper Clipper's Challenge Reflects Key Issues in Artific İlligence Development</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-poco-m6-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Poco M6 5G Phone Now with These Tips</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/make-a-statement-with-free-profile-pics/"><u>Make a Statement With Free Profile Pics</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/my-amazing-experience-with-newly-released-airpods-pro-2-the-stunning-upgrades-you-need-to-know-about/"><u>My Amazing Experience with Newly Released AirPods Pro 2: The Stunning Upgrades You Need to Know About!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/obs-and-youtube-a-beginners-live-stream-blueprint/"><u>OBS and Youtube A Beginner's Live Stream Blueprint</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/the-ultimate-selection-7-premier-screen-reflector-applications-for-smartphones-and-tablets-iosandroid/"><u>The Ultimate Selection: 7 Premier Screen Reflector Applications for Smartphones and Tablets (iOS/Android)</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-best-online-vaults-exclusive-ringtone-archives/"><u>[New] Best Online Vaults Exclusive Ringtone Archives</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/xclusive-free-mcb-visual-tools-for-2024/"><u>[New] Exclusive Free MCB Visual Tools for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-captureking-chronicles-the-best-recorders-unveiled/"><u>[Updated] CaptureKing Chronicles The Best Recorders Unveiled</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/1-unlocking-the-secrets-of-time-management-tips-and-strategies/"><u>1. Unlocking the Secrets of Time Management: Tips and Strategies</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-huawei-nova-y71-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Huawei Nova Y71 PC | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/creative-composition-ideal-apps-for-ios-and-android/"><u>Creative Composition Ideal Apps for iOS and Android</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/free-yourself-from-video-edges-on-youtube/"><u>Free Yourself From Video Edges on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-free-to-fortune-unlocking-youtubes-earnings-at-the-500-subscriber-level/"><u>From Free to Fortune Unlocking YouTube's Earnings at the 500 Subscriber Level</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-12-exceptional-game-starting-tutorials-from-youtube-pros-freepremium/"><u>In 2024, 12 Exceptional Game-Starting Tutorials From YouTube Pros (Free/Premium)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-techniques-pushing-boundaries-in-youtube-cinematography/"><u>In 2024, Cutting Edge Techniques Pushing Boundaries in YouTube Cinematography</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-dial-back-unrequested-youtube-recommendations/"><u>In 2024, Dial Back Unrequested YouTube Recommendations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/infographic-insights-small-business-video-mastery/"><u>Infographic Insights Small Business Video Mastery</u></a></li>
+<li><a href="https://win-blog.techidaily.com/step-by-step-solutions-overcoming-final-examination-issue-error-code-tfla0002/"><u>Step-by-Step Solutions: Overcoming Final Examination Issue - Error Code 'TFLA0002'</u></a></li>
 </ul></div>
 

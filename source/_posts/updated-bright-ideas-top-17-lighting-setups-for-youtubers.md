@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Bright Ideas  Top 17 Lighting Setups for YouTubers\""
-date: 2024-12-05T18:14:07.202Z
-updated: 2024-12-10T18:01:58.027Z
+date: 2024-12-10T20:47:45.459Z
+updated: 2024-12-16T20:47:15.545Z
 tags:
   - ai video
   - ai youtube
@@ -94,15 +94,15 @@ On-Camera LED lights are LED lights that can be mounted directly onto your camer
 
 ![Julius Studio Lighting](https://images.wondershare.com/filmora/article-images/lighting-equipment-julius-studio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The Julius Studio 160 LED light not only can be mounted on any digital camera that has a hot/cold shoe but it can also be mounted on light stands so you can keep the same light setting even if you are moving the camera around. This lighting equipment also comes with four color filters so that you can control the color temperature of your light.
 
 #### 2\. Viltrox L116B highest RA CRI95 LED Light Panel
 
 ![Viltrox lighting](https://images.wondershare.com/filmora/article-images/lighting-equipment-viltrox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The VILTROX L116B LED light panel is a powerful piece of on-camera lighting equipment. As you can see from the back view of this light panel, you can see how much battery you have left as well as digitally set the color temperature of your light. It also features PWM light adjustment technology that reduces power consumption. As this equipment comes with an AC adapter, you can choose to use this outdoors or indoors.
 
@@ -111,7 +111,7 @@ The VILTROX L116B LED light panel is a powerful piece of on-camera lighting equi
 ![Chromo Inc](https://images.wondershare.com/filmora/article-images/lighting-equipment-chromo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you're looking for an on-camera ring light, Chromo Inc's macro ring light is a great option. This ring light mounts onto the lens of your SLR camera and its power source (two AA batteries) attaches to your camera's hot/cold shoe. Get that nice-looking ring light reflection in your eyes as you film with this portable ring light!
@@ -126,7 +126,15 @@ The Neewer 216 PCS LED dimmable light panel is powerful lighting equipment at a 
 
 ![Neewer CN-216 216PCS ](https://images.wondershare.com/filmora/article-images/lighting-equipment-neewer-160-led.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This light is Neewer's cheaper version of the CN-216\. Instead of having 216 LED light bulbs, this light has 160 LED light bulbs. Other than the number of light bulbs, the two light panels are pretty much the same.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### List of the Top 5 Best LED Ring Lights
 
@@ -137,7 +145,7 @@ LED ring lights are called ring lights because of their ring-like shape. The ope
 ![Diva Ring Light Super Nova ](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-diva.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The Diva ring light is a great ring light for divas, make-up artists, and anyone else wanting to look good right in front of the camera! This LED ring light has a dimming knob so that you can adjust the brightness of your light. It also comes with a cloth for you to diffuse your light (so that your light will be softer) and a gooseneck and z-bracket attachment if you want to use your camera and ring light with just one tripod.
@@ -146,19 +154,11 @@ The Diva ring light is a great ring light for divas, make-up artists, and anyone
 
 ![Prismatic Halo Ring Light ](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-prismatic.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The Prismatic Halo ring light is another great ring light option. It comes with a canvas travel bag, making it easier to store away or take around with you. The 110-120 VAC, 5400K light bulb produces light that can be dimmed as well. The Prismatic Halo Ring kit doesn't include a light stand.
 
 #### 3\. [Neewer Dimmable 18" Ring Light](https://www.amazon.com/Neewer-10086031-Dimmable-Diameter-Fluorescent/dp/B018G039IU/)
 
 ![Neewer Dimmable  Ring Light ](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-neewer-dimmable.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The 18-inch light ring uses fluorescent light. In addition, this kit includes a 59-inch light stand as well as white and orange filters and a hot shoe adapter that extends the capabilities of this affordable LED ring light kit.
 
@@ -172,6 +172,10 @@ With 300 pcs LED and 150 yellow color and 150 white-color lights, FalconEyes DVR
 
 ![Neewer 14  Ring Light ](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-neewer-ring-light.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The 10-inch inner rim diameter may seem small when compared with larger ring lights that offer more room to operate. The Neewer Camera Ring Light is undimmable and has 50W power. The ring light uses an AC adapter, which makes it difficult to use when filming outside of a studio.
 
 ### List of the Top 2 Best Softbox Video Lights
@@ -182,10 +186,6 @@ A softbox is commonly used by photographers and videographers to simulate natura
 
 ![Neewer 14  Ring Light ](https://images.wondershare.com/filmora/article-images/softbox-lighting-equipment-StudioFX.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This lighting system contains two 16x24-inch softboxes and an overhead hair light boom softbox. The stands for all three softboxes are included in the kit. Each light head is capable of holding up to four bulbs.
 
 #### 2\. [Fancierstudio 2400 Watt Professional Lighting Kit](https://www.amazon.com/gp/product/B0047FHOWG/)
@@ -195,7 +195,7 @@ This lighting system contains two 16x24-inch softboxes and an overhead hair ligh
 This is a standard light setup you want to use when recording interviews, product reviews, or vlogs. It contains two 16x24-inch and one 16x16-inch softbox light that all have their own stands. Each lighthead can hold four 5500K fluorescent or daylight bulbs that are perfectly suited for work in studio conditions.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### List of the Top 5 Best Umbrella Video Lights
@@ -222,6 +222,10 @@ Chances are that you won't need much more than what this photo/video kit has to 
 
 ![LINCO 600W Photography/Video Continuous Lighting Kit ](https://images.wondershare.com/filmora/article-images/umbrella-lighting-equipment-linco.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The Linco 600W continuous lighting kit contains two white translucent umbrellas that generate soft light, which is quite useful if you want to get even skin tones in your videos. The kit has three lamps that use 5500K 40W bulbs and light stands you can easily carry to any filming location.
 
 #### 5\. [Emart 1575W Umbrella Lighting Kit With Translucent White & Black/Silver & Black/Gold](https://www.amazon.com/gp/product/B018KE5XUO/)
@@ -234,14 +238,10 @@ Besides the best lighting equipment, we have also summarized some [tips and tric
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -259,21 +259,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-dive-into-the-world-of-enhanced-youtube-content-with-premium-subscription/"><u>[New] Dive Into the World of Enhanced YouTube Content with Premium Subscription</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-system-requirements-guide-for-the-latest-mac-os-release/"><u>[New] System Requirements Guide for the Latest Mac OS Release</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-5-pro-tips-to-perfectly-tag-videos-and-maximize-views/"><u>[Updated] 5 Pro Tips to Perfectly Tag Videos and Maximize Views</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-decoding-youtube-income-how-much-does-each-1000-viewer-earn/"><u>[Updated] Decoding YouTube Income How Much Does Each 1,000 Viewer Earn?</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-ultimate-guide-using-vlc-for-videos/"><u>[Updated] In 2024, Ultimate Guide Using VLC for Videos</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-optimizing-video-playback-with-pip-on-safari-devices/"><u>[Updated] Optimizing Video Playback with PIP on Safari Devices</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-charting-success-with-youtube-income-streams/"><u>2024 Approved Charting Success with YouTube Income Streams</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-nubia-red-magic-9-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/capturecraftsman-the-ultimate-guide-to-instagram-media-size-adjustment/"><u>CaptureCraftsman The Ultimate Guide to Instagram Media Size Adjustment</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/download-premium-quality-designs-at-no-cost-for-youtube-creators/"><u>Download Premium-Quality Designs at No Cost – For YouTube Creators</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/exchange-mishap-resolved-detailed-analysis/"><u>Exchange Mishap Resolved: Detailed Analysis</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-iphone-13-mini-lock-screen-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From iPhone 13 mini Lock Screen</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/reimagine-your-youtube-approach-with-tubebuddy/"><u>Reimagine Your YouTube Approach with TubeBuddy</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/speedy-and-secure-dvd-extraction-rip-disc-to-premium-mp4-format-h265-using-winx-pro-edition-in-record-time/"><u>Speedy and Secure DVD Extraction: Rip Disc to Premium MP4 Format (H.265) Using WinX Pro Edition in Record Time</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-30-pro-freefire-hashtags-for-boosting-video-popularity/"><u>Top 30 Pro-FreeFire Hashtags for Boosting Video Popularity</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/upcoming-xbox-virtual-reality-headset-anticipated-launch-details-and-pricing-insights/"><u>Upcoming Xbox Virtual Reality Headset - Anticipated Launch Details & Pricing Insights</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-5-step-plan-for-clearing-overexposed-iphone-hd-videos-using-premiere-pro-for-2024/"><u>[New] 5 Step Plan for Clearing Overexposed iPhone HD Videos Using Premiere Pro for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-be-amongst-the-few-essential-metaverse-technology/"><u>[Updated] 2024 Approved Be Amongst the Few Essential Metaverse Technology</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-real-time-webcam-and-screen-melding-tips/"><u>[Updated] Real-Time Webcam & Screen Melding Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/10-most-inspiring-yoga-channels-on-the-web-for-2024/"><u>10 Most Inspiring Yoga Channels on the Web for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-easy-on-methods-for-fish-voice-change-using-windows-platforms/"><u>2024 Approved Easy-On Methods for Fish Voice Change Using Windows Platforms</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-no-limit-visual-capturer-device/"><u>2024 Approved No-Limit Visual Capturer Device</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-youtube-shorts-description-everything-you-need-to-know/"><u>2024 Approved YouTube Shorts Description Everything You Need to Know</u></a></li>
+<li><a href="https://win-best.techidaily.com/windows-1110usb-202e/"><u>最新のWindows 11/10向け:【絶賛】無料USB回復プログラム 202E版</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/beginners-guide-video-setup-must-haves-for-2024/"><u>Beginner's Guide Video Setup Must-Haves for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/chronic-removal-method-for-youtubes-bite-sized-videos/"><u>Chronic Removal Method for YouTube's Bite-Sized Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discover-your-favorite-6-premier-youtube-short-downloaders-for-2024/"><u>Discover Your Favorite 6 Premier YouTube Short Downloaders for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/master-the-art-of-deleting-your-online-tracks-a-comprehensive-guide-for-all-leading-browsers/"><u>Master the Art of Deleting Your Online Tracks: A Comprehensive Guide for All Leading Browsers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/masterclass-softening-audio-endings/"><u>Masterclass Softening Audio Endings</u></a></li>
 </ul></div>
 

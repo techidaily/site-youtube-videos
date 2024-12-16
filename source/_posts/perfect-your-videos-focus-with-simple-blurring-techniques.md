@@ -1,7 +1,7 @@
 ---
 title: "Perfect Your Video's Focus with Simple Blurring Techniques"
-date: 2024-09-14T19:24:40.121Z
-updated: 2024-09-16T17:30:50.926Z
+date: 2024-12-11T16:56:14.846Z
+updated: 2024-12-16T16:28:34.862Z
 tags:
   - ai video
   - ai youtube
@@ -115,19 +115,6 @@ Even if your set is clean, there could be things like books behind you, which wi
 
 ---
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: How to Blur Background of Your YouTube Video in Shooting Videos
 
 Blurring your background is also how you create a beautiful bokeh lighting effect. Bokeh is when you blur lights in the background of your shot, creating halo-like circles of light. By attaching a filter with a shape cut out to the camera lens, you can even generate bokeh lights in other shapes, like hearts or stars.
@@ -233,13 +220,6 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -254,6 +234,10 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
@@ -267,6 +251,10 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
@@ -325,6 +313,10 @@ Creating a bokeh effect is mostly the same, except that it works best when your 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
 
@@ -398,13 +390,6 @@ Amongst these, there are tons of other benefits that you can take advantage of.
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Edit YouTube Videos in Sony Vegas
 
 Let's walk through the process of editing.
@@ -421,70 +406,9 @@ The first thing that you would need to do is import the video clip that you woul
 
 ![ Timeline ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-2.jpg)
 
-Sony Vegas introduces a Timeline with Video and Audio tracks. They contain the clips you've used in the entire editing process. You can edit them by aligning them as you see fit in order to come up with the best sequence. You can also add additional tracks. In order to do so, all you need to do is right click on the space which is empty and then go Add video track.
-
-#### Step 3: Add special effects
-
-![ Effects ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-3.jpg)
-
-Of course, what's video editing software without powerful special effect capabilities? You will see the special effects tab located on the left side of your screen. You can easily browse throughout all of them in order to get a sense of what you can achieve with your video. There are quite a lot of different special effects that you can incorporate in your YouTube video and make it perfect.
-
-#### Step 4: Export
-
-![ Color Match ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-5.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-This is the thing that you need to do once you are done with the process to edit YouTube videos with Sony Vegas. It's a very easy task to handle and if you've come that far you are already on the finish line. Go to File -> Export and choose the specific extension that you want to use. The clip is going to be saved in the directory that you've selected, and it's ready to watch and upload.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-[Sony Vegas (Vegas Movie Studio)](https://tools.techidaily.com/wondershare/filmora/download/) is renowned and particularly popular video editing software which is going to provide you with quite a lot of convenience. It is light, easy to work with and has comprehensive command tools which would provide you with prominent video editing capabilities. You can choose through a variety of exportation presets, including YouTube HD videos. In this article, we'are going to show you how to edit your YouTube Videos with Sony Vegas Pro.
-
----
-
-Best Sony Vegas Alternative to Edit YouTube Videos - Even though Sony Vegas is quite comprehensive, it does require knowledge on behalf of the user. Unlike it, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a perfect alternative which would provide you with all the necessary capabilities without presuming any kind of skills on your particular behalf. With this in mind, let's take a look at some of the benefits:
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Amongst these, there are tons of other benefits that you can take advantage of.
-
-* It has over 200 unique styles you can take your pick from
-* It has animated captions that you can add conveniently
-* It has a wide range of different templates and credits that you can use
-
----
-
-## How to Edit YouTube Videos in Sony Vegas
-
-Let's walk through the process of editing.
-
-#### Step 1: Import Videos
-
-The first thing that you would need to do is import the video clip that you would want to re-shape and edit. In order to do so, you want to click on the File button and then go to Import. You will see a side menu on which you need to click Media and select the file that you want to upload. Keep in mind that you might have to wait for a short period of time while the videos are being uploaded.
-
-![ Importing Clips ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-1.jpg)
-
-**Note:** You can also import videos which have been published on your channel by downloading them and saving them as MP4 files. On the other hand, if you have the intention of editing videos published on other channels, you might want to use [Wondershare Video Converter Ultimate](https://tools.techidaily.com/wondershare/videoconverter/download/) in order to download and convert them to your Mac and get them imported on Sony Vegas.
-
-#### Step 2: Edit the video and audio files on the Timeline
-
-![ Timeline ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-2.jpg)
 
 Sony Vegas introduces a Timeline with Video and Audio tracks. They contain the clips you've used in the entire editing process. You can edit them by aligning them as you see fit in order to come up with the best sequence. You can also add additional tracks. In order to do so, all you need to do is right click on the space which is empty and then go Add video track.
 
@@ -538,6 +462,10 @@ The first thing that you would need to do is import the video clip that you woul
 
 ![ Importing Clips ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** You can also import videos which have been published on your channel by downloading them and saving them as MP4 files. On the other hand, if you have the intention of editing videos published on other channels, you might want to use [Wondershare Video Converter Ultimate](https://tools.techidaily.com/wondershare/videoconverter/download/) in order to download and convert them to your Mac and get them imported on Sony Vegas.
 
 #### Step 2: Edit the video and audio files on the Timeline
@@ -550,11 +478,19 @@ Sony Vegas introduces a Timeline with Video and Audio tracks. They contain the c
 
 ![ Effects ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Of course, what's video editing software without powerful special effect capabilities? You will see the special effects tab located on the left side of your screen. You can easily browse throughout all of them in order to get a sense of what you can achieve with your video. There are quite a lot of different special effects that you can incorporate in your YouTube video and make it perfect.
 
 #### Step 4: Export
 
 ![ Color Match ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is the thing that you need to do once you are done with the process to edit YouTube videos with Sony Vegas. It's a very easy task to handle and if you've come that far you are already on the finish line. Go to File -> Export and choose the specific extension that you want to use. The clip is going to be saved in the directory that you've selected, and it's ready to watch and upload.
 
@@ -602,6 +538,10 @@ The first thing that you would need to do is import the video clip that you woul
 
 ![ Timeline ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Sony Vegas introduces a Timeline with Video and Audio tracks. They contain the clips you've used in the entire editing process. You can edit them by aligning them as you see fit in order to come up with the best sequence. You can also add additional tracks. In order to do so, all you need to do is right click on the space which is empty and then go Add video track.
 
 #### Step 3: Add special effects
@@ -614,12 +554,71 @@ Of course, what's video editing software without powerful special effect capabil
 
 ![ Color Match ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-5.jpg)
 
+This is the thing that you need to do once you are done with the process to edit YouTube videos with Sony Vegas. It's a very easy task to handle and if you've come that far you are already on the finish line. Go to File -> Export and choose the specific extension that you want to use. The clip is going to be saved in the directory that you've selected, and it's ready to watch and upload.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+[Sony Vegas (Vegas Movie Studio)](https://tools.techidaily.com/wondershare/filmora/download/) is renowned and particularly popular video editing software which is going to provide you with quite a lot of convenience. It is light, easy to work with and has comprehensive command tools which would provide you with prominent video editing capabilities. You can choose through a variety of exportation presets, including YouTube HD videos. In this article, we'are going to show you how to edit your YouTube Videos with Sony Vegas Pro.
+
+---
+
+Best Sony Vegas Alternative to Edit YouTube Videos - Even though Sony Vegas is quite comprehensive, it does require knowledge on behalf of the user. Unlike it, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a perfect alternative which would provide you with all the necessary capabilities without presuming any kind of skills on your particular behalf. With this in mind, let's take a look at some of the benefits:
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Amongst these, there are tons of other benefits that you can take advantage of.
+
+* It has over 200 unique styles you can take your pick from
+* It has animated captions that you can add conveniently
+* It has a wide range of different templates and credits that you can use
+
+---
+
+## How to Edit YouTube Videos in Sony Vegas
+
+Let's walk through the process of editing.
+
+#### Step 1: Import Videos
+
+The first thing that you would need to do is import the video clip that you would want to re-shape and edit. In order to do so, you want to click on the File button and then go to Import. You will see a side menu on which you need to click Media and select the file that you want to upload. Keep in mind that you might have to wait for a short period of time while the videos are being uploaded.
+
+![ Importing Clips ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+**Note:** You can also import videos which have been published on your channel by downloading them and saving them as MP4 files. On the other hand, if you have the intention of editing videos published on other channels, you might want to use [Wondershare Video Converter Ultimate](https://tools.techidaily.com/wondershare/videoconverter/download/) in order to download and convert them to your Mac and get them imported on Sony Vegas.
+
+#### Step 2: Edit the video and audio files on the Timeline
+
+![ Timeline ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-2.jpg)
+
+Sony Vegas introduces a Timeline with Video and Audio tracks. They contain the clips you've used in the entire editing process. You can edit them by aligning them as you see fit in order to come up with the best sequence. You can also add additional tracks. In order to do so, all you need to do is right click on the space which is empty and then go Add video track.
+
+#### Step 3: Add special effects
+
+![ Effects ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-3.jpg)
+
+Of course, what's video editing software without powerful special effect capabilities? You will see the special effects tab located on the left side of your screen. You can easily browse throughout all of them in order to get a sense of what you can achieve with your video. There are quite a lot of different special effects that you can incorporate in your YouTube video and make it perfect.
+
+#### Step 4: Export
+
+![ Color Match ](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-5.jpg)
 
 This is the thing that you need to do once you are done with the process to edit YouTube videos with Sony Vegas. It's a very easy task to handle and if you've come that far you are already on the finish line. Go to File -> Export and choose the specific extension that you want to use. The clip is going to be saved in the directory that you've selected, and it's ready to watch and upload.
 
@@ -644,5 +643,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-ultimate-guide-yi-hero-cam-and-its-dynamic-features/"><u>[New] 2024 Approved Ultimate Guide Yi Hero Cam & Its Dynamic Features</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-a-compreshift-guide-to-creating-profitable-and-engaging-youtube-collaborations/"><u>[New] In 2024, A Compreshift Guide to Creating Profitable & Engaging YouTube Collaborations</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-turning-talk-into-top-tier-podcasts-writing-and-samples-included-for-2024/"><u>[New] Turning Talk Into Top-Tier Podcasts Writing & Samples Included for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-direct-music-upload-top-tools-for-turning-spotify-into-youtube-listings/"><u>[Updated] Direct Music Upload Top Tools for Turning Spotify Into YouTube Listings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-capturing-crisp-sound-a-guide-to-superior-audio-recording/"><u>2024 Approved Capturing Crisp Sound A Guide to Superior Audio Recording</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-direct-music-upload-top-tools-for-turning-spotify-into-youtube-listings/"><u>2024 Approved Direct Music Upload Top Tools for Turning Spotify Into YouTube Listings</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-discovering-the-prime-stardew-modifications-for-perfection/"><u>2024 Approved Discovering the Prime Stardew Modifications for Perfection</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/comprehensive-solution-to-overcome-the-ls-0013-bug-in-fortnite/"><u>Comprehensive Solution to Overcome the LS-0013 Bug in Fortnite</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/digital-dollar-first-steps-in-youtubers-revenue-for-2024/"><u>Digital Dollar First Steps in YouTubers' Revenue for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-sifting-through-the-elements-of-instagram-stories/"><u>In 2024, Sifting Through the Elements of Instagram Stories</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/real-time-narrative-builder/"><u>Real-Time Narrative Builder</u></a></li>
+</ul></div>
 

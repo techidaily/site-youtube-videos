@@ -1,7 +1,7 @@
 ---
 title: "\"Optimizing YouTube Content With Social Blade - A Stats Journey\""
-date: 2024-09-09T16:34:23.526Z
-updated: 2024-09-16T18:07:34.724Z
+date: 2024-12-11T21:00:26.645Z
+updated: 2024-12-16T16:29:38.382Z
 tags:
   - ai video
   - ai youtube
@@ -204,6 +204,10 @@ While many of the stats you can find on Social Blade are also available right on
 
 ## Your YouTube Analytics ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Social Blade is an excellent place to gauge the growth of your channel. It provides statistics on our subscribers, views, and estimated revenue.
 
 To start using Social Blade, type your channel name into the search bar.
@@ -221,6 +225,10 @@ The final line of the first section will show you an estimate of your monthly re
 If you scroll down to the second section you will be able to see your views, subscribers, and estimated earnings per day rather than per month. Growth is in green and loss is in red.
 
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spying on Other Channels
 
@@ -308,6 +316,10 @@ Here below is a step by step guide for you:
 
 YouTube shorts videos are nothing different from a normal video which we upload on a platform. There are many things that are very important to keep in mind while creating YouTube shorts. Also, it plays a vital role in making a video stand out in front of viewers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Compelling Title
 
 Along with the YouTube shorts, one such thing which plays a major role in attracting viewers is a title. We all are aware that Title says it all and a YouTube short would get noticed surely with a compelling and impulsive title. Also, it would give the viewers a summary of what they can expect from the clip.
@@ -333,88 +345,14 @@ Creating YouTube shorts would not only cover great content but also focus on pic
 Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-### Conclusion
-
-Thus YouTube shorts thumbnails are a very important part of your page optimization. Choosing the right YouTube shorts video thumbnail size would make you help grow your YouTube shorts in an easy manner. We have also talked about the importance of creating a YouTube shorts thumbnail to drive more attention to your videos.
-
-02 [How to Add Custom YouTube Shorts Thumbnails Effortlessly](#part2)
-
-03 [Tips to Make YouTube Shorts Videos Stand Out](#part3)
-
-## Part 1: Are Thumbnails Necessary for YouTube Shorts?
-
-YouTube shorts thumbnails are small and clickable snapshots that users see whole they are surfing through videos. Thumbnails for YouTube shorts are nothing but an image that might make them click on a play button. YouTube shorts thumbnail plays a vital role as a title of a video that gives a preview of your video content.
-
-![YouTube Shorts thumbnail](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-thumbnail.jpg)
-
-Your YouTube shorts thumbnail does not need to be pleasing and appealing but also showcase your content in a realistic manner. Also, consider YouTube shorts thumbnail size in mind while designing the best outcome.
-
-Are you wondering how YouTube does shorts thumbnails can be important in driving traffic? YouTube shorts thumbnail can make others watch a video with an exciting look. If you don’t create eye-catchy thumbnails for YouTube shorts then people would not find any urge in clicking on a play button.
-
-However good your content is but if you are not presenting it in the right manner to your viewers then it would not create any sense. So creating attractive thumbnails for YouTube shorts with high-quality graphics would impact in a greater manner to gain maximum views.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-## Part 2: How to Add Custom YouTube Shorts Thumbnails Effortlessly
-
-Once you are done creating with customized YouTube shorts thumbnail, uploading YouTube shorts thumbnail is similar to adding a regular video on YouTube shorts.
-
-Here below is a step by step guide for you:
-
-**Step 1:** At first, you need to open the YouTube app and create a Short.
-
-**Step 2:** Then after Upload the Short to YouTube.
-
-**Step 3:** Now go to a desktop computer and open your channel's YouTube Studio.
-
-**Step 4:** Then click Content on the left navigation menu.
-
-**Step 5:** Find the YouTube Short you just uploaded. Then tap on the pencil icon and edit a video as per your preference.
-
-**Step 6**: At last, scroll down to the thumbnail section. Then you would find an option to custom thumbnail.
-
-## Part 3: Tips to Make YouTube Shorts Videos Stand Out
-
-YouTube shorts videos are nothing different from a normal video which we upload on a platform. There are many things that are very important to keep in mind while creating YouTube shorts. Also, it plays a vital role in making a video stand out in front of viewers.
-
-### 1\. Compelling Title
-
-Along with the YouTube shorts, one such thing which plays a major role in attracting viewers is a title. We all are aware that Title says it all and a YouTube short would get noticed surely with a compelling and impulsive title. Also, it would give the viewers a summary of what they can expect from the clip.
-
-### 2\. Detailed Description
-
-Your YouTube Shorts description needs to be simple, specific to the point and should reflect your theme of the content. Herewith detailed description viewers could decide whether a YouTube short is helpful to them or not.
-
-### 3\. Tags
-
-Also, make sure that you are adding relevant tags along with your YouTube shorts video. You can add ‘#Shorts’ in a description just to tell that video clip is created for YouTube shorts. Also, you can add tags based on the genre and/or theme of the short videos to help viewers to the context.
-
-### 4\. Attractive Thumbnail
-
-YouTube shorts thumbnail plays a vital role in attracting viewers and getting more hits on the videos. It helps in catching the eye of viewers at a first glance only. So that make sure to create a thumbnail of your short videos as attractive as you possibly can.
-
-### 5\. Pick the Right Video Editor
-
-Creating YouTube shorts would not only cover great content but also focus on picking the right [video editor](https://tools.techidaily.com/wondershare/filmora/download/). Thus here picking a video editor such as Wondershare Filmora would be an ideal choice for you. As it offers rich video editing tools and high filters to create an outstanding appeal for your video.
-
-#### Wondershare Filmora
-
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 ### Conclusion
 
@@ -423,6 +361,10 @@ Thus YouTube shorts thumbnails are a very important part of your page optimizati
 02 [How to Add Custom YouTube Shorts Thumbnails Effortlessly](#part2)
 
 03 [Tips to Make YouTube Shorts Videos Stand Out](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Are Thumbnails Necessary for YouTube Shorts?
 
@@ -522,18 +464,89 @@ Here below is a step by step guide for you:
 
 **Step 6**: At last, scroll down to the thumbnail section. Then you would find an option to custom thumbnail.
 
+## Part 3: Tips to Make YouTube Shorts Videos Stand Out
+
+YouTube shorts videos are nothing different from a normal video which we upload on a platform. There are many things that are very important to keep in mind while creating YouTube shorts. Also, it plays a vital role in making a video stand out in front of viewers.
+
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### 1\. Compelling Title
+
+Along with the YouTube shorts, one such thing which plays a major role in attracting viewers is a title. We all are aware that Title says it all and a YouTube short would get noticed surely with a compelling and impulsive title. Also, it would give the viewers a summary of what they can expect from the clip.
+
+### 2\. Detailed Description
+
+Your YouTube Shorts description needs to be simple, specific to the point and should reflect your theme of the content. Herewith detailed description viewers could decide whether a YouTube short is helpful to them or not.
+
+### 3\. Tags
+
+Also, make sure that you are adding relevant tags along with your YouTube shorts video. You can add ‘#Shorts’ in a description just to tell that video clip is created for YouTube shorts. Also, you can add tags based on the genre and/or theme of the short videos to help viewers to the context.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### 4\. Attractive Thumbnail
+
+YouTube shorts thumbnail plays a vital role in attracting viewers and getting more hits on the videos. It helps in catching the eye of viewers at a first glance only. So that make sure to create a thumbnail of your short videos as attractive as you possibly can.
+
+### 5\. Pick the Right Video Editor
+
+Creating YouTube shorts would not only cover great content but also focus on picking the right [video editor](https://tools.techidaily.com/wondershare/filmora/download/). Thus here picking a video editor such as Wondershare Filmora would be an ideal choice for you. As it offers rich video editing tools and high filters to create an outstanding appeal for your video.
+
+#### Wondershare Filmora
+
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Conclusion
+
+Thus YouTube shorts thumbnails are a very important part of your page optimization. Choosing the right YouTube shorts video thumbnail size would make you help grow your YouTube shorts in an easy manner. We have also talked about the importance of creating a YouTube shorts thumbnail to drive more attention to your videos.
+
+02 [How to Add Custom YouTube Shorts Thumbnails Effortlessly](#part2)
+
+03 [Tips to Make YouTube Shorts Videos Stand Out](#part3)
+
+## Part 1: Are Thumbnails Necessary for YouTube Shorts?
+
+YouTube shorts thumbnails are small and clickable snapshots that users see whole they are surfing through videos. Thumbnails for YouTube shorts are nothing but an image that might make them click on a play button. YouTube shorts thumbnail plays a vital role as a title of a video that gives a preview of your video content.
+
+![YouTube Shorts thumbnail](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-thumbnail.jpg)
+
+Your YouTube shorts thumbnail does not need to be pleasing and appealing but also showcase your content in a realistic manner. Also, consider YouTube shorts thumbnail size in mind while designing the best outcome.
+
+Are you wondering how YouTube does shorts thumbnails can be important in driving traffic? YouTube shorts thumbnail can make others watch a video with an exciting look. If you don’t create eye-catchy thumbnails for YouTube shorts then people would not find any urge in clicking on a play button.
+
+However good your content is but if you are not presenting it in the right manner to your viewers then it would not create any sense. So creating attractive thumbnails for YouTube shorts with high-quality graphics would impact in a greater manner to gain maximum views.
+
+## Part 2: How to Add Custom YouTube Shorts Thumbnails Effortlessly
+
+Once you are done creating with customized YouTube shorts thumbnail, uploading YouTube shorts thumbnail is similar to adding a regular video on YouTube shorts.
+
+Here below is a step by step guide for you:
+
+**Step 1:** At first, you need to open the YouTube app and create a Short.
+
+**Step 2:** Then after Upload the Short to YouTube.
+
+**Step 3:** Now go to a desktop computer and open your channel's YouTube Studio.
+
+**Step 4:** Then click Content on the left navigation menu.
+
+**Step 5:** Find the YouTube Short you just uploaded. Then tap on the pencil icon and edit a video as per your preference.
+
+**Step 6**: At last, scroll down to the thumbnail section. Then you would find an option to custom thumbnail.
 
 ## Part 3: Tips to Make YouTube Shorts Videos Stand Out
 
@@ -555,13 +568,6 @@ Also, make sure that you are adding relevant tags along with your YouTube shorts
 
 YouTube shorts thumbnail plays a vital role in attracting viewers and getting more hits on the videos. It helps in catching the eye of viewers at a first glance only. So that make sure to create a thumbnail of your short videos as attractive as you possibly can.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Pick the Right Video Editor
 
 Creating YouTube shorts would not only cover great content but also focus on picking the right [video editor](https://tools.techidaily.com/wondershare/filmora/download/). Thus here picking a video editor such as Wondershare Filmora would be an ideal choice for you. As it offers rich video editing tools and high filters to create an outstanding appeal for your video.
@@ -571,13 +577,6 @@ Creating YouTube shorts would not only cover great content but also focus on pic
 Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -596,5 +595,22 @@ Thus YouTube shorts thumbnails are a very important part of your page optimizati
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/updated-beginners-guide-adding-text-overlays-on-youtube/"><u>[Updated] Beginner's Guide Adding Text Overlays on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-choosing-the-best-camera-for-filming-mirrorless-or-dslr/"><u>[Updated] Choosing the Best Camera for Filming Mirrorless or DSLR</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-instagram-video-tricks-uncovered-for-2024/"><u>[Updated] Instagram Video Tricks Uncovered for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-lava-blaze-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-engagement-essential-video-formats-for-youtube-viewers/"><u>2024 Approved Enhancing Engagement Essential Video Formats for YouTube Viewers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-ensuring-accurate-earnings-tracking-for-creators/"><u>2024 Approved Ensuring Accurate Earnings Tracking for Creators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ban-unwanted-youtube-recommended-titles-for-2024/"><u>Ban Unwanted YouTube Recommended Titles for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-xiaomi-14-ultra-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Xiaomi 14 Ultra Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-honor-magic-vs-2-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Honor Magic Vs 2 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-xiaomi-redmi-a2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/legal-means-to-elevate-your-youtube-popularity-by-one-million/"><u>Legal Means to Elevate Your YouTube Popularity by One Million</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/mastering-instagram-your-complete-guide-to-making-a-mark-with-reels/"><u>Mastering Instagram Your Complete Guide to Making a Mark With Reels</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/re-engineering-the-taskbar-key-steps-to-better-windows-11-ux/"><u>Re-Engineering the Taskbar: Key Steps to Better Windows 11 UX</u></a></li>
+<li><a href="https://article-helps.techidaily.com/tiktok-linking-made-simple-and-irreversible-for-2024/"><u>TikTok Linking Made Simple and Irreversible for 2024</u></a></li>
+</ul></div>
 

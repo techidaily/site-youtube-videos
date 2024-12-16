@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Demystifying Video SEO on YouTube as a Novice"
-date: 2024-12-08T16:41:42.047Z
-updated: 2024-12-10T18:30:17.381Z
+date: 2024-12-15T16:02:09.079Z
+updated: 2024-12-16T21:54:14.782Z
 tags:
   - ai video
   - ai youtube
@@ -58,10 +58,6 @@ Okay, don’t panic! There is a fantastic quote, credited to bestselling author,
 
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
 
 Watch those videos and understand what they are all about.
@@ -88,19 +84,11 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ####  
 
@@ -168,6 +156,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -202,10 +194,6 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -216,6 +204,10 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -224,11 +216,19 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -262,13 +262,13 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -285,17 +285,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-leveraging-your-roku-setup-for-exclusive-fb-live-content/"><u>[Updated] Leveraging Your Roku Setup for Exclusive FB Live Content</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-transform-into-a-live-stream-enthusiast-on-tiktok-for-2024/"><u>[Updated] Transform Into a Live-Stream Enthusiast on TikTok for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-channel-transformation-with-strategic-use-of-youtube-outros/"><u>2024 Approved Channel Transformation with Strategic Use of YouTube Outros</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-ensuring-authenticity-of-your-youtube-account/"><u>2024 Approved Ensuring Authenticity of Your YouTube Account</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/apple-showdown-identifying-unique-aspects-of-the-ipad-mini-and-ipad-air/"><u>Apple Showdown: Identifying Unique Aspects of the iPad Mini and iPad Air</u></a></li>
-<li><a href="https://fox-info.techidaily.com/classification-guide-to-diverse-video-cameras-for-2024/"><u>Classification Guide to Diverse Video Cameras for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/earning-by-critiquing-goodies-a-youtube-guide/"><u>Earning by Critiquing Goodies A YouTube Guide</u></a></li>
-<li><a href="https://games-able.techidaily.com/game-mode-a-new-era-for-gaming-on-apples-macos-sonoma-system/"><u>Game Mode: A New Era for Gaming on Apple's macOS Sonoma System</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-captivating-asmr-scenes-techniques-for-successful-recording/"><u>In 2024, Crafting Captivating ASMR Scenes Techniques for Successful Recording</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/mastering-pinterest-videos-to-mp3s-essential-strategies/"><u>Mastering Pinterest Videos to MP3s Essential Strategies</u></a></li>
-<li><a href="https://win-able.techidaily.com/mastering-stability-6-key-tweaks-to-avoid-dreamlight-valley-glitches-on-windows/"><u>Mastering Stability: 6 Key Tweaks to Avoid Dreamlight Valley Glitches on Windows</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/thorough-summary-googles-podcast-platform-demystified/"><u>Thorough Summary Google's Podcast Platform Demystified</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-engage-viewers-with-powerful-channel-building-stories/"><u>[New] Engage Viewers with Powerful Channel-Building Stories</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unlock-facebook-popularity-discover-best-apps-from-androidiphone/"><u>[Updated] 2024 Approved Unlock Facebook Popularity Discover Best Apps From Android/iPhone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-discover-your-top-10-choice-of-editors-for-youtube-short-videos/"><u>[Updated] Discover Your Top 10 Choice of Editors for YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-essential-details-on-creating-effective-yt-shorts/"><u>[Updated] Essential Details on Creating Effective YT Shorts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-secrets-to-successful-live-broadcasts-from-iphonesandroids/"><u>[Updated] Secrets to Successful Live Broadcasts From iPhones/Androids</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1722126066645-chatgpt-desktop-still-not-out-check-this-great-gratis-open-source-option-for-your-needs/"><u>ChatGPT Desktop Still Not Out? Check This Great, Gratis Open Source Option for Your Needs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/digitizing-memories-from-stillness-to-movement/"><u>Digitizing Memories From Stillness to Movement</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-vivo-y36i-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Vivo Y36i? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/navigate-the-best-free-photography-enhancers-worldwide/"><u>Navigate the Best Free Photography Enhancers Worldwide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-guide-to-earning-money-on-youtube-shorts-quickly/"><u>The Essential Guide to Earning Money on YouTube Shorts Quickly</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210112422-9781722526245-think-and-grow-rich/"><u>Think and Grow Rich | Free Book</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/upgrade-your-videography-with-the-top-10-flv-to-youtube-devices/"><u>Upgrade Your Videography with the Top 10 Flv-to-YouTube Devices</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Meizu 21 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/years-biggest-beauty-influencers-on-youtube-for-2024/"><u>Year's Biggest Beauty Influencers on YouTube for 2024</u></a></li>
 </ul></div>
 

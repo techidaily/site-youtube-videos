@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Vlogger's Guide To Camera Lenses"
-date: 2024-12-03T17:31:30.631Z
-updated: 2024-12-10T17:05:40.061Z
+date: 2024-12-14T20:52:44.680Z
+updated: 2024-12-16T19:34:26.697Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -82,17 +78,21 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
- In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 ### Focal Length Equivalency Table
 
@@ -109,10 +109,6 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
@@ -128,7 +124,7 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 But do you even need a fast lens?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
@@ -145,6 +141,10 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -160,7 +160,7 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -178,22 +178,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-15-masterpieces-that-defined-stop-motion-artistry/"><u>[Updated] 2024 Approved 15 Masterpieces That Defined Stop Motion Artistry</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-bright-ideas-effective-lighting-in-vlogging/"><u>[Updated] Bright Ideas Effective Lighting in Vlogging</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-comprehensive-guide-your-shorts-hidden-thumbnails/"><u>[Updated] Comprehensive Guide Your Shorts' Hidden Thumbnails</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-how-to-download-obs-studio-for-mac/"><u>[Updated] In 2024, How to Download OBS Studio for Mac</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-windows-studio-options-beyond-moviemaker/"><u>[Updated] In 2024, Windows Studio Options Beyond MovieMaker</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-delightful-no-cost-access-to-youtubes-nine-full-length-yule-celebrations/"><u>2024 Approved Delightful, No-Cost Access to YouTube's Nine Full-Length Yule Celebrations</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-digital-sharpening-from-youtube-shorts-to-mp4/"><u>2024 Approved Digital Sharpening From YouTube Shorts to MP4</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-concepts-to-shares-your-guide-to-metaverse-meme-creation/"><u>2024 Approved From Concepts to Shares Your Guide to Metaverse Meme Creation</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-perfecting-your-vids-a-comprehensive-youtube-studio-tutorial/"><u>2024 Approved Perfecting Your Vids A Comprehensive YouTube Studio Tutorial</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/gif/"><u>直接在線 GIF 編輯：如何即時變更任何影片成為動畫 - 無須付費版</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/chatgpt-unveiled-a-guide-to-business-utilization/"><u>ChatGPT Unveiled: A Guide to Business Utilization</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-channel-descriptions/"><u>Mastering YouTube Channel Descriptions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/streamlining-sound-systems-uploads-for-your-youtube-hub/"><u>Streamlining Sound Systems Uploads for Your Youtube Hub</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-playlist-wizard-youtube-music-edition/"><u>The Playlist Wizard YouTube Music Edition</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-role-of-youtube-images-in-video-promotion-and-discovery/"><u>The Role of Youtube Images in Video Promotion and Discovery</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-rated-gaming-seating-solutions-in-2/"><u>Top Rated Gaming Seating Solutions in 2</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/unlocking-financial-gains-with-these-8-tiktok-tricks/"><u>Unlocking Financial Gains with These 8 TikTok Tricks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-ace-the-art-of-online-fame-trending-on-youtube/"><u>[New] Ace the Art of Online Fame Trending on YouTube</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-fostering-self-assurance-against-virtual-hostility/"><u>[New] Fostering Self-Assurance Against Virtual Hostility</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-ultimate-list-premier-cameras-for-diving-and-snorkeling-enthusiasts/"><u>[New] The Ultimate List Premier Cameras for Diving & Snorkeling Enthusiasts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-beginners-blueprint-for-online-content-simple-straightforward-video-projects/"><u>[Updated] Beginner's Blueprint for Online Content Simple, Straightforward Video Projects</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-beyond-vidcon-a-guide-to-the-most-important-youtube-events/"><u>[Updated] Beyond VidCon - A Guide to the Most Important YouTube Events</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-strategies-for-enhanced-media-experience-with-vlc/"><u>[Updated] Expert Strategies for Enhanced Media Experience with VLC</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-scaling-your-influence-with-youtube-shorts-strategy/"><u>[Updated] Scaling Your Influence with YouTube Shorts Strategy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/b550-xt-breakthrough-speech-control-and-noise-suppression/"><u>B550-XT Breakthrough: Speech Control & Noise Suppression</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elite-8-cybernetic-photograph-assembly-suite/"><u>Elite 8 Cybernetic Photograph Assembly Suite</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/guide-to-installing-the-latest-webcam-driver-for-a-smooth-windows-11-experience/"><u>Guide to Installing the Latest Webcam Driver for a Smooth Windows 11 Experience</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-screenflow-mastery-on-macos-uncovered/"><u>In 2024, ScreenFlow Mastery on macOS Uncovered</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/omnipresent-connectors-identifying-the-right-cms/"><u>Omnipresent Connectors Identifying the Right CMS</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/phones-as-cameras-a-comprehensive-guide-to-mobile-video-production/"><u>Phones as Cameras A Comprehensive Guide to Mobile Video Production</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ultimate-guide-to-elevating-your-youtube-presence-with-these-20-hacks/"><u>The Ultimate Guide to Elevating Your YouTube Presence with These 20 Hacks</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-honor-x8b-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Honor X8b | Dr.fone</u></a></li>
 </ul></div>
 

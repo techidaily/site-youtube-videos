@@ -1,7 +1,7 @@
 ---
 title: "\"Protecting Your Work  YouTube Copyright Essentials Explained\""
-date: 2024-10-30T17:18:35.782Z
-updated: 2024-11-05T02:47:57.007Z
+date: 2024-12-11T19:06:06.243Z
+updated: 2024-12-16T20:05:39.220Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,10 @@ There are a few aspects YouTube looks at when it comes to determining whether cr
 2. Are there more original content used than copyrighted content in the video?
 3. Will your video benefit the original copyrighted content?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Types of Content That Meet Fair Use
 
 Some acceptable styles of videos that allow you to exercise fair use are:
@@ -69,6 +73,10 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 **Parody:** Imitation for comedic or dramatic effect is an artistic pursuit as long as it is done in a transformative manner. What does transformative mean? It means in some way, the original is being examined.
 
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
@@ -88,6 +96,10 @@ So what should you do? Here are the steps to take after you receive a copyright 
 
 ![YouTube Copyright notice](https://images.wondershare.com/filmora/article-images/youtube-copyright-notice.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Click on the “Copyright Strike” link beside the flagged video to see details
 2. Decide how to respond to the strike:  
    1. Allow the strike to expire after 90 days and complete the [YouTube’s copyright school](https://www.youtube.com/copyright%5Fschool)  
@@ -97,10 +109,7 @@ So what should you do? Here are the steps to take after you receive a copyright 
 ![Dispute YouTube Copyright Claims](https://images.wondershare.com/filmora/article-images/dispute-youtube-copyright-claim.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: 5 Ways to Avoid Copyright Strike
@@ -123,13 +132,6 @@ In this example from Screen Prism, we see scenes from Wes Anderson movies all th
 
 **5\. Keep it short.** There is no precise number of seconds or ratio of copyrighted to original footage you should have in your video to qualify as fair use. But generally, if the copyrighted clip is short and/or broken up, then it stands a better chance at being approved by YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 6: What to Do When Other YouTubers Are Copying Your Content
 
 As a new YouTuber, it’s a little freaky to think that someone is taking your content and republishing it or using your creations in their video without your permission.
@@ -150,13 +152,6 @@ If you ever notice that your content is being copied without your approval — i
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
 2. Submit report and wait for an email confirmation that the infringing content has been removed.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 7: YouTube Copyright Match
 
 In 2018, YouTube launched a new feature called **Copyright Match Tool**, which automatically finds videos that are very similar or the same as the ones you’ve created. This gives you the power to determine what to do once you know the video exist.
@@ -166,13 +161,6 @@ In 2018, YouTube launched a new feature called **Copyright Match Tool**, which a
 \- You can contact the publisher.
 
 \- You can report the video to YouTube for removal.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Key Takeaways
 
@@ -194,6 +182,10 @@ Got any questions on YouTube copyright? Leave a comment below and we’ll help y
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -209,22 +201,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-best-free-youtube-ending-creators-top-6-picks/"><u>[New] Best Free YouTube Ending Creators - Top 6 Picks</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/outube-content-creators-optimal-stabilizer-companies/"><u>[New] YouTube Content Creators Optimal Stabilizer Companies</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-audacity-workshop-eloquent-silent-transitions/"><u>[Updated] 2024 Approved Audacity Workshop Eloquent Silent Transitions</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-decoding-the-freeze-in-photo-booth-videos/"><u>[Updated] Decoding the Freeze in Photo Booth Videos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-exclusive-list-of-8-leading-android-group-calling-apps-for-2024/"><u>[Updated] Exclusive List of 8 Leading Android Group Calling Apps for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/1726227386995-m4amp3/"><u>「スピーディーかつ効率的なオンラインM4A/MP3変換 - ムバビ」</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/command-response-symbiosis-the-ai-dialogue-evolution/"><u>Command-Response Symbiosis: The AI Dialogue Evolution</u></a></li>
-<li><a href="https://windows11.techidaily.com/eliminating-internal-failure-on-desktop-connections/"><u>Eliminating Internal Failure on Desktop Connections</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-recurring-audio-drops-on-your-windows-11-machine-a-comprehensive-guide/"><u>Fixing Recurring Audio Drops on Your Windows 11 Machine – A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/narrowing-down-the-video-platform-wars-youtube-shorts-against-tiktok/"><u>Narrowing Down the Video Platform Wars YouTube Shorts Against TikTok</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/streamline-your-video-watching-experience-with-easy-timestamp-addition/"><u>Streamline Your Video Watching Experience with Easy Timestamp Addition</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/synchronizing-creatives-videos-to-amplify-your-presence/"><u>Synchronizing Creatives Videos to Amplify Your Presence</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-8-platforms-for-linux-video-buffs/"><u>Top 8 Platforms for Linux Video Buffs</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-resolving-five-nights-at-freddys-security-breach-pc-glitches/"><u>Troubleshooting Steps: Resolving 'Five Nights at Freddy's Security Breach PC Glitches</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/understanding-youtubes-mechanism-to-foster-creative-video-content-creators/"><u>Understanding YouTube’s Mechanism to Foster Creative Video Content Creators</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/visual-warmth-in-winter-selecting-the-best-bgs/"><u>Visual Warmth in Winter Selecting the Best Bgs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/your-path-to-youtube-stardom-six-simple-steps-for-greater-visibility/"><u>Your Path to YouTube Stardom Six Simple Steps for Greater Visibility</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-engage-more-viewers-unveiling-top-youtube-font-secrets/"><u>[New] Engage More Viewers Unveiling Top YouTube Font Secrets</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-detailed-examination-of-chilled-treat-recorders/"><u>[New] In 2024, Detailed Examination of Chilled Treat Recorders</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-eliminate-youtube-shorts-permanent-guide/"><u>[Updated] In 2024, Eliminate YouTube Shorts Permanent Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-windows-11-premium-video-grabber-selections/"><u>[Updated] Windows 11 Premium Video Grabber Selections</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enriching-videos-with-no-cost-sounds-legally/"><u>2024 Approved Enriching Videos with No-Cost Sounds Legally</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/6-powerful-strategies-to-create-stunning-microsoft-excel-charts/"><u>6 Powerful Strategies to Create Stunning Microsoft Excel Charts</u></a></li>
+<li><a href="https://win-able.techidaily.com/achieve-higher-performance-in-horizon-zero-dawn-by-increasing-fps/"><u>Achieve Higher Performance in Horizon Zero Dawn by Increasing FPS</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/amplify-your-audience-maximizing-youtube-viewership/"><u>Amplify Your Audience Maximizing YouTube Viewership</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-7-comedy-youtube-video-ideas-that-funny-people-can-try/"><u>In 2024, 7 Comedy YouTube Video Ideas That Funny People Can Try</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-hardware-with-toms-technology-hub/"><u>Mastering Hardware with Tom's Technology Hub</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-review-of-the-tp-link-re305-your-guide-to-enhancing-home-wi-fi-with-an-ac1200-repeater/"><u>Ultimate Review of the TP-Link RE305: Your Guide to Enhancing Home Wi-Fi with an AC1200 Repeater</u></a></li>
 </ul></div>
 

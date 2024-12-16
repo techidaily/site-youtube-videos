@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-12-04T16:59:26.445Z
-updated: 2024-12-10T18:43:22.053Z
+date: 2024-12-15T17:51:52.279Z
+updated: 2024-12-16T20:18:15.782Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/a7b063e2c5f1e938dc6e32e2ce85c52239dfc8e77
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,21 +143,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-media-makers-software-linux-edition/"><u>[New] Essential Media Makers' Software Linux Edition</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-exclusive-selection-of-fastest-screen-capture-apps-for-2024/"><u>[New] Exclusive Selection of Fastest Screen Capture Apps for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ailoring-thumbnail-lengths-for-youtube-audience-focus-for-2024/"><u>[New] Tailoring Thumbnail Lengths for YouTube Audience Focus for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-leading-experts-on-aspers-asmr-for-better-sleep/"><u>[Updated] Leading Experts on Asper's ASMR for Better Sleep</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-compile-list-of-cost-efficient-vecto-art-sites/"><u>2024 Approved Compile List of Cost-Efficient Vecto Art Sites</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-websites-for-youtube-preview-creation-tools/"><u>2024 Approved Essential Websites for YouTube Preview Creation Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-comprehensive-tour-youtube-creator-suite/"><u>A Comprehensive Tour YouTube Creator Suite</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/easy-to-follow-instructions-for-taking-screenshots-on-an-hp-laptop/"><u>Easy-to-Follow Instructions for Taking Screenshots on an HP Laptop</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Samsung Galaxy A25 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-breakneck-broadcast-channel-your-youtube-list/"><u>In 2024, Breakneck Broadcast Channel Your YouTube List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-conveniently-remove-downloaded-youtube-media-for-lightweight-devices/"><u>In 2024, Conveniently Remove Downloaded YouTube Media for Lightweight Devices</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-football-info-youtube-trend-infographics/"><u>In 2024, Essential Football Info YouTube Trend Infographics</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/outsmarting-the-obtrusive-fb-video-ads-for-2024/"><u>Outsmarting the Obtrusive FB Video Ads for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oppo-reno-10-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/rapid-routines-to-disrupt-youtube-list-ordering/"><u>Rapid Routines to Disrupt YouTube List Ordering</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/the-ultimate-guide-to-performance-and-hardware-by-toms-experts/"><u>The Ultimate Guide to Performance & Hardware by Tom's Experts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-optimal-outlooks-ideal-laptops-to-render-hd-videos-quickly/"><u>[New] 2024 Approved Optimal Outlooks Ideal Laptops to Render HD Videos Quickly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-altering-gender-display-in-digital-photographs-step-by-step-guide-for-2024/"><u>[Updated] Altering Gender Display in Digital Photographs Step by Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-become-a-youtube-gif-wizard-your-complete-online-transformation-tutorial/"><u>2024 Approved Become a Youtube Gif Wizard Your Complete Online Transformation Tutorial</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-composing-correspondents-curtains/"><u>2024 Approved Composing Correspondents' Curtains</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-core-principles-youtubes-social-contract/"><u>2024 Approved Core Principles YouTube's Social Contract</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-double-down-on-youtube-visibility-2-quick-methods/"><u>2024 Approved Double Down on YouTube Visibility (2 Quick Methods)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-audio-visual-fidelity-use-av1-on-youtube/"><u>2024 Approved Enhance Audio-Visual Fidelity Use AV1 on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/calculating-clickers-contribution-to-youtube-earnings/"><u>Calculating Clickers' Contribution to YouTube Earnings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/controlling-who-sees-your-youtube-productions-for-2024/"><u>Controlling Who Sees Your Youtube Productions for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-finding-the-best-replacement-for-magixs-acid-pro/"><u>In 2024, Finding the Best Replacement for Magix's ACID Pro</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-realme-narzo-60-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Realme Narzo 60 5G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-imac-with-m1-chip-analysis-combining-elegance-with-performance/"><u>In-Depth iMac with M1 Chip Analysis: Combining Elegance with Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-of-love-a-global-valentines-day-guide/"><u>Language of Love: A Global Valentine’s Day Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/serene-visual-narratives-for-bedtime/"><u>Serene Visual Narratives for Bedtime</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-art-of-converting-photographs-into-cinematic-videography-with-pixiz/"><u>The Art of Converting Photographs Into Cinematic Videography with Pixiz</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-5-best-free-global-voice-communication-tools/"><u>Top 5 Best Free Global Voice Communication Tools</u></a></li>
 </ul></div>
 

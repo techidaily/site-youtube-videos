@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Fix Guide: Eliminating Red Dead Redemption 2 Game Crashes on Windows"
-date: 2024-12-04T18:40:15.599Z
-updated: 2024-12-10T17:09:13.824Z
+date: 2024-12-11T17:47:54.211Z
+updated: 2024-12-16T18:46:58.232Z
 tags:
   - win11
   - win10
@@ -32,7 +32,7 @@ Stop blaming yourself for losing your temper when the FPS (frame per second) dro
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Check the system requirements
@@ -47,6 +47,10 @@ Stop blaming yourself for losing your temper when the FPS (frame per second) dro
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Make sure your computer is not overheating
 
  If the ventilation for your computer is rather poor, your machine may run hot, thus with the FPS dropping problems in games, among many other PC performance issues.
@@ -56,10 +60,6 @@ Stop blaming yourself for losing your temper when the FPS (frame per second) dro
  Here is a detailed post for your reference if your computer is overheating: [**How to Know Your CPU Overheating and How to Fix It**](https://tools.techidaily.com/drivereasy/download/)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Close CPU- and bandwidth-intensive services and applications
 
@@ -75,7 +75,7 @@ To do so:
 3. Pay extra attention to**Intel Turbo Boost Technology** : if you have it running, please disable it as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Then run your game again and see if the FPS dropping issue is fixed. If the problem still remains, please move on to the next fix below.
@@ -98,6 +98,10 @@ To do so:
 
 [2: Switch to a public DNS server](https://tools.techidaily.com/drivereasy/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4.1 Flush your DNS
 
  By flushing your DNS, your DNS cache will be cleared. When your PC needs to access a website, it’ll need to obtain the address from the DNS server again. This may fix the FPS dropping issue if the DNS cache data was invalid or corrupt. Here’s how:
@@ -113,11 +117,7 @@ To do so:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/Snipaste_2021-06-01_10-06-54.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4.2 Switch to a public DNS server
@@ -134,34 +134,34 @@ To do so:
 4. Select**Internet Protocol Version 4 (TCP/IPv4)** , then click**Properties** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/ipv4.png)
 5. Select**Use the following DNS server addresses** , fill in the Google DNS server addresses as below, then click**OK** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  **Preferred DNS server: 8.8.8.8**  
  **Alternate DNS server: 8.8.4.4**  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/change-to-google-dns.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Run your game again to see if the frame rate per second still drops. If the problem still persists, please move on.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Update graphics card and network card drivers
 
  Another reason why FPS drops in your games is probably outdated or incorrect drivers for your graphics and network cards. This is because outdated, incorrect, or missing drivers for your display card and network card could lead to unstable graphics rendering and slow network connection, and therefore the stuttering and the FPS dropping problems. So you should update your device drivers to see if it helps.
 
  There are mainly 2 ways you can update the drivers for your video card and network card: manually or automatically.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Option 1: Update your graphics and network drivers manually
 
@@ -181,10 +181,6 @@ and your network card manufacturer:
 * **[Intel](https://www.intel.com/content/www/us/en/download/18293/intel-network-adapter-driver-for-windows-10.html)**
 
  Then search for your GPU and network card models. Note that you should only download the latest driver installers that are compatible with your operating system. Once downloaded, open the installers and follow the on-screen instructions to update the drivers one by one.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Option 2: Update your graphics and network drivers automatically (Recommended)
 
@@ -206,6 +202,10 @@ and your network card manufacturer:
  Launch your game again and see if the latest graphics and network drivers help to improve the FPS. If this fix doesn’t work for you, try the next fix, below.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Modify the Power Mode
 
@@ -249,20 +249,20 @@ To change the power mode:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-expert-review-of-apeaksoft-for-video-capture-technology-for-2024/"><u>[New] Expert Review of Apeaksoft for Video Capture Technology for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-grateful-reels-exclusive-free-and-paid-otus/"><u>[New] Grateful Reels Exclusive Free & Paid OTUs</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-essential-online-hubs-for-visualizing-text-effects/"><u>[New] In 2024, Essential Online Hubs for Visualizing Text Effects</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-10-must-have-tech-gadgets-for-seamless-video-meetings/"><u>[Updated] 2024 Approved 10 Must-Have Tech Gadgets for Seamless Video Meetings</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-image-banking-securing-premium-stock-graphics/"><u>[Updated] Image Banking Securing Premium Stock Graphics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-how-walmartplus-can-enhance-your-shopping-journey/"><u>Discover How Walmart+ Can Enhance Your Shopping Journey</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-edit-uploaded-published-youtube-videos/"><u>How to Edit Uploaded/ Published YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-accelerate-channels-youtubes-top-collaborative-growth-tips/"><u>In 2024, Accelerate Channels YouTube's Top Collaborative Growth Tips</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-channel-prodigy-skyrocketing-with-content-innovation/"><u>In 2024, Channel Prodigy Skyrocketing with Content Innovation</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-nubia-red-magic-9-pro-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Nubia Red Magic 9 Pro Device</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/investigating-profit-per-viewer-engagement-on-video-platforms/"><u>Investigating Profit per Viewer Engagement on Video Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/multi-platform-mastery-delivering-content-to-youtube-and-others/"><u>Multi-Platform Mastery Delivering Content to YouTube & Others</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/swift-technique-coding-images-for-youtube-channel-thumbnails/"><u>Swift Technique Coding Images for YouTube Channel Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/visual-anonymity-in-sharing-blurring-methods-explained/"><u>Visual Anonymity in Sharing Blurring Methods Explained</u></a></li>
-<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-vivo-x90s-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Vivo X90S? Here is How | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-online-broadcast-battle-fb-live-and-yt-live-vs-tweetstreams/"><u>[New] 2024 Approved Online Broadcast Battle FB LIVE & YT Live Vs. TweetStreams</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-premier-guide-to-cost-free-video-editors/"><u>[Updated] In 2024, The Premier Guide to Cost-Free Video Editors</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-quick-guide-syncing-images-and-movies-between-iphones-for-2024/"><u>[Updated] Quick Guide Syncing Images & Movies Between iPhones for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-full-fiscal-outline-getting-your-podcast-off-the-ground/"><u>2024 Approved Full Fiscal Outline Getting Your Podcast Off the Ground</u></a></li>
+<li><a href="https://extra-information.techidaily.com/complementing-visuals-embedding-text-into-windowsmac-pictures-for-2024/"><u>Complementing Visuals Embedding Text Into Windows/Mac Pictures for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/easy-steps-for-sharing-your-xbox-playtime-for-2024/"><u>Easy Steps for Sharing Your Xbox Playtime for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-bokmaal-learning-quick-10-minute-fixes/"><u>Efficient Bokmaal Learning, Quick 10-Minute Fixes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/expert-tips-activating-or-deactivating-youtube-comments/"><u>Expert Tips Activating or Deactivating YouTube Comments</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/grasping-the-essence-of-your-youtube-community/"><u>Grasping the Essence of Your YouTube Community</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-best-youtube-video-reverser-online/"><u>In 2024, Best YouTube Video Reverser Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-designing-direct-access-to-your-channels-subscribe-page/"><u>In 2024, Designing Direct Access to Your Channel's Subscribe Page</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-enjoy-a-stream-of-nine-complete-christmas-capsules-on-youtube/"><u>In 2024, Enjoy a Stream of Nine Complete Christmas Capsules on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-tactics-for-youtube-success-in-25-ways/"><u>In 2024, Essential Tactics for YouTube Success in 25 Ways</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-passfab-apple-iphone-11-pro-max-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>In 2024, PassFab Apple iPhone 11 Pro Max Backup Unlocker Top 4 Alternatives</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-chromebook-friendly-video-editors-a-2023-comparison/"><u>New Chromebook-Friendly Video Editors A 2023 Comparison</u></a></li>
 </ul></div>
 

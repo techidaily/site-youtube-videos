@@ -1,7 +1,7 @@
 ---
 title: "\"The YouTube Creator Summit - A Getaway for YouTube's Top Talent\""
-date: 2024-12-06T18:18:35.655Z
-updated: 2024-12-10T17:50:40.469Z
+date: 2024-12-11T16:26:25.906Z
+updated: 2024-12-16T17:58:32.277Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. A map of Dumbo
@@ -63,10 +63,6 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -76,7 +72,7 @@ One of the major benefits of attending this summit would have been networking wi
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Branded slippers
@@ -87,12 +83,16 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Denim jacket
@@ -112,7 +112,7 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,21 +130,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-echoes-of-calls-past-iphones-audio-archive/"><u>[Updated] In 2024, Echoes of Calls Past - iPhone's Audio Archive</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-windows-file-glance-fast-assessment-technique/"><u>[Updated] In 2024, Window's File Glance Fast Assessment Technique</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-depth-football-footage-top-youtube-infographics/"><u>[Updated] In-Depth Football Footage Top YouTube Infographics</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-innovative-photography-adding-stylish-borders-to-instagram-pics/"><u>[Updated] Innovative Photography Adding Stylish Borders to Instagram Pics</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-a-unique-online-presence-youtube-edition/"><u>2024 Approved Crafting a Unique Online Presence YouTube Edition</u></a></li>
-<li><a href="https://win11.techidaily.com/connecting-windows-registrations-to-microsoft-services/"><u>Connecting Windows Registrations to Microsoft Services</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/facebook-film-download-highlights-no-8-for-2024/"><u>Facebook Film Download Highlights - No. 8 for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/generating-wealth-with-makeup-channels/"><u>Generating Wealth with Makeup Channels</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-creating-captivating-thumbnails-for-youtube/"><u>In 2024, Creating Captivating Thumbnails for YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/integrating-wirecast-into-your-youtube-livestream-strategy/"><u>Integrating WireCast Into Your YouTube Livestream Strategy</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/make-your-device-sing-a-step-by-step-guide-to-personalized-ringtone-setup-on-android-for-2024/"><u>Make Your Device Sing A Step-by-Step Guide to Personalized Ringtone Setup on Android for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-15-youtube-movies-channels-for-you-to-kill-time/"><u>Top 15 YouTube Movies Channels for You to Kill Time</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/understanding-safety-aspects-of-craving-explorer-pre-use-guide/"><u>Understanding Safety Aspects of Craving Explorer – Pre-Use Guide!</u></a></li>
-<li><a href="https://article-helps.techidaily.com/venturing-virtuality-a-review-of-lgs-360-headset/"><u>Venturing Virtuality A Review of LG's 360 Headset</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/who-are-you-unraveling-youtuber-personalities-in-6-quizzes/"><u>Who Are You? Unraveling YouTuber Personalities in 6 Quizzes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-style-essentials-download-for-free/"><u>YouTube Style Essentials - Download for FREE</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-decoding-and-practicing-with-creative-commons-licenses/"><u>[New] Decoding and Practicing with Creative Commons Licenses</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-digital-detox-how-to-turn-off-youtube-on-computers-and-phones/"><u>[New] Digital Detox How to Turn Off Youtube on Computers and Phones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-hashtags-in-harmony-twitter-and-tiktoks-10-viral-vids/"><u>[New] Hashtags in Harmony Twitter and TikTok's 10 Viral Vids</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-best-price-to-performance-laptops-under-500-gaming-edition/"><u>[Updated] 2024 Approved Best Price-to-Performance Laptops Under $500 (Gaming Edition)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-ace-your-shots-top-cameras-and-lenses-for-youtubers/"><u>[Updated] Ace Your Shots Top Cameras & Lenses for YouTubers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-crafting-a-youtube-future-scaling-up-or-staying-independent/"><u>[Updated] Crafting a YouTube Future Scaling Up or Staying Independent?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-elevate-your-social-impact-with-these-hashtags/"><u>[Updated] Elevate Your Social Impact with These Hashtags</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-the-top-five-flying-toys-for-youth/"><u>[Updated] In 2024, The Top Five Flying Toys for Youth</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-redefining-social-sharing-alternatives-to-periscope-on-iphones-and-androids/"><u>[Updated] Redefining Social Sharing Alternatives to Periscope on iPhones & Androids</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/ddr5-pushes-past-limits-achieving-9058mhz-overclock-on-amds-ryzen-7000-series-using-new-firmware/"><u>DDR5 Pushes Past Limits: Achieving 9058MHz Overclock on AMD's Ryzen 7000 Series Using New Firmware</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-6-plus-to-androidios-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 6 Plus To Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-key-to-a-profitable-yt-channel-accurate-monetization-verification/"><u>In 2024, The Key to a Profitable YT Channel Accurate Monetization Verification</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/simple-techniques-for-downloading-youtube-content/"><u>Simple Techniques for Downloading YouTube Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/tailored-guide-for-selective-youtube-content-download/"><u>Tailored Guide for Selective YouTube Content Download</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-perfect-blend-of-power-and-mobility-dells-new-ultraportable-gaming-laptops-take-to-work-with-ease-zdnet-insights/"><u>The Perfect Blend of Power & Mobility: Dell's New Ultraportable Gaming Laptops Take to Work with Ease | ZDNet Insights</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-the-secrets-of-profitability-in-youtube-shorts/"><u>Unlocking the Secrets of Profitability in YouTube Shorts</u></a></li>
 </ul></div>
 

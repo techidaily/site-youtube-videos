@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2024-12-07T18:39:00.818Z
-updated: 2024-12-10T16:59:19.911Z
+date: 2024-12-12T19:05:43.484Z
+updated: 2024-12-16T17:00:35.888Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/7c8eb4a6751ebbb720d8baa15eb6264cc6e760acb
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,14 +143,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/updated-5-leading-tools-for-crafting-superior-video-titles-and-tags/"><u>[Updated] 5 Leading Tools for Crafting Superior Video Titles and Tags</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-techniques-to-elevate-your-channels-visibility/"><u>[Updated] Essential Techniques to Elevate Your Channel's Visibility</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-media-content-via-youtube-studio-editing-skills/"><u>2024 Approved Elevate Your Media Content via YouTube Studio Editing Skills</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-step-by-step-guide-to-a-speedy-google-photo-collage-masterpiece/"><u>2024 Approved Step-by-Step Guide to a Speedy Google Photo Collage Masterpiece</u></a></li>
-<li><a href="https://fake-location.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Vivo S17 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/churning-up-channels-top-gear-list/"><u>Churning Up Channels Top Gear List</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/discovering-the-location-of-your-microsofts-autosave-document-data/"><u>Discovering the Location of Your Microsoft's AutoSave Document Data</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210064574-9781071549353-megans-trettonde/"><u>Megans Trettonde | Free Book</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-pictures-from-redmi-k70-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Redmi K70.</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-from-capture-to-share-expert-insights-into-screen-recording-software/"><u>[New] 2024 Approved From Capture to Share Expert Insights Into Screen Recording Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-hit-the-jackpot-of-humor-craft-top-tier-youtube-reaction-videos-3-techniques/"><u>[New] In 2024, Hit the Jackpot of Humor – Craft Top-Tier YouTube Reaction Videos (3 Techniques)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-entry-level-cameras-reviewed-for-newbies-2024-edition/"><u>[New] Top Entry-Level Cameras Reviewed for Newbies - 2024 Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-content-dilemma-deciding-on-the-best-platform-igtv-or-youtube-for-2024/"><u>[Updated] The Content Dilemma Deciding on the Best Platform - IGTV or YouTube for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/gif5/"><u>無料エディターで人気のGIF変更ツール5つ - 最適化されたウェブサイト</u></a></li>
+<li><a href="https://media-tips.techidaily.com/fed-up-with-poor-youtube-picks-learn-effective-strategies-for-enhancing-your-video-recommendation-experience/"><u>Fed Up with Poor YouTube Picks? Learn Effective Strategies for Enhancing Your Video Recommendation Experience</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-get-the-best-youtube-thumbnails-the-free-guide/"><u>How to Get the Best YouTube Thumbnails The Free Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-demystifying-the-anatomy-of-a-great-yt-short-video/"><u>In 2024, Demystifying the Anatomy of a Great YT Short Video</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-digital-detox-how-to-turn-off-youtube-on-computers-and-phones/"><u>In 2024, Digital Detox How to Turn Off Youtube on Computers and Phones</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevated-viewership-status-symbolized-by-buttons/"><u>In 2024, Elevated Viewership Status Symbolized by Buttons</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-how-to-embed-a-youtube-playlist-on-a-website/"><u>In 2024, How to Embed A YouTube Playlist On a Website</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-snapseed-starters-handbook-for-photo-editing/"><u>In 2024, The Snapseed Starter's Handbook for Photo Editing</u></a></li>
+<li><a href="https://techidaily.com/remove-motorola-moto-g04-unlock-screen-by-drfone-android-unlock-android-unlock/"><u>Remove Motorola Moto G04 unlock screen</u></a></li>
 </ul></div>
 

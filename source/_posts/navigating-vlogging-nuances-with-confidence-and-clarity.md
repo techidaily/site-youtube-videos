@@ -1,7 +1,7 @@
 ---
 title: "Navigating Vlogging Nuances with Confidence and Clarity"
-date: 2024-12-04T18:01:51.301Z
-updated: 2024-12-10T16:39:20.587Z
+date: 2024-12-13T18:50:03.641Z
+updated: 2024-12-16T16:01:15.749Z
 tags:
   - ai video
   - ai youtube
@@ -31,7 +31,7 @@ For most people, vlogging is not something that comes naturally. Like any skill,
 When we watch the most popular YouTubers, the traits that make them successful are often invisible, because we are so consumed by their vlog. In this article, I’ll highlight 8 tips from the most accomplished vloggers on the Internet, so that you can vlog confidently and make the best YouTube videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **1\. Be Authentic**
@@ -44,6 +44,10 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -54,6 +58,10 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -61,10 +69,6 @@ There is a saying that a great ending to a story is that it is [surprising, yet 
 The ending needs to be justified even if there is a twist. Everything before that had worked to build up the tension and when it concludes it needs to be logical. However, the ending cannot be something that the audience can guess. Remember those mystery movies where you know who the murderer is after the first few scenes? Yeah… those aren’t satisfying. A good story ends with a surprise, and with everything prior leading up to it.
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
 
@@ -86,6 +90,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -96,10 +104,6 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -109,6 +113,10 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -134,15 +142,7 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -159,18 +159,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-achieve-financial-insight-the-simple-three-steps-to-assess-youtube-earning-potential/"><u>[New] Achieve Financial Insight The Simple Three Steps To Assess YouTube Earning Potential</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-begin-webcam-footage-recording-with-vlc-for-2024/"><u>[New] Begin Webcam Footage Recording with VLC for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-proficiency-through-practice-using-ez-grabber-for-2024/"><u>[New] Proficiency Through Practice Using EZ Grabber for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-concealed-video-streaming-background-youtube-watch/"><u>2024 Approved Concealed Video Streaming Background YouTube Watch</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/achieve-lag-free-victories-ultimate-guide-to-lower-ping-while-gaming/"><u>Achieve Lag-Free Victories: Ultimate Guide to Lower Ping While Gaming</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/demystifying-youtube-shorts-template-design-principles-for-2024/"><u>Demystifying YouTube Shorts Template Design Principles for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/expert-tips-to-resolve-screen-distortion-and-uneven-colors-in-computer-displays/"><u>Expert Tips to Resolve Screen Distortion and Uneven Colors in Computer Displays</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/fresh-film-views-ranked-alternatives-1-7/"><u>Fresh Film Views Ranked Alternatives #1-7</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-overcome-the-persistent-black-screen-in-your-persona-nova-gameplay/"><u>How To Overcome The Persistent Black Screen in Your Persona Nova Gameplay</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-tint-tuning-toolkit/"><u>In 2024, Tint Tuning Toolkit</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-creators-lab-building-an-unstoppable-channel/"><u>The Creator's Lab Building an Unstoppable Channel</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-how-to-get-filmora-for-free-without-crack-100-truthful/"><u>Updated In 2024, How to Get Filmora for Free without Crack (100 Truthful)</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/viewership-victors-the-worlds-top-10-video-content-makers/"><u>Viewership Victors The World's Top 10 Video Content Makers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-amplify-your-music-experience-with-youtubes-playlist-guide/"><u>[New] 2024 Approved Amplify Your Music Experience with YouTube's Playlist Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-immersive-gameplay-capture-roblox-and-macos-synergy/"><u>[New] 2024 Approved Immersive Gameplay Capture Roblox & macOS Synergy</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-ranking-the-most-accessible-video-chat-applications-top-10-for-businesses-and-schools/"><u>[Updated] In 2024, Ranking the Most Accessible Video Chat Applications Top 10 For Businesses & Schools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-evolving-tactics-for-crafting-immersive-mukbang-sessions/"><u>2024 Approved Evolving Tactics for Crafting Immersive Mukbang Sessions</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-pioneering-mobile-tech-androids-role-in-vr360-videos-update-2023/"><u>2024 Approved Pioneering Mobile Tech Android's Role in VR/360 Videos (Update 2023)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/augment-your-vfx-arsenal-explore-these-top-8-sites-for-free-eco-backgrounds-for-2024/"><u>Augment Your VFX Arsenal - Explore These Top 8 Sites for Free Eco-Backgrounds for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/beautys-buzz-youtube-gurus-predicted-for-2024/"><u>Beauty's Buzz YouTube Gurus Predicted for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/beyond-tube-the-premier-spots-for-online-video-sharing-for-2024/"><u>Beyond Tube The Premier Spots for Online Video Sharing for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/brighten-up-your-gameplay-fixing-the-dark-mode-bug-in-call-of-duty-wwii-on-windows/"><u>Brighten Up Your Gameplay: Fixing the Dark Mode Bug in Call of Duty: WWII on Windows!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/holiday-shopping-hacks-revealed-score-stellar-discounts-on-tech-gadgets-and-entertainment-essentials-expert-picks-by-zdnet/"><u>Holiday Shopping Hacks Revealed: Score Stellar Discounts on Tech Gadgets and Entertainment Essentials | Expert Picks by ZDNET</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlocking-iphone-7-plus-lock-screen-3-foolproof-methods-that-actually-work-drfone-by-drfone-ios/"><u>In 2024, Unlocking iPhone 7 Plus Lock Screen 3 Foolproof Methods that Actually Work | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/premium-free-excellence-analyzing-and-sharing-best-free-luts-for-2024/"><u>Premium-Free Excellence Analyzing and Sharing Best Free LUTs for 2024</u></a></li>
 </ul></div>
 

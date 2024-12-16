@@ -1,7 +1,7 @@
 ---
 title: "[New] Enhancing Viewer Interest with Thumbnails"
-date: 2024-09-14T16:10:52.571Z
-updated: 2024-09-16T17:37:43.053Z
+date: 2024-12-09T16:29:27.020Z
+updated: 2024-12-16T19:25:14.813Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ Making better YouTube thumbnails will help you get more views, and knowing the b
 2. [**Tips for Perfect Thumbnails**](#perfect)
 3. [**Making Better Thumbnails for YouTube**](#better)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. What's the ideal YouTube thumbnail Size and Dimension?**
 
 An essential thing that every YouTube video developer needs to know is about the selection of the right side of the thumbnail for any video. As per the guidelines circulated by Google itself, the most appropriate size for the thumbnail image is 1280x720 pixels, where the recommended minimal pixel width is 640 pixels. Generally, the 16:9 ratio is considered as an ideal choice for Most of YouTube previews and players.
@@ -125,10 +129,7 @@ Here is one interesting thing that you need to know; the thumbnail of videos app
 [ How to Download YouTube Thumbnail in 3 Ways \[Online/Win/Mac\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Tips for Perfect Thumbnails**
@@ -152,13 +153,6 @@ Mac users need to press Command+Shift+4 and then simply highlight the area that 
 Window users are advised to access Windows Key with Print Screen option to get their desired screenshot.
 
 Once you are ready with your video specific still image, then simply get it uploaded on YouTube using the edit video page.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Making Better Thumbnails for YouTube
 
@@ -241,6 +235,10 @@ Mac users need to press Command+Shift+4 and then simply highlight the area that 
 Window users are advised to access Windows Key with Print Screen option to get their desired screenshot.
 
 Once you are ready with your video specific still image, then simply get it uploaded on YouTube using the edit video page.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Making Better Thumbnails for YouTube
 
@@ -380,6 +378,10 @@ Follow @Richard Bennett
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -449,6 +451,10 @@ The bottom line is, no matter what the current scenario of YouTube Shorts is, yo
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -525,26 +531,10 @@ The bottom line is, no matter what the current scenario of YouTube Shorts is, yo
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -561,10 +551,7 @@ If you have access to YouTube, and you are able to sign in to the platform with 
 With that said, the following sections explain some of the practical methods to earn money from Google and YouTube and how YouTube Shorts contributes to the process.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Make Money on YouTube Shorts? (Practical Way)
@@ -627,6 +614,10 @@ The bottom line is, no matter what the current scenario of YouTube Shorts is, yo
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -642,6 +633,10 @@ Follow @Richard Bennett
 If you have access to YouTube, and you are able to sign in to the platform with your Google account, you can easily make a decent amount of money online. However, there are certain regulations and norms by the tech giant - Google that you need to comply with in order to get your wallet stuffed.
 
 With that said, the following sections explain some of the practical methods to earn money from Google and YouTube and how YouTube Shorts contributes to the process.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Make Money on YouTube Shorts? (Practical Way)
 
@@ -684,6 +679,10 @@ You can prepare some engaging and informative videos that are exclusively availa
 The approaches discussed above can help you earn money with YouTube. Now that YouTube has rolled out the plan for YouTube Shorts monetization, we can anticipate more YouTube Shorts monetization in the future. You can also publish your YouTube Shorts video on your channel and the Shorts Shelf. YouTube then suggests these clips to others with similar interests (depending on the keywords that you have added in the description). When such users watch your short videos, the chances are that they would subscribe to your YouTube channel and watch the regular videos that you have already posted, thus helping you make money using any of the methods listed above.
 
 Another positive aspect of this approach is, the number of views your short videos affects the overall analytics of your YouTube channel (in terms of view count and playback duration), and therefore play a vital role in meeting the minimum requirements as per YouTube policies to get your other, regular YouTube clips monetized.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why did People See Less Revenue Than Regular YouTube Video?
 
@@ -724,5 +723,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-art-of-curating-memories-on-social-media/"><u>[New] 2024 Approved The Art of Curating Memories on Social Media</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-views-prime-seo-equipment-for-videos/"><u>[New] Elevate Views Prime SEO Equipment for Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-essential-tips-streamline-mac-screen-captures-using-keyboard-tricks/"><u>[Updated] In 2024, Essential Tips Streamline Mac Screen Captures Using Keyboard Tricks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channel-gain-strategies-for-youtube-aspirants-for-2024/"><u>Channel Gain Strategies for YouTube Aspirants for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/chuckle-chronicles-top-10-humoristic-youtube-video-plans/"><u>Chuckle Chronicles Top 10 Humoristic YouTube Video Plans</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/direct-transfer-path-youtube-content-to-dailymotion-hub-for-2024/"><u>Direct Transfer Path YouTube Content to Dailymotion Hub for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effortless-youtube-live-with-step-by-step-obs-guide-for-beginners-for-2024/"><u>Effortless YouTube Live with Step-by-Step OBS Guide for Beginners for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhance-your-multimedia-projects-with-winx-hd-video-converter-deluxe-advanced-editing-resizing-and-gpu-support/"><u>Enhance Your Multimedia Projects with WinX HD Video Converter Deluxe - Advanced Editing, Resizing & GPU Support</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/expert-advice-on-engaging-with-facebook-live-streams-for-2024/"><u>Expert Advice on Engaging with Facebook Live Streams for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-0-to-million-views-the-ultimate-content-blueprint-for-2024/"><u>From 0 to Million Views The Ultimate Content Blueprint for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Xiaomi Mix Fold 3? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/listenguide-breakdown/"><u>ListenGuide Breakdown</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-ai-essential-strategies-for-modern-workspaces/"><u>Mastering AI: Essential Strategies for Modern Workspaces</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/online-es-offline-tervezesi-modszerek-az-esemenyi-video-mennyiseget-novekedese-erdekepesitoek/"><u>Online És Offline Tervezési Módszerek Az Eseményi Videó Mennyiséget Növekedése Érdeképesítőek</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/step-by-step-guide-adding-a-pure-white-backdrop-to-your-images/"><u>Step-by-Step Guide: Adding a Pure White Backdrop to Your Images</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/strategies-to-purge-youtubes-video-buffer-list/"><u>Strategies to Purge YouTube's Video Buffer List</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ultimate-insight-into-analyzing-youtube-view-counts-and-revenue/"><u>The Ultimate Insight Into Analyzing Youtube View Counts & Revenue</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ultimate-strategy-for-stellar-valorant-video-thumbnails-on-youtube/"><u>The Ultimate Strategy for Stellar Valorant Video Thumbnails on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/understanding-the-key-of-youtube-aspect-ratios-for-success/"><u>Understanding the Key of YouTube Aspect Ratios for Success</u></a></li>
+</ul></div>
 

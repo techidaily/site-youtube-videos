@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Art of Disabling YouTube Shorts"
-date: 2024-12-09T18:46:36.466Z
-updated: 2024-12-10T17:27:15.263Z
+date: 2024-12-11T17:47:18.747Z
+updated: 2024-12-16T17:32:03.311Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ One of the primary things you can do with any short videos is to click on the th
 
 ![not intereted to ban youtube shorts](https://images.wondershare.com/filmora/disable-youtube-shorts-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here, no doubt the method is simple, but this method needs repetitiveness. As, whenever you see Shorts videos, you need to click on three dots to remove that.
 
 ### Method 2: Settings menu of YouTube
@@ -61,10 +65,6 @@ At your YouTube homepage at the top end, you will see the profile icon. If you c
 From there, you need to select “General”, which will show up some options. Here, click on the Shorts option to turn it off.
 
 ![turn of youtube shorts](https://images.wondershare.com/filmora/article-images/2023/04/turn-off-youtube-shorts.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 This way, by simply following and managing settings, you can easily disable YouTube shorts from the platform.
 
@@ -78,14 +78,10 @@ As a YouTube fan, you can also create interesting video by yourself with [**Film
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 3: Can go with YouTube browser
@@ -120,12 +116,20 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 6: Removing all update
@@ -135,10 +139,6 @@ There exists one more simple trick to understand how to turn off YouTube Shorts.
 On your smartphone, open the **Settings** \> **Apps** or **Manage Apps** option > choose **YouTube** app> at the top right end, click on three dots there > click on **Uninstall Updates**. That will replace your YouTube app with that of the older version of YouTube.
 
 ![filmora](https://images.wondershare.com/filmora/disable-youtube-shorts-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Using this method, you can remove shorts easily from YouTube. And, it is not going to take much amount of time. So, go and follow the steps.
 
@@ -164,10 +164,6 @@ Once you have launched the application, under the settings, you need to go for t
 
 ![filmora](https://images.wondershare.com/filmora/disable-youtube-shorts-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Doing so will disable the YouTube Shorts option from the **Home** screen.
 
 Alternatively, remove the **YouTube Shorts** button also from the screen. Under the “Vanced settings” > Visit **Layout settings** \> Switch on the **Comments location** option. That will further remove the Shorts button from the bottom end of the Home screen of the YouTube page.
@@ -181,16 +177,16 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -208,6 +204,10 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
  \* Secure Download
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -234,24 +234,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-avoid-common-mistakes-mastering-youtube-tags-wisely/"><u>[New] Avoid Common Mistakes - Mastering YouTube Tags Wisely</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-democratize-music-distribution-via-social-media/"><u>[New] Democratize Music Distribution via Social Media</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/aunch-your-youtube-presence-step-by-step-guide/"><u>[New] Launch Your YouTube Presence Step-by-Step Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-a-beginners-guide-to-professional-gif-creation-for-2024/"><u>[Updated] A Beginner's Guide to Professional GIF Creation for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unmatched-action-footage-top-7-best-camcorders/"><u>[Updated] In 2024, Unmatched Action Footage Top 7 Best Camcorders</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-keeping-a-detailed-record-of-every-online-chat-on-fb-for-2024/"><u>[Updated] Keeping a Detailed Record of Every Online Chat on FB for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-thrifty-tech-finds-best-cameras-on-a-dime/"><u>[Updated] Thrifty Tech Finds Best Cameras on a Dime</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-youtube-experience-with-a-structured-watch-later-plan/"><u>2024 Approved Enhancing YouTube Experience with a Structured Watch Later Plan</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-facing-video-display-issues-with-sony-a6400/"><u>2024 Approved Facing Video Display Issues with Sony A6400</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-swift-guide-eliminating-images-backdrops-with-affinity-photo/"><u>2024 Approved Swift Guide Eliminating Images' Backdrops with Affinity Photo</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/balancing-acts-in-youtube-music-mixes/"><u>Balancing Acts in YouTube Music Mixes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-command-center-mastering-your-digital-domain-for-2024/"><u>Channel Command Center Mastering Your Digital Domain for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-a-revenue-generating-online-presence-for-2024/"><u>Crafting a Revenue-Generating Online Presence for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-behind-the-curtain-how-youtube-tallys-its-views/"><u>In 2024, Behind the Curtain How YouTube Tally's Its Views</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-money-policy-overhaul-details/"><u>Mastering YouTube Money Policy Overhaul Details</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mediamerge-creating-slideshows-on-macsierra-for-2024/"><u>MediaMerge Creating Slideshows on MacSierra for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/prime-selection-of-7-top-rated-android-adblocking-apps/"><u>Prime Selection of 7 Top-Rated Android AdBlocking Apps</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/solve-your-xbox-series-gaming-earphones-issues-with-these-simple-steps/"><u>Solve Your Xbox Series Gaming Earphones Issues with These Simple Steps!</u></a></li>
-<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-honor-90-pro-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Honor 90 Pro Screen | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-effortless-gameplay-recordings-for-your-xbox-console/"><u>[New] 2024 Approved Effortless Gameplay Recordings for Your Xbox Console</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-parrot-ar-drone-enhanced-a-compreayer-report/"><u>[New] Parrot AR Drone Enhanced - A Compreayer Report</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-premier-computing-choices-the-finest-selection/"><u>[Updated] In 2024, Premier Computing Choices The Finest Selection</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-essential-strategies-for-lowering-audible-levels-on-lumafusion/"><u>2024 Approved Essential Strategies for Lowering Audible Levels on Lumafusion</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-utilizing-open-source-for-broadcasting-workshops/"><u>2024 Approved Utilizing Open-Source for Broadcasting Workshops</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-infinix-note-30-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Infinix Note 30.</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-apple-iphone-se-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for Apple iPhone SE With 7 Methods | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-the-art-of-youtube-brand-creation-best-names-for-vloggers-and-filmmakers-limit-to-156-characters/"><u>Mastering the Art of YouTube Brand Creation Best Names for Vloggers & Filmmakers (Limit to 156 Characters)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/optimizing-warzone-gameplay-on-windows-11-by-utilizing-your-gpu/"><u>Optimizing Warzone Gameplay on Windows 11 by Utilizing Your GPU</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/quick-guide-capturing-video-and-audio-from-youtube/"><u>Quick Guide Capturing Video & Audio From YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/rise-to-the-top-the-essentials-of-starting-a-youtube-gaming-sensation/"><u>Rise to the Top The Essentials of Starting a YouTube Gaming Sensation</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/transform-your-listening-experience-airpods-pro-now-include-hearing-aid-mode-with-latest-ios-update-say-goodbye-to-compatibility-hassles/"><u>Transform Your Listening Experience: AirPods Pro Now Include Hearing Aid Mode with Latest iOS Update - Say Goodbye to Compatibility Hassles.</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-photos-from-honor-by-fonelab-android-recover-photos/"><u>Undelete lost photos from Honor .</u></a></li>
 </ul></div>
 
