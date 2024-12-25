@@ -1,7 +1,7 @@
 ---
 title: "[New] Ergonomic Hold Techniques for Clarity"
-date: 2024-12-15T16:05:02.826Z
-updated: 2024-12-16T20:10:39.226Z
+date: 2024-12-20T16:42:39.178Z
+updated: 2024-12-25T16:10:44.474Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/48bbf816680af2439ef36580a7c2fe3c4155339da
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Your Video with Wondershare Filmora
@@ -38,10 +38,14 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -58,21 +62,17 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -99,6 +99,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -121,10 +125,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -140,22 +140,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-flamegrab-firefox-add-ons-for-2024/"><u>[New] FlameGrab Firefox Add-Ons for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-chilling-yet-heating-top-5-winter-scenes-for-vids/"><u>[Updated] Chilling Yet Heating Top 5 Winter Scenes for Vids</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-collect-premium-audio-for-video-editors/"><u>[Updated] Collect Premium Audio for Video Editors</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-creating-compelling-channel-names-simplified/"><u>[Updated] Creating Compelling Channel Names Simplified</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-creating-impact-with-high-converting-youtube-advertising-banners/"><u>[Updated] Creating Impact with High-Converting YouTube Advertising Banners</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-hdr-tips-for-captivating-portrait-masterpieces/"><u>[Updated] In 2024, HDR Tips for Captivating Portrait Masterpieces</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-organize-and-share-music-how-to-make-youtube-playlists-easier/"><u>2024 Approved Organize and Share Music How to Make YouTube Playlists Easier</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/capture-and-captivate-creating-incredible-slow-motion-video-masterpieces-on-instagram/"><u>Capture and Captivate Creating Incredible Slow-Motion Video Masterpieces on Instagram</u></a></li>
-<li><a href="https://driver-download.techidaily.com/find-your-insignia-ns-pcy5bma2-driver-here-compatible-with-all-major-windows-operating-systems/"><u>Find Your Insignia NS-PCY5BMA2 Driver Here – Compatible with All Major Windows Operating Systems</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ss-your-view-count-cross-platform-studio-methods/"><u>Harness Your View Count Cross-Platform Studio Methods</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/iphone-not-alerting-with-ringtones-fix-the-problem-in-simple-steps/"><u>IPhone Not Alerting with Ringtones? Fix the Problem in Simple Steps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/revolutionizing-audience-retention-on-youtube-with-these-top-6-techniques/"><u>Revolutionizing Audience Retention on YouTube with These Top 6 Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unleash-your-live-stream-potential-with-superior-webcam-tech/"><u>Unleash Your Live Stream Potential with Superior Webcam Tech</u></a></li>
-<li><a href="https://ai-editing-video.techidaily.com/updated-benefits-of-live-streaming-on-youtube/"><u>Updated Benefits of Live Streaming on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/upload-made-easy-your-device-based-guide-for-youtube-shorts/"><u>Upload Made Easy Your Device-Based Guide for YouTube Shorts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-banners-makers-10-online-tools-to-create-channel-art-for-2024/"><u>YouTube Banners Makers 10 Online Tools to Create Channel Art for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-shorts-music-things-you-need-to-know/"><u>YouTube Shorts Music - Things You Need to Know</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-8-real-life-strategies-to-increase-youtube-reach-for-2024/"><u>[New] Top 8 Real-Life Strategies to Increase YouTube Reach for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-trick-for-effortless-video-playback-from-youtube-to-facebook-groups/"><u>[Updated] 2024 Approved Trick for Effortless Video Playback From Youtube to Facebook Groups</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-freeloading-flair-timely-scheduled-fb-content-for-2024/"><u>[Updated] Freeloading Flair Timely Scheduled FB Content for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-guide-to-essential-asmr-video-facts/"><u>2024 Approved A Guide to Essential ASMR Video Facts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-your-game-time-with-youtube-live-broadcasts-for-2024/"><u>Enhancing Your Game Time with YouTube Live Broadcasts for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/filmmaking-made-simple-crafting-an-impactful-youtube-subscribe-button/"><u>Filmmaking Made Simple Crafting an Impactful YouTube Subscribe Button</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/first-steps-launching-a-youtube-channel-for-profit/"><u>First Steps Launching a YouTube Channel for Profit</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-create-unforgettable-home-videos-top-dvd-authoring-software/"><u>New Create Unforgettable Home Videos Top DVD Authoring Software</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unlocking-premium-viewing-in-depth-analysis-of-the-antop-at-127-antenna-for-free-tv-access/"><u>Unlocking Premium Viewing: In-Depth Analysis of the Antop AT-127 Antenna for Free TV Access</u></a></li>
 </ul></div>
 

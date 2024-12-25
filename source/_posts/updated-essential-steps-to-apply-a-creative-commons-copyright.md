@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Essential Steps to Apply a Creative Commons Copyright"
-date: 2024-12-14T17:33:56.410Z
-updated: 2024-12-16T19:04:57.418Z
+date: 2024-12-23T16:25:22.832Z
+updated: 2024-12-25T16:43:50.316Z
 tags:
   - ai video
   - ai youtube
@@ -52,21 +52,25 @@ An example of a derivative someone might make of a YouTube video would be auto-t
 
 Here are the 6 creative commons licenses, and a chart you can use as a quick reference tool.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution-ShareAlike – CC BY-SA
 
 If you use music, photos, or any other media licensed this way, then you must both credit the artist and license your video this same way. Meaning, you can’t use YouTube’s standard license and must instead allow for others to use your work the way you are using the licensed media.
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
 
@@ -93,7 +97,7 @@ If you license your video this way, people can use it in whatever way they like 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
@@ -102,10 +106,6 @@ Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license
 
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
 
 There aren’t many situations where you would be using media licensed this way in your YouTube videos. You can’t alter it, sync videos to it, or make money from any video that uses it.
@@ -113,7 +113,7 @@ There aren’t many situations where you would be using media licensed this way 
 You also probably shouldn’t use this license for your videos. ‘NoDerivs’ means there are not many ways people could use your content, except to repost full videos and steal your views.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Video with the Most Excellent Video Editor
@@ -123,7 +123,7 @@ You also probably shouldn’t use this license for your videos. ‘NoDerivs’ m
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -141,18 +141,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-leveraging-content-marketing-for-more-views-and-subscribers/"><u>[New] 2024 Approved Leveraging Content Marketing for More Views and Subscribers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-audiovisual-standards-for-success-on-youtube-top-format-choices/"><u>[New] Audiovisual Standards for Success on YouTube – Top Format Choices</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-charting-the-future-the-next-gen-youtube-festivals/"><u>[New] Charting the Future The Next Gen Youtube Festivals</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-your-channel-hit-the-10000-view-mark-fast/"><u>[New] Elevate Your Channel Hit the 10,000 View Mark Fast</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-gaming-revolution-top-5-android-solutions-for-playstation-2-titles/"><u>[New] Gaming Revolution Top 5 Android Solutions for PlayStation 2 Titles</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-diy-audio-excellence-no-mic-necessary/"><u>[Updated] DIY Audio Excellence No Mic Necessary</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-complete-guide-to-proficient-kinemaster-use-and-top-digital-services/"><u>[Updated] The Complete Guide to Proficient KineMaster Use and Top Digital Services</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-melodic-matchmaking-music-that-resonates-with-scenes/"><u>2024 Approved Melodic Matchmaking Music That Resonates with Scenes</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-seamless-subtitle-management-a-mac-edition/"><u>In 2024, Seamless Subtitle Management A Mac Edition</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-honor-play-7t-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Honor Play 7T Device</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/keep-watching-youtube-in-the-background-with-ease/"><u>Keep Watching YouTube in the Background with Ease</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/revive-playstation-classics-the-5-best-android-emulation-software-for-2024/"><u>Revive PlayStation Classics The 5 Best Android Emulation Software for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unveiling-the-top-7-nft-creators-for-your-artwork/"><u>Unveiling the Top 7 NFT Creators for Your Artwork</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-blissful-bites-best-stress-busting-gaming-for-2024/"><u>[New] Blissful Bites Best Stress-Busting Gaming for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-crafting-a-music-career-15-essential-video-tutorials-for-artists/"><u>[New] Crafting a Music Career 15 Essential Video Tutorials for Artists</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-the-ultimate-checklist-for-video-praise-mastery/"><u>[Updated] In 2024, The Ultimate Checklist for Video Praise Mastery</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/back-up-and-convert-dvds-to-iso-files-with-winx-dvd-copy-pro/"><u>Back Up & Convert DVDs to ISO Files with WinX DVD Copy Pro</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/break-even-on-youtube-monetizing-with-a-minimum-of-500-viewers/"><u>Break Even on Youtube Monetizing with a Minimum of 500 Viewers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/chuckle-factory-designing-7-video-ideas-for-humorists/"><u>Chuckle Factory Designing 7 Video Ideas for Humorists</u></a></li>
+<li><a href="https://win11.techidaily.com/complete-system-audio-recording-on-windowsmac-os-tips-and-tricks/"><u>Complete System Audio Recording on Windows/Mac OS – Tips & Tricks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discovering-the-timeline-for-youtube-earnings/"><u>Discovering the Timeline for YouTube Earnings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-visuals-using-chroma-key-effectively-for-2024/"><u>Enhancing Visuals Using Chroma Key Effectively for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-infinix-note-30i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleash-your-podcast-potential-with-cutting-edge-techniques/"><u>In 2024, Unleash Your Podcast Potential with Cutting-Edge Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-sound-communication-on-whatsapp/"><u>Mastering Sound Communication on WhatsApp</u></a></li>
+<li><a href="https://games-able.techidaily.com/minim-led-slim-gammonitor-budget-great-value/"><u>Minim LED Slim - GamMonitor Budget, Great Value</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/mobile-masterpieces-top-10-vlog-editor-apps-for-creating-stunning-videos-for-2024/"><u>Mobile Masterpieces Top 10 Vlog Editor Apps for Creating Stunning Videos for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/samsungs-top-functionality-now-available-on-roku-free-upgrade-news/"><u>Samsung's Top Functionality Now Available on Roku: Free Upgrade News</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/securely-distributing-exclusive-youtube-videos-through-gmail/"><u>Securely Distributing Exclusive YouTube Videos Through Gmail</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-up-your-fitness-game-with-these-excellent-yoga-channels/"><u>Step Up Your Fitness Game with These Excellent Yoga Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-the-secrets-of-valorant-video-thumbnail-designs/"><u>Unlocking the Secrets of Valorant Video Thumbnail Designs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/vfx-artisan-suite/"><u>VFX Artisan Suite</u></a></li>
 </ul></div>
 

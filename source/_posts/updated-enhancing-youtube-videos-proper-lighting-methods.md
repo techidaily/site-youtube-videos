@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing YouTube Videos  Proper Lighting Methods\""
-date: 2024-12-15T17:53:50.405Z
-updated: 2024-12-16T18:56:50.164Z
+date: 2024-12-21T16:08:33.838Z
+updated: 2024-12-25T16:30:23.622Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,13 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 | Table of Contents [Using Light You Already Have](#USING-LIGHT-YOU-ALREADY-HAVE) [Window Lighting](#Window-Lighting)[Home Lighting](#Home-Lighting) [Home Studio Lighting](#HOME-STUDIO-LIGHTING) [Light Control](#Light-Control)[3-Point Lighting](#Three-Point-Lighting)[4-Point Lighting](#four-point-lighting) |
 | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Using Light You Already Have
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1.  Window Lighting
 
@@ -52,10 +52,14 @@ Window lighting for me was especially difficult to work with because I live in a
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
@@ -69,21 +73,17 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
@@ -114,7 +114,7 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -132,20 +132,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-access-tons-of-free-vocal-textures/"><u>[Updated] Access Tons of Free Vocal Textures!</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instacrafts-seamless-video-assemblies-on-androidios-for-2024/"><u>[Updated] InstaCrafts Seamless Video Assemblies on Android/iOS for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-delightful-yuletide-cinema-on-youtube-savor-nine-whole-film-gems/"><u>2024 Approved Delightful Yuletide Cinema on YouTube Savor Nine Whole-Film Gems</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevating-video-popularity-on-youtube/"><u>2024 Approved Elevating Video Popularity on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/7-best-apps-to-go-live-on-youtube-from-iphone-or-android/"><u>7 Best Apps to Go Live on YouTube From iPhone or Android</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-free-video-cutting-apps-your-go-to-list/"><u>Best Free Video Cutting Apps Your Go-To List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discover-the-top-8-services-to-amplify-video-content-for-2024/"><u>Discover the Top 8 Services to Amplify Video Content for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/effortless-way-to-personalize-your-youtube-channel-url-for-2024/"><u>Effortless Way to Personalize Your YouTube Channel Url for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/excessive-use-of-touch-buttons-is-problematic-a-call-for-innovative-company-approaches/"><u>Excessive Use of Touch Buttons Is Problematic - A Call for Innovative Company Approaches</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-google-pixel-8-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Google Pixel 8 Pro Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-beat-breakers-crafting-compelling-video-music-scores/"><u>In 2024, Beat Breakers Crafting Compelling Video Music Scores</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-sony-xperia-1-v-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Sony Xperia 1 V Without PUK Codes</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/master-classroom-optimal-video-edits-on-vimeo/"><u>Master Classroom Optimal Video Edits on Vimeo</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-samsung-galaxy-f54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Samsung Galaxy F54 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/by-step-to-creating-an-unbeatable-biz-youtube-channel-for-2024/"><u>Step-by-Step to Creating an Unbeatable Biz YouTube Channel for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-understanding-igtv-vs-youtube-a-comprehensive-feature-breakdown/"><u>[New] 2024 Approved Understanding IGTV Vs. YouTube A Comprehensive Feature Breakdown</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-easy-and-inexpensive-techniques-for-youtube-cards/"><u>[New] Easy and Inexpensive Techniques for YouTube Cards</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-bites-of-wisdom-youtube-tvs-unique-selling-points/"><u>[Updated] Bites of Wisdom YouTube TV's Unique Selling Points</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-the-chilly-selecting-five-warm-video-backgrounds/"><u>[Updated] Elevating the Chilly Selecting Five Warm Video Backgrounds</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enhancing-yt-experience-handling-several-videos-at-a-time/"><u>[Updated] Enhancing YT Experience Handling Several Videos at a Time</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-directing-the-flow-of-digital-storytelling-through-youtube-fusion/"><u>2024 Approved Directing the Flow of Digital Storytelling Through Youtube Fusion</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-ultimate-color-correctors-handbook/"><u>2024 Approved The Ultimate Color Corrector's Handbook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/broadcast-repeat-looping-youtube-video-magic-for-your-setup/"><u>Broadcast Repeat Looping YouTube Video Magic for Your Setup</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/digital-recording-sounds-and-speech-capture-for-2024/"><u>Digital Recording Sounds & Speech Capture for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-list-5-leading-youtube-shortened-url-services-for-2024/"><u>Essential List 5 Leading YouTube Shortened URL Services for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-youtube-equipment-for-starting-your-channel/"><u>Essential YouTube Equipment For Starting Your Channel</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-bringing-bygone-era-filmmaking-to-life-today/"><u>In 2024, Bringing Bygone Era Filmmaking to Life Today</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-explaining-instagrams-sudden-video-pivot/"><u>In 2024, Explaining Instagram's Sudden Video Pivot</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-step-by-step-obs-configuration-for-smooth-broadcasting/"><u>In 2024, Step-By-Step OBS Configuration for Smooth Broadcasting</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-on-apple-iphone-13-mini-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID On Apple iPhone 13 mini Making It Possible</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo V30 Pro | Dr.fone</u></a></li>
 </ul></div>
 

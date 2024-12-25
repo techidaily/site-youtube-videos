@@ -1,7 +1,7 @@
 ---
 title: "\"The Complete Guide to Successful YouTube  Eluding These 8 Common Slips\""
-date: 2024-12-11T21:04:29.874Z
-updated: 2024-12-16T18:11:32.638Z
+date: 2024-12-18T16:22:50.379Z
+updated: 2024-12-25T16:28:11.297Z
 tags:
   - ai video
   - ai youtube
@@ -38,15 +38,15 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -57,7 +57,7 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
@@ -74,15 +74,15 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
 
@@ -91,7 +91,7 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -105,7 +105,7 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -123,18 +123,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-optimizing-tiktok-content-via-zoom-tools-for-2024/"><u>[New] Optimizing TikTok Content via Zoom Tools for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-hands-free-tricks-capturing-gotomeetings-on-the-fly-for-2024/"><u>[Updated] Hands-Free Tricks Capturing GoToMeetings on the Fly for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-capture-youtubes-iconic-icons-online-tools-desktop-software-and-commands/"><u>2024 Approved Capture YouTube's Iconic Icons Online Tools, Desktop Software & Commands</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-comprehensive-list-securing-monetized-youtube-content/"><u>2024 Approved Comprehensive List Securing Monetized YouTube Content</u></a></li>
-<li><a href="https://windows11.techidaily.com/brain-benefits-and-heartbeats-the-joint-impact-of-mindfulness/"><u>Brain Benefits and Heartbeats: The Joint Impact of Mindfulness</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/breaking-down-the-process-for-youtube-comment-highlights/"><u>Breaking Down the Process for YouTube Comment Highlights</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/decoding-llms-an-in-depth-look-at-their-operation/"><u>Decoding LLMs: An In-Depth Look at Their Operation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dissecting-the-hidden-mechanics-behind-youtubes-popularity-index-for-2024/"><u>Dissecting the Hidden Mechanics Behind YouTube's Popularity Index for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-operational-model-post-upload-for-2024/"><u>Dissecting YouTube's Operational Model Post-Upload for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-samsung-galaxy-s23plus-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Samsung Galaxy S23+ FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-sony-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Sony</u></a></li>
-<li><a href="https://games-able.techidaily.com/remote-play-mastery-with-steams-storage-and-drive-management/"><u>Remote Play Mastery with Steam’s Storage and Drive Management</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/1728497096768-samsung/"><u>Samsungデータ移行時のシステムコピー手順：他の選択肢</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-unveiling-techniques-for-effective-display-saving-on-dell/"><u>[New] 2024 Approved Unveiling Techniques for Effective Display Saving on Dell</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dance-directives-finding-ideal-dj-templates/"><u>[New] Dance Directives Finding Ideal DJ Templates</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-framework-for-utilizing-movies-as-learning-tools/"><u>[New] Framework for Utilizing Movies as Learning Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-effortless-rearrangement-of-your-personalized-lists/"><u>[Updated] Effortless Rearrangement of Your Personalized Lists</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-unseen-enthusiasts-blueprint-for-instagram-live-viewership/"><u>2024 Approved The Unseen Enthusiast’s Blueprint for Instagram Live Viewership</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-what-is-the-difference-between-youtube-and-dailymotion/"><u>2024 Approved What Is the Difference Between YouTube and Dailymotion</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-samsung-galaxy-a14-4g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Samsung Galaxy A14 4G</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/deciphering-the-connotations-of-pfp-on-social-media-for-2024/"><u>Deciphering the Connotations of 'PFP' On Social Media for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-mastering-the-art-of-sniping-on-mac-with-these-tools/"><u>In 2024, Mastering the Art of Sniping on Mac with These Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/perfect-your-yt-profile-expert-tips-for-channel-descriptors/"><u>Perfect Your YT Profile Expert Tips for Channel Descriptors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-youtube-potential-editing-after-the-upload-process/"><u>Unlocking YouTube Potential Editing After the Upload Process</u></a></li>
 </ul></div>
 

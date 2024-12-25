@@ -1,7 +1,7 @@
 ---
 title: "\"Subscriber Supremacy  YouTube's Front-Runners\""
-date: 2024-12-11T18:53:49.007Z
-updated: 2024-12-16T21:32:26.059Z
+date: 2024-12-22T16:01:36.444Z
+updated: 2024-12-25T16:37:46.506Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\.  PewDiePie
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
@@ -58,25 +62,13 @@ YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in G
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ###  2\.  HolaSoyGerman
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ###  3\.  ElrubiusOMG
 
@@ -91,7 +83,7 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
@@ -104,6 +96,10 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
 At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 million downloads in the first week. His videos are mostly in Spanish which somewhat limits his audience, but it is safe to say the Fernanfloo channel is among the most popular channels in the Latin American countries since most of his audience comes from Bolivia, Peru, and Ecuador.
@@ -112,6 +108,10 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -119,7 +119,7 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -137,21 +137,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/implify-your-life-with-these-tips-on-free-youtube-transcription/"><u>[New] Simplify Your Life with These Tips on Free YouTube Transcription</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-the-music-merger-for-engaging-fb-video-content/"><u>[Updated] In 2024, The Music Merger for Engaging FB Video Content</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-metaverse-comedy-crafting-top-tips-for-diy-memetic-mastery/"><u>[Updated] Metaverse Comedy Crafting Top Tips for DIY Memetic Mastery</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/7-best-online-youtube-tag-extractors/"><u>7 Best Online YouTube Tag Extractors</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-clickthrough-rates-with-attention-grabbing-youtube-thumbnails-for-2024/"><u>Boosting Clickthrough Rates with Attention-Grabbing YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Realme Narzo 60 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/confirmation-procedures-for-youtube-users/"><u>Confirmation Procedures for YouTube Users</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-engaging-channels-using-tubebuddys-framework/"><u>Crafting Engaging Channels Using TubeBuddy's Framework</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-youtubes-earning-rules-update-for-2024/"><u>Decoding YouTube's Earning Rules Update for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/easily-erase-identity-blurring-techniques-in-videos/"><u>Easily Erase Identity Blurring Techniques in Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevating-your-youtube-presence-with-effective-tags-for-2024/"><u>Elevating Your YouTube Presence with Effective Tags for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-honor-90-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Honor 90 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solving-location-unavailable-errors-a-step-by-step-guide-for-iphone-users/"><u>Solving 'Location Unavailable' Errors: A Step-by-Step Guide for iPhone Users</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-crafting-irresistible-titles/"><u>The Ultimate Guide to Crafting Irresistible Titles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tune-into-your-rhythm-while-working-out-with-garmin-vivoactive-3s-music-feature/"><u>Tune Into Your Rhythm While Working Out with Garmin Vivoactive 3'S Music Feature</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/ultimate-top-16-free-video-tools-for-pcs-for-2024/"><u>Ultimate Top 16 Free Video Tools for PCs for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-ajeys-path-to-prosperity-monetizing-his-online-presence/"><u>[New] Ajey's Path to Prosperity Monetizing His Online Presence</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-echoes-encode-discovering-exceptional-audio-to-text-programs/"><u>[Updated] Echoes Encode Discovering Exceptional Audio to Text Programs</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726027084359-embedded-cast/"><u>「ウェブ会議中にEmbedded Castを効果的に記録するための３つのテクニック」</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-timeless-videos-with-retro-filmmaking-skills/"><u>2024 Approved Crafting Timeless Videos with Retro Filmmaking Skills</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-creating-captivating-thumbnails-for-youtube/"><u>2024 Approved Creating Captivating Thumbnails for YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-mobile-media-apps-for-high-quality-photographyvideography/"><u>2024 Approved Essential Mobile Media Apps for High-Quality Photography/Videography</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-a-customized-soundscape-youtube-playlist-building-on-the-internetapps-for-2024/"><u>Crafting a Customized Soundscape YouTube Playlist Building on the Internet/Apps for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-features-and-mechanisms-after-uploading-content-for-2024/"><u>Dissecting YouTube’s Features and Mechanisms After Uploading Content for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-youtube-video-screens-without-barriers-for-2024/"><u>Enhancing YouTube Video Screens Without Barriers for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-xiaomi-redmi-note-12r-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Xiaomi Redmi Note 12R Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-samsung-galaxy-a14-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Samsung Galaxy A14 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-premium-audio-modification-solutions-magically-effective/"><u>In 2024, Premium Audio Modification Solutions Magically Effective</u></a></li>
+<li><a href="https://extra-information.techidaily.com/next-gen-platform-for-12-hourly-live-broadcasts/"><u>Next-Gen Platform for 12 Hourly Live Broadcasts</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/premier-ios-platforms-for-ps2-gaming/"><u>Premier iOS Platforms for PS2 Gaming</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-a-non-functional-corsair-hs60-headset-microphone/"><u>Troubleshooting Guide: Fixing a Non-Functional Corsair HS60 Headset Microphone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/unveiling-a-world-of-live-content-roku-and-facebook-integration/"><u>Unveiling a World of Live Content Roku and Facebook Integration</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/zero-intrusions-check-out-our-list-of-top-7-android-apps/"><u>Zero Intrusions? Check Out Our List of Top 7 Android Apps</u></a></li>
 </ul></div>
 

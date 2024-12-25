@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Secrets of Creative Commons Licensing"
-date: 2024-12-12T17:26:49.323Z
-updated: 2024-12-16T16:57:02.195Z
+date: 2024-12-23T16:06:09.759Z
+updated: 2024-12-25T16:12:55.160Z
 tags:
   - ai video
   - ai youtube
@@ -53,7 +53,7 @@ An example of a derivative someone might make of a YouTube video would be auto-t
 Here are the 6 creative commons licenses, and a chart you can use as a quick reference tool.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution – CC BY
@@ -62,19 +62,11 @@ If you’re using music or other media with this license, all you need to do is 
 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Attribution-ShareAlike – CC BY-SA
 
 If you use music, photos, or any other media licensed this way, then you must both credit the artist and license your video this same way. Meaning, you can’t use YouTube’s standard license and must instead allow for others to use your work the way you are using the licensed media.
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
 
@@ -100,6 +92,10 @@ If you license your video this way, people can use it in whatever way they like 
 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
 
 Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license can be used in and altered for your videos, so long as you aren't making money off those videos. You must also use this same license for the video you create using elements licensed this way.
@@ -107,7 +103,7 @@ Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
@@ -115,6 +111,10 @@ If you license your video this way, people can use it or a portion of it in thei
 There aren’t many situations where you would be using media licensed this way in your YouTube videos. You can’t alter it, sync videos to it, or make money from any video that uses it.
 
 You also probably shouldn’t use this license for your videos. ‘NoDerivs’ means there are not many ways people could use your content, except to repost full videos and steal your views.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Edit Video with the Most Excellent Video Editor
 
@@ -141,24 +141,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-discovering-youtube-studio-where-ideas-become-engaging-content/"><u>[New] Discovering YouTube Studio Where Ideas Become Engaging Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-epic-battle-royale-thumbnails-done-fast/"><u>[New] Epic Battle Royale Thumbnails, Done Fast</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-excellent-alternatives-top-5-to-replace-twitter/"><u>[New] Excellent Alternatives Top 5 to Replace Twitter</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-guide-to-writing-enthralling-videography-content/"><u>[New] Guide to Writing Enthralling Videography Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-branding-with-visuals-inserting-watermarks-into-youtube-vids/"><u>[Updated] Branding with Visuals Inserting Watermarks Into YouTube Vids</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-curating-creator-rewards-on-video-platforms/"><u>[Updated] Curating Creator Rewards on Video Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-dive-into-filmmaking-the-role-of-lenses-in-videos/"><u>[Updated] Dive Into Filmmaking The Role of Lenses in Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-elevating-your-channel-a-gamers-blueprint-for-success/"><u>[Updated] Elevating Your Channel A Gamers' Blueprint for Success</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-grading-made-simple-3-ways-to-amplify-your-pics-for-2024/"><u>[Updated] Grading Made Simple 3 Ways to Amplify Your Pics for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-optimizedusageofyourwebcamrecorder/"><u>[Updated] OptimizedUsageOfYourWebcamRecorder</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-gpu-nostalgia-update/"><u>2024 Approved GPU Nostalgia Update</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-lava-blaze-2-pro-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Lava Blaze 2 Pro to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/effortless-mobility-in-minecraft-mastering-the-teleport-function-for-streamlined-gameplay/"><u>Effortless Mobility in Minecraft: Mastering the Teleport Function for Streamlined Gameplay</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/hybrid-workers-top-pick-get-the-best-laptop-from-lenovo-at-a-whopping-1000-discount/"><u>Hybrid Worker's Top Pick: Get the Best Laptop From Lenovo at a Whopping $1,000 Discount</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mirror-image-flipping-youtube-videos-online/"><u>Mirror Image Flipping YouTube Videos Online</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/reviving-audio-how-to-get-speakers-functioning-in-windows-11/"><u>Reviving Audio: How to Get Speakers Functioning in Windows 11</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/step-by-step-strategies-how-to-create-stellar-youtube-shorts/"><u>Step-by-Step Strategies How to Create Stellar YouTube Shorts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-list-of-free-video-openers/"><u>The Ultimate List of Free Video Openers</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/understanding-and-fixing-oleaut32dll-errors-on-your-computer/"><u>Understanding and Fixing oleaut32.dll Errors on Your Computer</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-easily-erase-identity-blurring-techniques-in-videos/"><u>[New] Easily Erase Identity Blurring Techniques in Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-simplifying-complexity-essential-gs-tutorials-kinemaster/"><u>[New] Simplifying Complexity Essential GS Tutorials (KineMaster)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-optimal-video-sizing-for-an-instagram-standout/"><u>[Updated] Optimal Video Sizing for an Instagram Standout</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-precision-in-prose-enhancing-narrative-scripts/"><u>[Updated] Precision in Prose Enhancing Narrative Scripts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-creating-masterpiece-canon-chrono-films/"><u>2024 Approved Creating Masterpiece Canon Chrono Films</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-next-wave-of-social-media-top-apps-as-periscope-alternates/"><u>2024 Approved The Next Wave of Social Media Top Apps as Periscope Alternates</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/aim-higher-boosting-views-and-reach-on-youtube-for-2024/"><u>Aim Higher Boosting Views and Reach on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/assessing-tseries-financial-outcomes-from-youtube-presence-for-2024/"><u>Assessing TSeries’ Financial Outcomes From YouTube Presence for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-youtube-content-with-7-premium-free-audio-sounds/"><u>Elevate Your YouTube Content With 7 Premium, Free Audio Sounds</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/rapid-growth-on-youtube-harnessing-the-potential-of-outros/"><u>Rapid Growth on YouTube Harnessing the Potential of Outros</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/reversal-techniques-a-new-perspective-on-youtube-videos/"><u>Reversal Techniques A New Perspective on YouTube Videos</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-how-to-retrieve-icons-from-windows-executable-files/"><u>Step-by-Step Guide: How to Retrieve Icons From Windows Executable Files</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-art-of-fullscreen-editing-with-premiere-pro-experts/"><u>The Art of Fullscreen Editing with Premiere Pro Experts</u></a></li>
 </ul></div>
 

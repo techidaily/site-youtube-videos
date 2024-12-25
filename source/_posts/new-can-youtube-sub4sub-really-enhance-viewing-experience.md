@@ -1,7 +1,7 @@
 ---
 title: "[New] Can YouTube Sub4Sub Really Enhance Viewing Experience?"
-date: 2024-07-22T17:02:57.625Z
-updated: 2024-07-23T17:02:57.625Z
+date: 2024-12-21T16:34:01.876Z
+updated: 2024-12-25T16:10:37.208Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,6 @@ thumbnail: https://thmb.techidaily.com/f66305bee95e2c8cfda71737bc488d60f6c275330
 
  This article will explain the pros and cons of Sub4Sub.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Does YouTube Sub4Sub Work
 
 #### 1\. Does Sub4Sub Work?
@@ -53,9 +50,6 @@ thumbnail: https://thmb.techidaily.com/f66305bee95e2c8cfda71737bc488d60f6c275330
 
  When you agree to exchange subscriptions with somebody there is also the danger that they will decide to unsubscribe from your channel afterwards. This could happen much later when they realize they do not want to be subscribed to so many people and have forgotten which channels were parts of Sub4Sub agreements. Or it could happen within weeks, days, or even hours of you subscribing to them. There are some dishonest YouTubers who use sub for sub to get subscribers while already planning to unsubscribe to anybody who agrees. Their hope is that the other person will not notice or will not bother unsubscribing from them if they do.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -75,8 +69,9 @@ Follow @Richard Bennett
  This article will explain the pros and cons of Sub4Sub.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does YouTube Sub4Sub Work
 
 #### 1\. Does Sub4Sub Work?
@@ -97,9 +92,6 @@ Follow @Richard Bennett
 
  When you agree to exchange subscriptions with somebody there is also the danger that they will decide to unsubscribe from your channel afterwards. This could happen much later when they realize they do not want to be subscribed to so many people and have forgotten which channels were parts of Sub4Sub agreements. Or it could happen within weeks, days, or even hours of you subscribing to them. There are some dishonest YouTubers who use sub for sub to get subscribers while already planning to unsubscribe to anybody who agrees. Their hope is that the other person will not notice or will not bother unsubscribing from them if they do.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -119,8 +111,9 @@ Follow @Richard Bennett
  This article will explain the pros and cons of Sub4Sub.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does YouTube Sub4Sub Work
 
 #### 1\. Does Sub4Sub Work?
@@ -141,9 +134,6 @@ Follow @Richard Bennett
 
  When you agree to exchange subscriptions with somebody there is also the danger that they will decide to unsubscribe from your channel afterwards. This could happen much later when they realize they do not want to be subscribed to so many people and have forgotten which channels were parts of Sub4Sub agreements. Or it could happen within weeks, days, or even hours of you subscribing to them. There are some dishonest YouTubers who use sub for sub to get subscribers while already planning to unsubscribe to anybody who agrees. Their hope is that the other person will not notice or will not bother unsubscribing from them if they do.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -162,6 +152,10 @@ Follow @Richard Bennett
 
  This article will explain the pros and cons of Sub4Sub.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Does YouTube Sub4Sub Work
 
 #### 1\. Does Sub4Sub Work?
@@ -183,6 +177,10 @@ Follow @Richard Bennett
  When you agree to exchange subscriptions with somebody there is also the danger that they will decide to unsubscribe from your channel afterwards. This could happen much later when they realize they do not want to be subscribed to so many people and have forgotten which channels were parts of Sub4Sub agreements. Or it could happen within weeks, days, or even hours of you subscribing to them. There are some dishonest YouTubers who use sub for sub to get subscribers while already planning to unsubscribe to anybody who agrees. Their hope is that the other person will not notice or will not bother unsubscribing from them if they do.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -203,8 +201,9 @@ Follow @Richard Bennett
      data-ad-slot="1223367746"></ins>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Dissecting YouTube’s Features and Mechanisms After Uploading Content
 
 # How Does YouTube Work After a Video Is Uploaded
@@ -229,9 +228,54 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 #### 2\. Where is Your Video Stored?
 
+![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
+
+![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
+
+#### 3\. What Happens When Someone Watches Your Video?
+
+When a viewer clicks on your video their computer sends an encoded request through the internet to YouTube's servers. After YouTube receives the play request it chooses which format to play the video in based on the viewer's browser. Your video is again turned into packets, which are again sent as radio signals over the internet to your viewer. Your viewer's computer or device reforms the packets into your video and their browser plays it.
+
+If videos take a long time to load for you then there are a few things you can do to speed them up. First, consider changing the channel of your wifi router. Most people stay on the channel their router was set to when they first got it and so there is a good chance you and your neighbors are all on the same channel. This causes your networks to interfere with each other. You can also delete the temporary files on your computer. Besides helping you stream video faster this will free up storage space. Another thing you can do is make sure there are as few devices connected to your network as possible while you are watching videos. Besides mobile phones and laptops you may have appliances, like coffee machines and refrigerators, which are wifi enabled. Disconnect them temporarily and it will help your videos to load faster.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+You use YouTube to watch videos, post your own content, and build up a following. That is how YouTube works for you. This article is about how YouTube works technically. There are a lot of steps which occur between you clicking 'upload' and a viewer clicking 'play'. Understanding this process can be useful to YouTubers because it can help shed light on where problems may be occurring when you have issues uploading or watching videos. Generally when there is a problem it is on your end and there are multiple simple things you can do to fix it.
+
+This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## How Does YouTube Work
+
+#### 1\. What Happens When You Upload?
+
+When you upload a video your computer or device packages it into IP packets. Packets are fragments of information containing both data from your video and the address you are sending it to, in this case YouTube. The packets are encoded into radio signals which are sent through a wifi or cellular network. Your video travels through switches and routers on the internet until they reach YouTube's servers. Your video is then reassembled and stored.
+
+If uploading takes a long time for you it probably has nothing to do with YouTube; there is a lot that needs to happen for your video to even get there. How long the upload process takes depends on a number of factors including how many devices share your internet connection, how strong your wifi signal is, and the age of your router. If your uploads are taking too long consider compressing your videos before you upload them. You can also try uploading from your college campus or public libraries as institutions like these tend to have fast internet speeds.
+
+#### 2\. Where is Your Video Stored?
+
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
@@ -246,9 +290,54 @@ When a viewer clicks on your video their computer sends an encoded request throu
 
 If videos take a long time to load for you then there are a few things you can do to speed them up. First, consider changing the channel of your wifi router. Most people stay on the channel their router was set to when they first got it and so there is a good chance you and your neighbors are all on the same channel. This causes your networks to interfere with each other. You can also delete the temporary files on your computer. Besides helping you stream video faster this will free up storage space. Another thing you can do is make sure there are as few devices connected to your network as possible while you are watching videos. Besides mobile phones and laptops you may have appliances, like coffee machines and refrigerators, which are wifi enabled. Disconnect them temporarily and it will help your videos to load faster.
 
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+You use YouTube to watch videos, post your own content, and build up a following. That is how YouTube works for you. This article is about how YouTube works technically. There are a lot of steps which occur between you clicking 'upload' and a viewer clicking 'play'. Understanding this process can be useful to YouTubers because it can help shed light on where problems may be occurring when you have issues uploading or watching videos. Generally when there is a problem it is on your end and there are multiple simple things you can do to fix it.
+
+This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## How Does YouTube Work
+
+#### 1\. What Happens When You Upload?
+
+When you upload a video your computer or device packages it into IP packets. Packets are fragments of information containing both data from your video and the address you are sending it to, in this case YouTube. The packets are encoded into radio signals which are sent through a wifi or cellular network. Your video travels through switches and routers on the internet until they reach YouTube's servers. Your video is then reassembled and stored.
+
+If uploading takes a long time for you it probably has nothing to do with YouTube; there is a lot that needs to happen for your video to even get there. How long the upload process takes depends on a number of factors including how many devices share your internet connection, how strong your wifi signal is, and the age of your router. If your uploads are taking too long consider compressing your videos before you upload them. You can also try uploading from your college campus or public libraries as institutions like these tend to have fast internet speeds.
+
+#### 2\. Where is Your Video Stored?
+
+![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
+
+As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
+
+![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
+
+#### 3\. What Happens When Someone Watches Your Video?
+
+When a viewer clicks on your video their computer sends an encoded request through the internet to YouTube's servers. After YouTube receives the play request it chooses which format to play the video in based on the viewer's browser. Your video is again turned into packets, which are again sent as radio signals over the internet to your viewer. Your viewer's computer or device reforms the packets into your video and their browser plays it.
+
+If videos take a long time to load for you then there are a few things you can do to speed them up. First, consider changing the channel of your wifi router. Most people stay on the channel their router was set to when they first got it and so there is a good chance you and your neighbors are all on the same channel. This causes your networks to interfere with each other. You can also delete the temporary files on your computer. Besides helping you stream video faster this will free up storage space. Another thing you can do is make sure there are as few devices connected to your network as possible while you are watching videos. Besides mobile phones and laptops you may have appliances, like coffee machines and refrigerators, which are wifi enabled. Disconnect them temporarily and it will help your videos to load faster.
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -279,99 +368,6 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
-
-Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
-
-#### 3\. What Happens When Someone Watches Your Video?
-
-When a viewer clicks on your video their computer sends an encoded request through the internet to YouTube's servers. After YouTube receives the play request it chooses which format to play the video in based on the viewer's browser. Your video is again turned into packets, which are again sent as radio signals over the internet to your viewer. Your viewer's computer or device reforms the packets into your video and their browser plays it.
-
-If videos take a long time to load for you then there are a few things you can do to speed them up. First, consider changing the channel of your wifi router. Most people stay on the channel their router was set to when they first got it and so there is a good chance you and your neighbors are all on the same channel. This causes your networks to interfere with each other. You can also delete the temporary files on your computer. Besides helping you stream video faster this will free up storage space. Another thing you can do is make sure there are as few devices connected to your network as possible while you are watching videos. Besides mobile phones and laptops you may have appliances, like coffee machines and refrigerators, which are wifi enabled. Disconnect them temporarily and it will help your videos to load faster.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-You use YouTube to watch videos, post your own content, and build up a following. That is how YouTube works for you. This article is about how YouTube works technically. There are a lot of steps which occur between you clicking 'upload' and a viewer clicking 'play'. Understanding this process can be useful to YouTubers because it can help shed light on where problems may be occurring when you have issues uploading or watching videos. Generally when there is a problem it is on your end and there are multiple simple things you can do to fix it.
-
-This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
-
-## How Does YouTube Work
-
-#### 1\. What Happens When You Upload?
-
-When you upload a video your computer or device packages it into IP packets. Packets are fragments of information containing both data from your video and the address you are sending it to, in this case YouTube. The packets are encoded into radio signals which are sent through a wifi or cellular network. Your video travels through switches and routers on the internet until they reach YouTube's servers. Your video is then reassembled and stored.
-
-If uploading takes a long time for you it probably has nothing to do with YouTube; there is a lot that needs to happen for your video to even get there. How long the upload process takes depends on a number of factors including how many devices share your internet connection, how strong your wifi signal is, and the age of your router. If your uploads are taking too long consider compressing your videos before you upload them. You can also try uploading from your college campus or public libraries as institutions like these tend to have fast internet speeds.
-
-#### 2\. Where is Your Video Stored?
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
-![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
-
-As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
-
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
-
-Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
-
-#### 3\. What Happens When Someone Watches Your Video?
-
-When a viewer clicks on your video their computer sends an encoded request through the internet to YouTube's servers. After YouTube receives the play request it chooses which format to play the video in based on the viewer's browser. Your video is again turned into packets, which are again sent as radio signals over the internet to your viewer. Your viewer's computer or device reforms the packets into your video and their browser plays it.
-
-If videos take a long time to load for you then there are a few things you can do to speed them up. First, consider changing the channel of your wifi router. Most people stay on the channel their router was set to when they first got it and so there is a good chance you and your neighbors are all on the same channel. This causes your networks to interfere with each other. You can also delete the temporary files on your computer. Besides helping you stream video faster this will free up storage space. Another thing you can do is make sure there are as few devices connected to your network as possible while you are watching videos. Besides mobile phones and laptops you may have appliances, like coffee machines and refrigerators, which are wifi enabled. Disconnect them temporarily and it will help your videos to load faster.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-You use YouTube to watch videos, post your own content, and build up a following. That is how YouTube works for you. This article is about how YouTube works technically. There are a lot of steps which occur between you clicking 'upload' and a viewer clicking 'play'. Understanding this process can be useful to YouTubers because it can help shed light on where problems may be occurring when you have issues uploading or watching videos. Generally when there is a problem it is on your end and there are multiple simple things you can do to fix it.
-
-This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
-
-## How Does YouTube Work
-
-#### 1\. What Happens When You Upload?
-
-When you upload a video your computer or device packages it into IP packets. Packets are fragments of information containing both data from your video and the address you are sending it to, in this case YouTube. The packets are encoded into radio signals which are sent through a wifi or cellular network. Your video travels through switches and routers on the internet until they reach YouTube's servers. Your video is then reassembled and stored.
-
-If uploading takes a long time for you it probably has nothing to do with YouTube; there is a lot that needs to happen for your video to even get there. How long the upload process takes depends on a number of factors including how many devices share your internet connection, how strong your wifi signal is, and the age of your router. If your uploads are taking too long consider compressing your videos before you upload them. You can also try uploading from your college campus or public libraries as institutions like these tend to have fast internet speeds.
-
-#### 2\. Where is Your Video Stored?
-
-![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
-
-As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
-
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
@@ -403,7 +399,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-ultimate-action-camera-guide-exploring-sj-cam-s6s-capabilities-for-2024/"><u>[New] Ultimate Action Camera Guide Exploring SJ-CAM S6's Capabilities for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-discover-the-tricks-to-recording-and-screencasting-your-youtube-views-without-cash/"><u>[Updated] Discover The Tricks to Recording & Screencasting Your YouTube Views without Cash</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-disseminating-videos-tiktok-content-for-a-wider-facebook-audience-for-2024/"><u>[Updated] Disseminating Videos TikTok Content for a Wider Facebook Audience for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-insiders-guide-to-perfected-picture-hues/"><u>[Updated] The Insider's Guide to Perfected Picture Hues</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-tips-for-wirecast-live-streaming-to-youtube/"><u>2024 Approved Essential Tips for WireCast Live Streaming to Youtube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-invisible-vibes-dimming-music-on-computers/"><u>2024 Approved Invisible Vibes Dimming Music on Computers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/capturing-attention-from-content-creation-to-commerce-for-2024/"><u>Capturing Attention From Content Creation to Commerce for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/expert-guide-to-enhancing-video-controls-and-performance-for-2024/"><u>Expert Guide to Enhancing Video Controls and Performance for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-screen-to-share-mastering-youtubes-thumbnail-artistry/"><u>From Screen to Share Mastering YouTubes' Thumbnail Artistry</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-honor-70-lite-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Honor 70 Lite 5G online without jailbreak</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/prime-selection-of-screen-capture-software-for-gaming/"><u>Prime Selection of Screen Capture Software for Gaming</u></a></li>
+<li><a href="https://os-tips.techidaily.com/revolutionizing-mobile-browsing-google-chromes-latest-update-adds-bottom-address-bar-to-iphones/"><u>Revolutionizing Mobile Browsing: Google Chrome's Latest Update Adds Bottom Address Bar to iPhones</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/transfer-tactics-for-youtube-to-dailymotion-success/"><u>Transfer Tactics for YouTube to Dailymotion Success</u></a></li>
+</ul></div>
 

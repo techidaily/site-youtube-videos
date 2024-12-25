@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2024-12-12T18:51:00.809Z
-updated: 2024-12-16T20:54:18.095Z
+date: 2024-12-24T16:09:25.019Z
+updated: 2024-12-25T16:35:55.710Z
 tags:
   - ai video
   - ai youtube
@@ -41,25 +41,21 @@ They say that less is more, so let's have a look at how you can apply this princ
 9. [10 Things About You](#nine)
 10. [Video Rant](#ten)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Introduce Yourself
 
 Let the world know who you are and what you do. If you are planning on starting a YouTube channel, or if you’ve already been posting videos on a topic but haven’t formally introduced yourself, it’s a great idea to put some thought into an introduction video. Producing such a YouTube video will enable you to introduce yourself to your future subscribers and give them an idea as to what your channel is all about.
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Vlog About Your Day
 
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
 
 Strive to make visually dynamic videos, because just sitting or standing and talking in front of a camera for a few minutes isn't going to create much on-screen action.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Express An Opinion
 
@@ -81,6 +77,10 @@ Are you a Tarantino fan? Why not? When you are struggling to find inspiration fo
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. What’s on Your Phone?
 
 There were over two billion smartphone users worldwide in 2017, and this number is only going to continue rising in the next couple of years. Furthermore, thousands of YouTubers are already producing unimaginable amounts of videos about the latest apps or smartphone devices.
@@ -88,7 +88,7 @@ There were over two billion smartphone users worldwide in 2017, and this number 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
@@ -103,10 +103,6 @@ Education is our only hope for a better world so if you know how to do something
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 9\. 10 Things About You
 
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
@@ -114,7 +110,7 @@ Being open is important, so why not share 10 things about yourself you think you
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. Video Rant
@@ -124,6 +120,10 @@ Doing things when you are angry is usually a bad idea, but if you feel so strong
 Don't try to fake a rant, because they only work if they are natural. Scripting a video rant may be an interesting creative task, but genuine reactions are always more effective. If you want to deliver a more structured and planned video about a topic you feel strongly about, that’d be more like an opinion video.
 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Start Editing Videos with Beginner-friendly Software
 
@@ -148,19 +148,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-free-banner-templates-and-makers-for-youtube/"><u>[Updated] Free Banner Templates & Makers for YouTube</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-memorable-images-top-10-best-meme-blueprints-for-2024/"><u>[Updated] Memorable Images TOP 10 Best Meme Blueprints for 2024</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/1728507792129-windows-11c/"><u>適用Windows 11的四大轉置程式自C:檔案卡到新目標位址之道</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/effective-ways-to-diagnose-and-fix-a-malfunctioning-computer-using-chatgpt/"><u>Effective Ways to Diagnose and Fix a Malfunctioning Computer Using ChatGPT</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-tools-ranking-the-best-mobile-videography-apps/"><u>Essential Tools Ranking the Best Mobile Videography Apps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/exploring-youtubes-earnings-mechanism-through-cpm-analysis/"><u>Exploring YouTube's Earnings Mechanism Through CPM Analysis</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/end-credits-maker-the-1-video-closers-guide-in-2024/"><u>Free End Credits Maker - The #1 Video Closers Guide, In 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-se-2022-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone SE (2022) Without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-audience-expansion-strategies-that-honor-youtube-standards/"><u>In 2024, Audience Expansion Strategies That Honor YouTube Standards</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-techniques-for-youtube-video-production-with-sony-vegas/"><u>In 2024, Cutting-Edge Techniques for YouTube Video Production with Sony Vegas</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-youtube-content-seo-methods-revealed/"><u>In 2024, Elevate Your YouTube Content SEO Methods Revealed</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-enhancing-your-youtube-content-basic-premiere-pro-edits/"><u>In 2024, Enhancing Your YouTube Content Basic Premiere Pro Edits</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unmasking-the-vanished-youtube-recommendations-on-facebook/"><u>In 2024, Unmasking the Vanished YouTube Recommendations on Facebook</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-delightful-digests-a-list-of-top-food-channels/"><u>[New] Delightful Digests A List of Top Food Channels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlocking-the-full-potential-of-igtv-a-step-by-step-guide/"><u>[New] Unlocking the Full Potential of IGTV A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-innovative-techniques-for-recording-instagram-story-highlights/"><u>[Updated] 2024 Approved Innovative Techniques for Recording Instagram Story Highlights</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-from-frame-to-phrase-expertly-ranked-29-video-translators-on-the-market/"><u>[Updated] In 2024, From Frame to Phrase Expertly Ranked 29 Video Translators on the Market</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-mastering-tiktok-audio-crafting-it-as-your-perfect-ringtone/"><u>[Updated] In 2024, Mastering TikTok Audio Crafting It as Your Perfect Ringtone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/getting-warzones-audio-features-back-to-life-fixing-microphonevoice-glitches-on-gaming-platforms/"><u>Getting Warzone's Audio Features Back to Life: Fixing Microphone/Voice Glitches on Gaming Platforms</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-infinix-note-30i-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Infinix Note 30i?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-ascend-in-the-youtube-arena-through-creative-studio-mastery/"><u>In 2024, Ascend in the YouTube Arena Through Creative Studio Mastery</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-best-youtube-mp3-downloader-compilation-top-10/"><u>In 2024, Best YouTube Mp3 Downloader Compilation (Top 10)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-filmmakers-key-to-cohesion-mastering-kinemaster-edits/"><u>In 2024, The Filmmaker's Key to Cohesion Mastering Kinemaster Edits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streamline-your-watch-party-multi-video-views-made-easy/"><u>Streamline Your Watch Party Multi-Video Views Made Easy</u></a></li>
+<li><a href="https://some-skills.techidaily.com/summers-best-10-nostalgic-films-for-the-whole-family-for-2024/"><u>Summer's Best 10 Nostalgic Films for the Whole Family for 2024</u></a></li>
 </ul></div>
 

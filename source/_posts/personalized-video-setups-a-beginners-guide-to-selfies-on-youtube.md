@@ -1,7 +1,7 @@
 ---
 title: "\"Personalized Video Setups  A Beginner's Guide to Selfies on YouTube\""
-date: 2024-12-11T21:09:56.229Z
-updated: 2024-12-16T17:48:59.496Z
+date: 2024-12-18T16:25:30.983Z
+updated: 2024-12-25T16:18:52.161Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
@@ -42,7 +42,7 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
@@ -62,7 +62,7 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -87,10 +87,6 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -107,17 +103,21 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -134,22 +134,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-a-deep-dive-into-fraps-recording-capabilities/"><u>[New] In 2024, A Deep Dive Into Fraps Recording Capabilities</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-access-your-favorites-anytime-the-leading-6-free-video-downloaders/"><u>2024 Approved Access Your Favorites Anytime The Leading 6 Free Video Downloaders</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-curtail-unexpected-youtube-recommendations/"><u>2024 Approved Curtail Unexpected YouTube Recommendations</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-compreayers-guide-to-monetizing-videos-critical-view-figures/"><u>A Compreayer's Guide to Monetizing Videos Critical View Figures</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-viewer-interest-with-optimal-video-thumbnail-sizes-for-2024/"><u>Boosting Viewer Interest with Optimal Video Thumbnail Sizes for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/deciphering-the-differences-between-youtubes-and-dailymentions-for-2024/"><u>Deciphering the Differences Between YouTubes & DailyMentions for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/direct-hit-the-techno-friendly-way-to-upload-your-short-clips-for-2024/"><u>Direct Hit The Techno-Friendly Way to Upload Your Short Clips for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevating-video-experience-best-youtube-to-avi-companions/"><u>Elevating Video Experience Best YouTube-to-AVI Companions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevating-your-videos-status-on-youtube-for-2024/"><u>Elevating Your Video's Status on YouTube for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/expert-picks-15-innovative-mounts-to-elevate-your-gopro/"><u>Expert Picks 15 Innovative Mounts to Elevate Your GoPro</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-subtle-shifts-leading-to-user-decline-on-fb/"><u>Exploring the Subtle Shifts Leading to User Decline on FB</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-apple-iphone-6s-plus-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>How To Leave a Life360 Group On Apple iPhone 6s Plus Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/improve-your-virtual-engagement-mastering-snap-photography/"><u>Improve Your Virtual Engagement Mastering Snap Photography</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-honor-magic-6-lite-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/language-shift-for-your-monitor-expert-advice-by-yl-software-professionals/"><u>Language Shift for Your Monitor: Expert Advice by YL Software Professionals</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1722991563330-now-rewrite-the-equation-using-these-equivalent-fractions/"><u>Now, Rewrite the Equation Using These Equivalent Fractions:</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/online-gestalteerd-mp3-in-professioneel-vooral-m2ts-converter-zonder-kosten/"><u>Online Gestalteerd Mp3 in Professioneel Vooral M2ts Converter, Zonder Kosten!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nlock-immersive-worlds-with-youtubes-top-10-vr-videos/"><u>[New] Unlock Immersive Worlds with YouTube's Top 10 VR Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-angular-adjustments-on-youtube-videos-the-ultimate-2023-guide/"><u>[Updated] Angular Adjustments on YouTube Videos - The Ultimate 2023 Guide</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/1-identifying-the-root-of-your-hardwares-slowdown-insights-by-yl-computing-and-software-solutions/"><u>1. Identifying the Root of Your Hardware's Slowdown: Insights by YL Computing & Software Solutions</u></a></li>
+<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-oppo-a78-5g-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Oppo A78 5G</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-realme-gt-5-240w-device-sim-by-drfone-android/"><u>Easily Unlock Your Realme GT 5 (240W) Device SIM</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/essential-skillset-how-to-execute-screen-recording-on-mac-for-2024/"><u>Essential Skillset How to Execute Screen Recording on Mac for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-do-i-use-adobe-premiere-to-upload-youtube-videos/"><u>How Do I Use Adobe Premiere To Upload YouTube Videos?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-edit-the-length-of-a-video-on-youtube/"><u>How to Edit the Length of a Video on YouTube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-realme-10t-5g-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Realme 10T 5G to Another | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-audience-engagement-on-demand-top-5-mac-streaming-tools/"><u>In 2024, Audience Engagement On Demand Top 5 Mac Streaming Tools</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/innovative-recording-tech-the-leaders-choice-for-2024/"><u>Innovative Recording Tech The Leaders' Choice for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pause-autoplay-on-youtube-suggested-videos/"><u>Pause Autoplay on YouTube Suggested Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pioneering-a-new-world-in-visual-storytelling-spotlighting-the-top-10-budget-friendly-youtube-sites/"><u>Pioneering a New World in Visual Storytelling Spotlighting the Top 10 Budget-Friendly YouTube Sites</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/shield-yourself-online-strategies-to-hide-visual-identities/"><u>Shield Yourself Online Strategies to Hide Visual Identities</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-battle-between-youtubes-copyright-clause-and-cc-license/"><u>The Battle Between YouTube’s Copyright Clause & CC License</u></a></li>
 </ul></div>
 

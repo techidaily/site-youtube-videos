@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of the End Scene  Tutorials & Templates for YouTube\""
-date: 2024-12-15T21:33:08.658Z
-updated: 2024-12-16T20:47:09.493Z
+date: 2024-12-24T16:27:47.906Z
+updated: 2024-12-25T16:03:16.516Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ YouTube end screens are a great way to get your viewers who have watched your Yo
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Free End Screen Templates Download
@@ -79,24 +79,20 @@ Here are some of our favorite ones.
 
 ![SoapyEdits-youtube-end-screen-template-1](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
@@ -118,20 +114,20 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -146,6 +142,10 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -162,18 +162,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/0-common-vlogging-fears-and-how-to-beat-them/"><u>[New] 10 Common Vlogging Fears and How To Beat Them</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-harnessing-free-clip-art-legally/"><u>[New] 2024 Approved Harnessing Free Clip Art Legally</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-mastering-your-iphones-best-selfie-techniques/"><u>[New] In 2024, Mastering Your Iphone's Best Selfie Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-constructive-communication-leads-to-more-subscribers/"><u>2024 Approved Constructive Communication Leads to More Subscribers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-captivating-edu-vids-on-youtube-a-step-by-step-guide/"><u>2024 Approved Crafting Captivating Edu-Vids on YouTube A Step-by-Step Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-delving-into-ffmpeg-for-pure-unchanged-auditory-extraction/"><u>2024 Approved Delving Into FFmpeg for Pure, Unchanged Auditory Extraction</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-dive-into-dynamic-youtube-discussions/"><u>2024 Approved Dive Into Dynamic YouTube Discussions</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-photo-framing-made-easy-leading-apps-and-sites-reviewed/"><u>2024 Approved Photo Framing Made Easy Leading Apps and Sites Reviewed</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-samsung-galaxy-m34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Samsung Galaxy M34 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-engagement-amplify-audience-youtube-marketing/"><u>Elevate Engagement, Amplify Audience (YouTube Marketing)</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/epic-escapades-in-playtime-paradise-for-2024/"><u>Epic Escapades in Playtime Paradise for 2024</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-silencing-sounds-techniques-for-audio-deletion-in-imovie-videos/"><u>In 2024, Silencing Sounds Techniques for Audio Deletion in iMovie Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/quietude-creation-garageband-volume-control-methods-for-2024/"><u>Quietude Creation Garageband Volume Control Methods for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-from-words-to-memos-iphone-sound-guide-for-2024/"><u>[New] From Words to Memos IPhone Sound Guide for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-converting-mac-image-types-a-step-by-step-process/"><u>[Updated] Converting Mac Image Types A Step-by-Step Process</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-reverse-image-syndrome-explaining-sideways-ig-vids/"><u>[Updated] In 2024, Reverse Image Syndrome Explaining Sideways IG Vids</u></a></li>
+<li><a href="https://games-able.techidaily.com/are-your-vintage-gamepads-power-sources-compatible-with-oled-switch/"><u>Are Your Vintage Gamepad's Power Sources Compatible with OLED Switch?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/delve-into-youtube-metrics-using-the-power-of-social-blade-for-2024/"><u>Delve Into YouTube Metrics Using the Power of Social Blade for 2024</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/enhance-system-management-easy-ways-to-modify-windows-control-panel-settings-with-expert-advice-from-yl-software/"><u>Enhance System Management: Easy Ways to Modify Windows Control Panel Settings with Expert Advice From YL Software</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-honor-magic-v2-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Honor Magic V2 Phones with/without a PC</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-avoid-blandness-optimize-your-thumbnail-with-20-fonts/"><u>In 2024, Avoid Blandness - Optimize Your Thumbnail with 20 Fonts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/masterclass-in-length-management-youtube-vids/"><u>Masterclass in Length Management YouTube Vids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-team-ups-finding-perfect-co-stars/"><u>Mastering YouTube Team-Ups Finding Perfect Co-Stars</u></a></li>
 </ul></div>
 

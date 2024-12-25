@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-12-15T17:51:52.279Z
-updated: 2024-12-16T20:18:15.782Z
+date: 2024-12-18T16:28:26.519Z
+updated: 2024-12-25T16:17:32.786Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/a7b063e2c5f1e938dc6e32e2ce85c52239dfc8e77
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,21 +143,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-optimal-outlooks-ideal-laptops-to-render-hd-videos-quickly/"><u>[New] 2024 Approved Optimal Outlooks Ideal Laptops to Render HD Videos Quickly</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-altering-gender-display-in-digital-photographs-step-by-step-guide-for-2024/"><u>[Updated] Altering Gender Display in Digital Photographs Step by Step Guide for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-become-a-youtube-gif-wizard-your-complete-online-transformation-tutorial/"><u>2024 Approved Become a Youtube Gif Wizard Your Complete Online Transformation Tutorial</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-composing-correspondents-curtains/"><u>2024 Approved Composing Correspondents' Curtains</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-core-principles-youtubes-social-contract/"><u>2024 Approved Core Principles YouTube's Social Contract</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-double-down-on-youtube-visibility-2-quick-methods/"><u>2024 Approved Double Down on YouTube Visibility (2 Quick Methods)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-audio-visual-fidelity-use-av1-on-youtube/"><u>2024 Approved Enhance Audio-Visual Fidelity Use AV1 on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/calculating-clickers-contribution-to-youtube-earnings/"><u>Calculating Clickers' Contribution to YouTube Earnings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/controlling-who-sees-your-youtube-productions-for-2024/"><u>Controlling Who Sees Your Youtube Productions for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-finding-the-best-replacement-for-magixs-acid-pro/"><u>In 2024, Finding the Best Replacement for Magix's ACID Pro</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-realme-narzo-60-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Realme Narzo 60 5G Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/in-depth-imac-with-m1-chip-analysis-combining-elegance-with-performance/"><u>In-Depth iMac with M1 Chip Analysis: Combining Elegance with Performance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-of-love-a-global-valentines-day-guide/"><u>Language of Love: A Global Valentine’s Day Guide</u></a></li>
-<li><a href="https://article-files.techidaily.com/serene-visual-narratives-for-bedtime/"><u>Serene Visual Narratives for Bedtime</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-art-of-converting-photographs-into-cinematic-videography-with-pixiz/"><u>The Art of Converting Photographs Into Cinematic Videography with Pixiz</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-5-best-free-global-voice-communication-tools/"><u>Top 5 Best Free Global Voice Communication Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-accelerated-photography-browser-for-11-os-users/"><u>[New] Accelerated Photography Browser for 11 OS Users</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-beginners-obs-techniques-for-youtube-live-streaming/"><u>[New] Beginner's OBS Techniques for YouTube Live Streaming</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-simple-processes-for-logging-vimeo-content-for-2024/"><u>[New] Simple Processes for Logging Vimeo Content for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-channel-personality-complimentary-youtube-graphics/"><u>[Updated] Channel Personality Complimentary YouTube Graphics</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-ace-tools-review-6-superior-options-for-photo-backdrop-cleanup/"><u>2024 Approved Ace Tools Review - 6 Superior Options for Photo Backdrop Cleanup</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-direct-twitch-stream-transfer-to-youtube-playback/"><u>2024 Approved Direct Twitch Stream Transfer to YouTube Playback</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/id-centric-top-downloads-for-youtube-videos-explored/"><u>Android-Centric Top Downloads for YouTube Videos Explored</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-channel-success-scaling-for-a-million-viewers/"><u>Boosting Channel Success Scaling for a Million Viewers</u></a></li>
+<li><a href="https://facebook.techidaily.com/covid-deception-whos-behind-the-misinfo/"><u>Covid Deception: Who's Behind the Misinfo?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-your-youtube-legacy-a-deep-dive-into-creator-studio-mastery-for-2024/"><u>Crafting Your YouTube Legacy A Deep Dive Into Creator Studio Mastery for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-clicks-top-tags-for-gamers-content/"><u>In 2024, Crafting Clicks Top Tags for Gamers' Content</u></a></li>
+<li><a href="https://win-dash.techidaily.com/resolving-issues-with-lg-monitor-drivers-in-windows-11-8-and-7-a-step-by-step-guide/"><u>Resolving Issues With LG Monitor Drivers in Windows 11, 8, and 7: A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/solving-iphone-xs-trust-issues-fixing-facial-detection-glitches-for-2024/"><u>Solving iPhone X's Trust Issues Fixing Facial Detection Glitches for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/stay-ahead-with-innovation-integrating-youtube-into-your-educational-approach/"><u>Stay Ahead with Innovation Integrating YouTube Into Your Educational Approach</u></a></li>
+<li><a href="https://win-latest.techidaily.com/1728475879225-windows-11115/"><u>Windows 11/11のデータ保護に最適なバックアップ手段：5つの戦略</u></a></li>
 </ul></div>
 

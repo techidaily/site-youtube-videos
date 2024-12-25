@@ -1,7 +1,7 @@
 ---
 title: "Top 10 Funny YouTube Shorts Video Ideas"
-date: 2024-12-09T21:12:02.826Z
-updated: 2024-12-16T20:46:00.371Z
+date: 2024-12-21T16:05:13.661Z
+updated: 2024-12-25T16:26:57.060Z
 tags:
   - ai video
   - ai youtube
@@ -30,10 +30,6 @@ YouTube is a well-known brand for videos globally. This time, it comes with its 
 
 That sounds great, doesn’t it? Let’s move ahead to get a good grab over some funny, engaging, and eye-catching ideas to have YouTube Shorts videos here. No need for a lengthy tutorial to become the real YouTube Shorts champion with the following tips. Let’s roll on, guys!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Top 10 Funny YouTube Shorts Video Ideas
 
 Your wait gets over here. Yes, you heard it right. If you are eager to explore the world of YouTube Shorts Channel and some funny ideas, take a big leap towards your journey.
@@ -54,6 +50,10 @@ Who doesn’t love the stories? Everyone is somewhat fond of listening to differ
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
 
 #### Idea 3: Picture Story
@@ -62,6 +62,10 @@ Pictures are a unique way to express feelings, especially when those funny pictu
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Using different online software, you can enhance the pictures or modify the background voice. Such a combination under YouTube Shorts Video ideas brings a different aura to your channel.
 
 #### Idea 4: Daily Experiences
@@ -69,10 +73,6 @@ Using different online software, you can enhance the pictures or modify the back
 Life is indeed full of surprises, events, and glory. Then, why not tailor some of its moments under best YouTube Shorts ideas. These experiences vary from your home, neighbor, society, college, office, or anywhere.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You need to keep your judging eyes open to catch all the moments, and you can also note it down to make a series so as not to miss any exciting experience.
 
@@ -83,10 +83,6 @@ Living every moment creates a wonder. Let others also make a part of this journe
 If experimenting with chemicals or anything that surrounds you makes you out of the world, then there is the chance that you can come out as YouTube Shorts ideas Star. By just showing how one chemical, when mixed with another, creates something new and marvelous to see, look or feel.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Just review all your collection of experiments you did and combine them under YouTube Shorts Channel ideas. And make a big bust with such chemical/physical experiments.
 
@@ -121,7 +117,7 @@ Pets are the favorite of those who own them. They are excellent; they play, danc
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You will be surprised to see how much fun-loving these cute pets are—so, geared up to capture the funny acts of pets through YouTube Shorts ideas. It will bring a smile to everyone’s face.
@@ -133,7 +129,7 @@ Everybody holds some unique talent. You just need to identify it. If you have so
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-11.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Choose the one that fits you and start creating YouTube Shorts Channel with these ideas.
@@ -186,6 +182,10 @@ Thus, start utilizing these powerful ideas and tips and head towards your YouTub
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -201,20 +201,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-simplify-multitasking-with-picture-in-picture-feature-ios-for-2024/"><u>[New] Simplify Multitasking with Picture in Picture Feature (iOS) for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-secret-behind-successful-igtv-uploads-from-h-videos/"><u>[New] The Secret Behind Successful IGTV Uploads From H-Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-ultimate-guide-to-creating-yt-shorts/"><u>[Updated] 2024 Approved The Ultimate Guide to Creating YT Shorts</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-top-artisans-in-sound-and-video-craftsminas-online/"><u>[Updated] The Top Artisans in Sound and Video Craftsminas Online</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-crafting-contrast-and-depth-in-hdr-portraits/"><u>2024 Approved Crafting Contrast and Depth in HDR Portraits</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/complete-motion-evaluation-2023-for-2024/"><u>Complete Motion Evaluation 2023 for 2024</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/efficient-strategies-for-managing-and-clearing-vcenter-server-appliance-event-logs/"><u>Efficient Strategies for Managing and Clearing vCenter Server Appliance Event Logs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/engaging-audiences-triad-of-effective-storytelling-for-2024/"><u>Engaging Audiences Triad of Effective Storytelling for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-techniques-to-elevate-your-channels-visibility-for-2024/"><u>Essential Techniques to Elevate Your Channel's Visibility for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-raw-to-refined-mastering-the-art-of-pc-video-editing-on-windows/"><u>From Raw to Refined Mastering the Art of PC Video Editing on Windows</u></a></li>
-<li><a href="https://win-guides.techidaily.com/how-can-you-reinstall-your-default-gpu-drivers-a-step-by-step-guide-expertise-from-yl-computing/"><u>How Can You Reinstall Your Default GPU Drivers: A Step-by-Step Guide - Expertise From YL Computing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-get-people-to-subscribe-by-asking-the-right-way/"><u>How to Get People to Subscribe by Asking the Right Way</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-conquering-green-hue-fixing-it-on-mac-for-video-editors/"><u>In 2024, Conquering Green Hue Fixing It On Mac For Video Editors</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-converting-live-streamed-youtubes-into-animated-gif-formats/"><u>In 2024, Converting Live Streamed YouTubes Into Animated GIF Formats</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-discover-new-heights-top-10-adventure-channels/"><u>In 2024, Discover New Heights Top 10 Adventure Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-top-15-youtube-starter-themes-for-increased-viewership/"><u>[New] 2024 Approved Top 15 YouTube Starter Themes for Increased Viewership</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-channel-building-gear-a-quick-start-guide/"><u>[New] Channel-Building Gear A Quick Start Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-innovating-echoes-a-mac-studio-journey/"><u>[Updated] 2024 Approved Innovating Echoes A Mac Studio Journey</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-deciphering-the-divergent-aspects-of-youtubes-and-dailymentions/"><u>[Updated] Deciphering the Divergent Aspects of YouTubes & DailyMentions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-boost-your-budget-a-straightforward-triple-step-method-to-monitor-youtube-revenue/"><u>2024 Approved Boost Your Budget A Straightforward Triple-Step Method to Monitor YouTube Revenue</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/osts-boost-creativity-learn-the-secrets-of-green-screen-artistry-from-4-leading-educators-for-2024/"><u>Cut Costs, Boost Creativity Learn the Secrets of Green Screen Artistry From 4 Leading Educators for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-missing-d3dx939dll-errors-on-your-pc-with-easy-fixes/"><u>Fixing Missing d3dX9_39.dll Errors on Your PC with Easy Fixes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-record-good-audio-without-a-microphone/"><u>How to Record Good Audio Without a Microphone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-make-asmr-videos-a-complete-guide/"><u>In 2024, How to Make ASMR Videos A Complete Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-quick-and-simple-adding-youtube-songs-to-imovie-edit/"><u>In 2024, Quick and Simple Adding Youtube Songs to iMovie Edit</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/hing-spotify-playlists-transferring-to-youtube-music-format/"><u>Switching Spotify Playlists Transferring to YouTube Music Format</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unison-video-visionaries-finding-your-cms/"><u>Unison Video Visionaries Finding Your CMS</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unveiling-youtubes-earnings-blueprint/"><u>Unveiling YouTube’s Earnings Blueprint</u></a></li>
 </ul></div>
 

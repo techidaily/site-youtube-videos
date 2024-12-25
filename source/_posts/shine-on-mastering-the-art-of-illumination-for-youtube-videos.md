@@ -1,7 +1,7 @@
 ---
 title: "\"Shine On  Mastering the Art of Illumination for YouTube Videos\""
-date: 2024-12-15T17:03:00.696Z
-updated: 2024-12-16T16:40:36.395Z
+date: 2024-12-19T16:18:49.435Z
+updated: 2024-12-25T16:08:05.893Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1.  Window Lighting
 
 The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
@@ -48,7 +52,7 @@ Window lighting for me was especially difficult to work with because I live in a
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
@@ -58,10 +62,6 @@ Above are two freeze frames from one of Daniel's past window-lit vlogs. Although
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
@@ -73,12 +73,16 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
@@ -86,10 +90,6 @@ The first thing you’ll want to do to set up studio lighting in your home is to
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -106,7 +106,7 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
@@ -132,20 +132,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-crafting-the-perfect-mc-homestead-layout/"><u>[New] 2024 Approved Crafting the Perfect MC Homestead Layout</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-from-battery-life-to-final-cut-a-drone-editors-journey-for-2024/"><u>[Updated] From Battery Life to Final Cut A Drone Editor's Journey for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-leading-8-screenshot-solutions-without-hesitation/"><u>[Updated] Leading 8 Screenshot Solutions Without Hesitation</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1-free-online-jpeg-file-converter-movavi-photo-editor/"><u>1. Free Online JPEG File Converter - Movavi Photo Editor</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/automatic-cycling-of-videos-on-iphone-ease-for-2024/"><u>Automatic Cycling of Videos on iPhone Ease for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/building-a-strong-network-how-to-form-effective-youtube-partner-relationships/"><u>Building a Strong Network How to Form Effective YouTube Partner Relationships</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discover-the-7-most-popular-video-apps-for-iphones-and-android-live-streaming-for-2024/"><u>Discover The 7 Most Popular Video Apps for iPhones & Android Live Streaming for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-user-commentary-for-2024/"><u>Dissecting YouTubes' User Commentary for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/efficient-tactics-for-viewing-subscribers-on-yt-for-2024/"><u>Efficient Tactics for Viewing Subscribers on YT for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-honor-70-lite-5gwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Honor 70 Lite 5Gwith/without a PC</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-unveiling-a-world-of-live-content-roku-and-facebook-integration/"><u>In 2024, Unveiling a World of Live Content Roku and Facebook Integration</u></a></li>
-<li><a href="https://win-dash.techidaily.com/latest-canon-dr-c225-printer-drivers-available-now-windows-compatibility-guide-win11108/"><u>Latest Canon DR-C225 Printer Drivers Available Now - Windows Compatibility Guide (Win11/10/8)</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/movaviavimov/"><u>Movaviを使用した無料AVIからMOVへの簡単なオンライン変換 – アクセスする</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716464516434-short-film-synopsis-must-know-points/"><u>Short Film Synopsis Must-Know Points!</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-integrating-secondary-shots-tips-and-tricks/"><u>[New] Integrating Secondary Shots Tips and Tricks</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-auto-enhancing-shots-with-innovative-exposure-algorithms/"><u>[Updated] 2024 Approved Auto-Enhancing Shots with Innovative Exposure Algorithms</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-to-blur-background-of-your-youtube-video-for-2024/"><u>[Updated] How to Blur Background of Your YouTube Video for 2024</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/1728490563753-windows-server/"><u>「Windows Serverバックアップの自動スケジューリングに問題が発生する - 解決策とトラブルシューティングガイド」</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-transform-every-moment-top-tasks-to-master-while-listening-to-your-favorite-podcasts/"><u>2024 Approved Transform Every Moment Top Tasks to Master While Listening to Your Favorite Podcasts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/beat-bazaar-curation-of-superior-dj-video-samples-for-download/"><u>Beat Bazaar Curation of Superior DJ Video Samples for Download</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-tips-for-smooth-youtube-content-trimming-for-2024/"><u>Essential Tips for Smooth YouTube Content Trimming for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-capture-to-air-expert-tips-for-streaming-upside-down-videos-on-youtube/"><u>From Capture to Air Expert Tips for Streaming Upside-Down Videos on Youtube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-creating-a-link-building-foundation-for-video-marketers/"><u>In 2024, Creating a Link-Building Foundation for Video Marketers</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/stay-chill-with-less-than-65-a-detailed-look-at-the-latest-frozen-notte-and-aqua-elite-aios/"><u>Stay Chill with Less than $65: A Detailed Look at the Latest Frozen Notte & Aqua Elite AIOs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/strategies-for-keeping-your-youtube-video-under-cc-accessible/"><u>Strategies for Keeping Your YouTube Video Under CC Accessible</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/unlocking-disney-dvd-secrets-a-step-by-step-guide-to-bypassing-copyright-restrictions/"><u>Unlocking Disney DVD Secrets: A Step-by-Step Guide to Bypassing Copyright Restrictions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/usb-tethering-trouble-heres-what-to-do-next/"><u>USB Tethering Trouble? Here's What to Do Next!</u></a></li>
 </ul></div>
 

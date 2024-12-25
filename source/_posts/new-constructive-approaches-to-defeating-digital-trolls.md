@@ -1,7 +1,7 @@
 ---
 title: "[New] Constructive Approaches to Defeating Digital Trolls"
-date: 2024-09-18T17:45:32.308Z
-updated: 2024-09-21T19:42:42.443Z
+date: 2024-12-19T16:18:09.075Z
+updated: 2024-12-25T16:00:24.981Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/ced37c54f6280b48c4cccd59bb3d4e6e75cf48a36
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -93,6 +97,10 @@ Follow @Richard Bennett
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -191,6 +199,10 @@ Follow @Richard Bennett
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Essential Guide to Efficient YouTube Follow Link Design
 
@@ -238,13 +250,14 @@ Getting subscribers is tough, but you’ll get more if you ask and this is just 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -293,19 +306,6 @@ Getting subscribers is tough, but you’ll get more if you ask and this is just 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -325,6 +325,10 @@ If you want to increase the total number of subscribers that you have on your Yo
 A subscribe link is a link to your channel page which takes the person who clicks it to the same view of the page they would have if they had already clicked to subscribe. It triggers a pop-up asking them to confirm their subscription. If they were already interested enough to click the link and check out your channel they may confirm the subscription in the window, whereas they may forget to subscribe if they aren’t prompted.
 
 A YouTube subscribe link is one of the best ways to share a link on your website, in social media posts, or anywhere you mention your channel.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Get a YouTube Subscribe Link
 
@@ -349,10 +353,7 @@ _<https://www.youtube.com/channel/UCY\_LMaDAoa6hwHKBE4Dx56w?sub\_confirmation=1>
 Getting subscribers is tough, but you’ll get more if you ask and this is just another way of asking. The process for creating a YouTube subscribe link is easy and accessible to everyone.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Touch Up Your YouTube Videos with Filmora
@@ -403,13 +404,6 @@ _<https://www.youtube.com/channel/UCY\_LMaDAoa6hwHKBE4Dx56w?sub\_confirmation=1>
 
 Getting subscribers is tough, but you’ll get more if you ask and this is just another way of asking. The process for creating a YouTube subscribe link is easy and accessible to everyone.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Touch Up Your YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) features lots of video and audio editing tools that enables you to cut, trim and touch up the video clip easily. There are plentiful texts templates and elements, which can be used to create attractive call-outs.
@@ -417,19 +411,14 @@ Getting subscribers is tough, but you’ll get more if you ask and this is just 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -450,5 +439,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-defeat-synthetic-followers-for-true-popularity-peak/"><u>[New] Defeat Synthetic Followers for True Popularity Peak</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-live-transmission-directly-to-instagram-via-obs/"><u>[New] Live Transmission Directly to Instagram via OBS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-enlarge-your-feed-footprint-with-full-screen-videos/"><u>[Updated] 2024 Approved Enlarge Your Feed Footprint with Full-Screen Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-youtube-banner-size-and-channel-art-dimension-the-ultimate-guide-for-2024/"><u>Best YouTube Banner Size and Channel Art Dimension (The Ultimate Guide) for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/bite-sized-script-producer/"><u>Bite-Sized Script Producer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-rings-enhanced-doorbell-security-system/"><u>Comprehensive Evaluation of Ring's Enhanced Doorbell Security System</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/experiencing-the-future-with-microsofts-surface-laptop-studio-v2-impressions-and-envy-spark/"><u>Experiencing the Future with Microsoft's Surface Laptop Studio v2: Impressions & Envy Spark</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-organize-a-fantastic-household-karaoke-party-with-simple-steps/"><u>How to Organize a Fantastic Household Karaoke Party with Simple Steps</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-streamlined-video-production-youtube-studio-edition/"><u>In 2024, Streamlined Video Production YouTube Studio Edition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/master-your-hashtags-the-path-to-6-figure-youtube-success/"><u>Master Your Hashtags The Path to 6-Figure Youtube Success</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/rising-through-the-rankings-adding-highlight-channels-to-youtube/"><u>Rising Through the Rankings Adding Highlight Channels to YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-guide-locating-the-heart-of-youtube-video-management-for-2024/"><u>The Ultimate Guide Locating the Heart of YouTube Video Management for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722888310400-top-6-best-standalone-translation-tools-avoid-the-internet/"><u>Top 6 Best Standalone Translation Tools: Avoid the Internet</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-the-potential-of-your-youtube-videos-in-movie-maker/"><u>Unlock the Potential of Your YouTube Videos in Movie Maker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/users-perspective-on-the-performance-of-aphacas-car-transmitter-with-bluetooth-technology/"><u>User's Perspective on the Performance of Aphaca's Car Transmitter with Bluetooth Technology</u></a></li>
+</ul></div>
 
