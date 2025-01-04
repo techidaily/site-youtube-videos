@@ -1,7 +1,7 @@
 ---
 title: Stop the Loop of Uninstalling Hardware Drivers by Nvidia
-date: 2024-12-21T16:39:50.938Z
-updated: 2024-12-25T16:09:20.683Z
+date: 2024-12-28T23:34:11.829Z
+updated: 2025-01-03T23:05:26.336Z
 tags:
   - win11
   - win10
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 
  Whenever you download and install a new**Nvidia driver** on your PC, it**keeps uninstalling itself** a few days later? Don’t worry, it’s fixable! And in most cases, the fix is pretty fast and simple…
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  Here are 4 fixes that have helped other users get their Nvidia drivers working again. You may not have to try them all; just work your way down the list until you find the one that works for you.
@@ -26,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 3. [**Update your Nvidia driver**](https://turtlebeacheu.sjv.io/1r0r59)
 4. [**Reinstall your Nvidia driver**](https://dreoaffiliateprogram.pxf.io/k0ezjl)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 1: Check your device installation settings
 
  You can go to**Device Installation Settings** to stop Windows from automatically downloading drivers, then redownload the Nvidia driver you want. Here’s how to check your device installation settings:
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 2. Type**control** and press**Enter** to go to Control Panel.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59b08cdf4e.png)
@@ -47,22 +47,26 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59ba063ed0.jpg)
 4. Click**System** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59bd79ae6d.jpg)
 5. Click**Advanced system settings** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59c0e94e5d.jpg)
 6. Click the**Hardware** tab, then the**Device Installation Settings** button.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59cb552443.jpg)
 7. Select**No** , and click**Save changes** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5a1202b9e9.jpg)
 8. Click**OK** .  
@@ -74,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 10. Open the downloaded file and follow the on-screen instructions to install the driver.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 11. Restart your computer and check if the problem is resolved. If not, try Fix 2, below.
@@ -90,10 +94,6 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
    ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5a9433a0fb.png)  
    3. Select and stop**all** Nvidia services.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
    ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5ae3f67690.jpg)
 2. You should also check that all Nvidia programs are ended:  
 
@@ -102,14 +102,14 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
    ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5b0564178c.jpg)
 3. You can then delete the logging file in your Windows Registry:  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
    1. Press**Windows+R** to open the Run box.  
    2. Type **regedit** and press**Enter** .  
    ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5b13e9cf85.png)  
    3. Navigate to the following path, then delete the**Logging** file:  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
    **HKEY\_LOCAL\_MACHINE\\SOFTWARE\\NVIDIA Corporation\\Logging**  
     **HKEY\_LOCAL\_MACHINE\\SOFTWARE\\Wow6432Node\\NVIDIA Corporation\\Logging**
@@ -129,7 +129,7 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 3. Click**Update** next to any flagged devices to automatically download the correct version of their drivers, then you can install them manually. Or click**Update All** to automatically download and install them all automatically. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. You get full support and a 30-day money back guarantee.)  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc58e7b30171.jpg)
@@ -170,20 +170,20 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-8-unique-workout-concepts-for-a-pulse-raising-video-channel/"><u>[New] 8 Unique Workout Concepts for a Pulse-Raising Video Channel</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-a-step-by-step-breakdown-creating-your-best-yt-shorts/"><u>[Updated] A Step-by-Step Breakdown Creating Your Best YT Shorts</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-optimal-quality-hd-screening-units/"><u>[Updated] Optimal Quality HD Screening Units</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-transforming-view-counts-with-strategic-video-tagging-techniques/"><u>[Updated] Transforming View Counts with Strategic Video Tagging Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-deceptions-toll-consequences-of-fake-supporters-in-video-markets/"><u>2024 Approved Deception's Toll Consequences of Fake Supporters in Video Markets</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-earnings-escalate-500-subscriber-marker-achieved/"><u>2024 Approved Earnings Escalate 500-Subscriber Marker Achieved</u></a></li>
-<li><a href="https://win-forum.techidaily.com/advanced-file-management-eliminating-resistant-folders-in-windows-10-and-11-effortlessly-with-revo-uninstaller/"><u>Advanced File Management: Eliminating Resistant Folders in Windows 10 & 11 Effortlessly With Revo Uninstaller</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ankers-latest-compact-energy-hub-a-revolutionary-portable-charger-that-catches-everyones-eye/"><u>Anker's Latest Compact Energy Hub: A Revolutionary Portable Charger That Catches Everyone's Eye</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-a-unique-online-presence-youtube-edition-for-2024/"><u>Crafting a Unique Online Presence YouTube Edition for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/gpu-face-off-comparing-4070-super-to-4070-ti-and-4080/"><u>GPU Face-Off: Comparing 4070 Super To 4070 Ti And 4080</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-chart-topping-tunes-compiling-an-impressive-youtube-playlist/"><u>In 2024, Chart-Topping Tunes Compiling an Impressive YouTube Playlist</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-free-youtube-end-screen-resources-enhance-video-impact/"><u>In 2024, Free YouTube End Screen Resources - Enhance Video Impact</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-make-a-lasting-impression-top-10-free-animated-logo-makers/"><u>New In 2024, Make a Lasting Impression Top 10 Free Animated Logo Makers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-turkish-script-decoded-simplified-alphabet-and-sound-guide/"><u>The Turkish Script Decoded: Simplified Alphabet & Sound Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-7-insider-tips-to-make-money-quickly-on-youtube-shorts/"><u>[New] 2024 Approved 7 Insider Tips to Make Money Quickly on YouTube Shorts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-boosting-your-channels-income-the-optimal-view-count-quotient/"><u>[New] Boosting Your Channel's Income The Optimal View Count Quotient</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-demystifying-the-math-of-youtube-ratio-perfection/"><u>[New] Demystifying the Math of YouTube Ratio Perfection</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-turning-tides-in-photographic-history-retrieval-on-facebook/"><u>[New] In 2024, Turning Tides in Photographic History Retrieval on Facebook</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-pantheon-of-popularity-reddits-top-10-posts/"><u>[Updated] The Pantheon of Popularity Reddit's Top 10 Posts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-earnings-escalation-leveraging-your-youtube-channel-on-mobile-devices/"><u>2024 Approved Earnings Escalation Leveraging Your YouTube Channel on Mobile Devices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-easy-technique-change-fins-sounds-on-pc-systems/"><u>2024 Approved Easy Technique Change Fins' Sounds on PC Systems</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-symbolizing-sound-designing-a-captivating-podcast-image/"><u>2024 Approved Symbolizing Sound Designing a Captivating Podcast Image</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ace-your-youtube-livestreams-mastering-broadcast-techniques-using-wirecast-for-2024/"><u>Ace Your Youtube Livestreams Mastering Broadcast Techniques Using WireCast for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/blurring-the-line-secure-video-content-with-smoother-images-for-2024/"><u>Blurring the Line Secure Video Content with Smoother Images for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-iphone-15-plus-without-passcode-now-drfone-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock iPhone 15 Plus Without Passcode Now | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-overcome-asus-pce-ac56-drivers-issues-on-windows-solutions-for-win10win8win7-users/"><u>How to Overcome ASUS PCE-AC56 Drivers Issues on Windows: Solutions for WIN10/WIN8/WIN7 Users</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/simplified-approach-to-embedding-multiple-video-playlists-from-youtube/"><u>Simplified Approach to Embedding Multiple Video Playlists From YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/into-successful-online-broadcasting-top-youtube-webcam-choices-for-2024/"><u>Step Into Successful Online Broadcasting Top YouTube Webcam Choices for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transforming-dull-to-dynamic-top-5-ai-writing-catalysts/"><u>Transforming Dull to Dynamic: Top 5 AI Writing Catalysts</u></a></li>
 </ul></div>
 

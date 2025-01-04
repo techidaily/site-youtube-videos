@@ -1,7 +1,7 @@
 ---
 title: "The Secrets of Captivating Audiences in Your Videos"
-date: 2024-12-24T16:06:26.028Z
-updated: 2024-12-25T16:38:29.375Z
+date: 2024-12-28T20:10:38.316Z
+updated: 2025-01-03T19:02:12.764Z
 tags:
   - ai video
   - ai youtube
@@ -30,10 +30,6 @@ For most people, vlogging is not something that comes naturally. Like any skill,
 
 When we watch the most popular YouTubers, the traits that make them successful are often invisible, because we are so consumed by their vlog. In this article, I’ll highlight 8 tips from the most accomplished vloggers on the Internet, so that you can vlog confidently and make the best YouTube videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -43,6 +39,10 @@ Vlogging is about honesty, telling a story that is truthful and showing your per
 There will be an urge for you to mimic other vloggers, talking and acting the way they do, but savvy YouTube viewers will be able to see your faux personality pretty quickly.
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
 
@@ -54,10 +54,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -67,7 +63,7 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -79,7 +75,7 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
@@ -93,6 +89,10 @@ The great thing about vlogging is that you will get a lot of practice framing sh
 Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UCjwmbv6NE4mOh8Z8VhPUx1Q), where she gives a tour of her bedroom.
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
 
@@ -138,11 +138,11 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -159,24 +159,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-the-complete-checklist-for-internet-broadcast-preservation/"><u>[New] In 2024, The Complete Checklist for Internet Broadcast Preservation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-discover-the-power-of-youtube-editing-a-compre-written-in-code-the-intricacies-of-javascript-functions/"><u>2024 Approved Discover the Power of YouTube Editing A Compre Written in Code The Intricacies of JavaScript Functions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-editors-compendium-top-devices-transforming-media-projects/"><u>2024 Approved Editor's Compendium Top Devices Transforming Media Projects</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-the-premier-pro-essentials-accessible-for-all-editors/"><u>2024 Approved The Premier Pro Essentials - Accessible for All Editors</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-toolwiz-visualize-a-comprehensive-2023-evaluation/"><u>2024 Approved Toolwiz Visualize - A Comprehensive 2023 Evaluation</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-tecno-camon-20-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Tecno Camon 20 Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/action-packed-shoots-creating-dynamic-video-stories-on-youtube/"><u>Action-Packed Shoots Creating Dynamic Video Stories on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-your-channels-free-tips-for-youtube-video-popularity-for-2024/"><u>Boosting Your Channels Free Tips for YouTube Video Popularity for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/breaking-down-tseries-income-strategy-on-youtube-platform-for-2024/"><u>Breaking Down TSeries' Income Strategy on YouTube Platform for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dive-into-filmoras-certified-creative-program-for-2024/"><u>Dive Into Filmora’s Certified Creative Program for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/downloading-standardized-youtube-images-with-ease-and-precision/"><u>Downloading Standardized Youtube Images with Ease & Precision</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/enhancing-typing-experience-the-win-enter-key-fix/"><u>Enhancing Typing Experience: The Win Enter Key Fix</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-google-pixel-8-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Google Pixel 8 Phone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-oppo-f25-pro-5g-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Oppo F25 Pro 5G Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-a-bundle-of-nine-premium-holiday-treasures-watch-for-free-on-youtube/"><u>In 2024, A Bundle of Nine Premium Holiday Treasures Watch for Free on YouTube</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-lava-yuva-3-pro-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Lava Yuva 3 Pro PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-make-your-videos-pop-12-top-online-animation-creators-for-2024/"><u>New Make Your Videos Pop 12 Top Online Animation Creators for 2024</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/top-5-methods-for-boosting-image-clarity/"><u>Top 5 Methods for Boosting Image Clarity</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unveiling-the-perfect-thumbnail-formula-for-youtube-success/"><u>Unveiling The Perfect Thumbnail Formula for YouTube Success</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-efficient-strategies-for-viewing-youtube-votes-and-reactions/"><u>[New] Efficient Strategies for Viewing YouTube Votes and Reactions</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-trendsetting-sky-docks-for-android-users/"><u>[New] In 2024, Trendsetting Sky Docks for Android Users</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-broadcast-your-curated-playlist-with-ease/"><u>[Updated] Broadcast Your Curated Playlist with Ease</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-investigating-the-top-10-cost-effective-video-collaboration-tools-in-corporateedu-settings/"><u>[Updated] Investigating the Top 10 Cost-Effective Video Collaboration Tools in Corporate/Edu Settings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-constructing-youtube-playlists-made-simple/"><u>2024 Approved Constructing YouTube Playlists Made Simple</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-creative-freedom-on-a-budget-essential-green-screen-effects-from-top-4-tutorial-sources/"><u>2024 Approved Creative Freedom on a Budget Essential Green Screen Effects From Top 4 Tutorial Sources</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-ensuring-thumbnails-show-shorts-video-troubleshooting/"><u>2024 Approved Ensuring Thumbnails Show Shorts Video Troubleshooting</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dissecting-top-viewed-video-dynamics-on-youtube/"><u>Dissecting Top-Viewed Video Dynamics on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevated-engagement-awards-on-video-realms-for-2024/"><u>Elevated Engagement Awards on Video Realms for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-visibility-and-discoverability-via-targeted-tags/"><u>Enhancing Visibility and Discoverability via Targeted Tags</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/expertly-selected-best-9-video-conference-apps-for-cross-platform-use/"><u>Expertly Selected Best 9 Video Conference Apps for Cross-Platform Use</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-11-easy-to-produce-vlog-projects-at-home/"><u>In 2024, 11 Easy-to-Produce Vlog Projects at Home</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/principles-of-crafting-compelling-youtube-introduction-vids/"><u>Principles of Crafting Compelling YouTube Introduction Vids</u></a></li>
+<li><a href="https://windows11.techidaily.com/secrets-resolving-uncontrolled-mouse-jitter-in-win11/"><u>Secrets: Resolving Uncontrolled Mouse Jitter in Win11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-oneplus-ace-2v-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On OnePlus Ace 2V? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
 

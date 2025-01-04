@@ -1,7 +1,7 @@
 ---
 title: "[New] 20 Essentials Every New Creator Should Own"
-date: 2024-12-24T16:17:19.600Z
-updated: 2024-12-25T16:37:17.922Z
+date: 2024-12-30T23:33:47.890Z
+updated: 2025-01-03T23:07:07.275Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Microphone and Audio
@@ -65,7 +65,7 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lights for YouTube
@@ -91,7 +91,7 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Smartphone Camera Gear
@@ -99,7 +99,7 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -111,7 +111,7 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Equipment with Easy-to-Use Video Editor
@@ -135,18 +135,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-continuous-streams-perfect-loops-of-youtube-videos-for-tvs/"><u>[New] Continuous Streams Perfect Loops of YouTube Videos for TVs</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-the-goofy-adventure-a-critical-appraisal-videotape-edition/"><u>[Updated] In 2024, 'The Goofy Adventure' - A Critical Appraisal Videotape Edition</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-magix-composition-wizard-an-audio-editing-experience/"><u>[Updated] Magix Composition Wizard An Audio Editing Experience</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/11-best-free-youtube-name-generators-you-should-try/"><u>11 Best Free YouTube Name Generators You Should Try</u></a></li>
-<li><a href="https://windows11.techidaily.com/avoiding-the-endless-void-fixing-xbox-app-errors-in-win11/"><u>Avoiding the Endless Void: Fixing Xbox App Errors in Win11</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhance-your-projects-with-free-green-screens-from-these-online-hubs-for-2024/"><u>Enhance Your Projects with Free Green Screens From These Online Hubs for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/expert-tips-repairing-the-connection-between-your-pc-and-disconnected-bluetooth-input-device/"><u>Expert Tips: Repairing the Connection Between Your PC and Disconnected Bluetooth Input Device</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/how-to-record-vr-gameplay/"><u>How to Record VR Gameplay</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-demystifying-the-math-of-youtube-ratio-perfection/"><u>In 2024, Demystifying the Math of YouTube Ratio Perfection</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Nokia 150 (2023)? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-infinix-note-30-vip-racing-edition-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Infinix Note 30 VIP Racing Edition FRP Bypass</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-tv-broadcasts-repeating-youtube-videos-effortlessly/"><u>Mastering TV Broadcasts Repeating YouTube Videos Effortlessly</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/solution-zoning-laws-ensure-that-the-divided-lots-are-used-appropriately-according-to-community-needs-and-environmental-considerations-maintaining-orderly-d11/"><u>Solution: Zoning Laws Ensure that the Divided Lots Are Used Appropriately According to Community Needs and Environmental Considerations, Maintaining Orderly Development Patterns.</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-chortle-chamber-ideas-for-7-amusing-online-sessions/"><u>[New] Chortle Chamber Ideas for 7 Amusing Online Sessions</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-srt-extension-on-both-macwindows-platforms/"><u>[New] Mastering SRT Extension on Both Mac/Windows Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-digital-detox-how-to-turn-off-youtube-on-computers-and-phones/"><u>[Updated] Digital Detox How to Turn Off Youtube on Computers and Phones</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-effortless-steps-to-obtain-free-audio-for-videos/"><u>[Updated] Effortless Steps to Obtain Free Audio for Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-youtube-channel-perfecting-video-scriptwriting-skills/"><u>2024 Approved Elevate Your YouTube Channel Perfecting Video Scriptwriting Skills</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-guide-to-delivering-engaging-ppt-in-google-meet-mobiledesktop/"><u>2024 Approved Guide to Delivering Engaging PPT in Google Meet (Mobile/Desktop)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/bluestacks-stability-improvement-tips-5-easy-steps-to-prevent-app-malfunctions/"><u>BlueStacks Stability Improvement Tips: 5 Easy Steps to Prevent App Malfunctions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dismantle-that-dominating-green-distortion-in-mac-based-videos-for-2024/"><u>Dismantle That Dominating Green Distortion in Mac-Based Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-disassembly-method-for-facebook-communities/"><u>Efficient Disassembly Method for Facebook Communities</u></a></li>
+<li><a href="https://media-tips.techidaily.com/expert-music-mixing-professionals-available-remotely/"><u>Expert Music Mixing Professionals Available Remotely</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/imaginedge-coder/"><u>ImaginEdge Coder</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-unlock-your-creativity-top-10-animation-tools-for-beginners-and-experts/"><u>New In 2024, Unlock Your Creativity Top 10 Animation Tools for Beginners and Experts</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-wininetdll-issues-a-step-by-step-fix-tutorial/"><u>Troubleshooting Wininet.dll Issues - A Step-by-Step Fix Tutorial</u></a></li>
 </ul></div>
 

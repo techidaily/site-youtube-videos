@@ -1,7 +1,7 @@
 ---
 title: "Top 8 Youtuber Blunders to Avoid and Why They're Common"
-date: 2024-12-23T16:41:20.118Z
-updated: 2024-12-25T16:17:54.933Z
+date: 2024-12-30T00:55:15.372Z
+updated: 2025-01-03T18:30:54.854Z
 tags:
   - ai video
   - ai youtube
@@ -38,15 +38,15 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -57,7 +57,7 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
@@ -65,10 +65,6 @@ As an example, let's suppose you vlogged your time backpacking around Europe las
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -79,7 +75,7 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Forgetting to engage with subscribers
@@ -95,7 +91,7 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -107,6 +103,10 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -123,24 +123,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-optimize-your-social-media-presence-with-mobile-based-live-videos/"><u>[New] 2024 Approved Optimize Your Social Media Presence with Mobile-Based Live Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-dive-deep-into-duality-mastering-multi-video-watching-on-youtube/"><u>[New] Dive Deep Into Duality Mastering Multi-Video Watching on YouTube</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-building-connections-online-start-with-a-facebook-account/"><u>[New] In 2024, Building Connections Online Start with a Facebook Account</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-a-peek-into-the-heart-of-youtubes-video-operations/"><u>[Updated] A Peek Into the Heart of YouTube's Video Operations</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-echo-video-storyteller/"><u>[Updated] Echo Video Storyteller</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-sync-zoom-meeting-times-across-mobile-and-desktop-calendars/"><u>[Updated] In 2024, Sync Zoom Meeting Times Across Mobile & Desktop Calendars</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-social-media-broadcast-battle-facebook-vs-youtube-and-twitvision-for-2024/"><u>[Updated] Social Media Broadcast Battle FACEbook Vs. YOUTube & TWITVision for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-fundamentals-of-crafting-youtube-videos-from-scratch/"><u>[Updated] The Fundamentals of Crafting YouTube Videos From Scratch</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-channel-graphics-icons-banners-and-thumbnails/"><u>2024 Approved Crafting Channel Graphics Icons, Banners & Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-name-inspiration-strategies-for-success/"><u>Channel Name Inspiration Strategies for Success</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevating-your-vlogs-with-high-quality-editing-premiere-pro-style/"><u>Elevating Your Vlogs with High-Quality Editing - Premiere Pro Style</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/free-youtube-spotlight-with-two-key-approaches/"><u>Free YouTube Spotlight with Two Key Approaches</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mp3-broadcasting-made-easy-upload-tutorial-for-youtube/"><u>MP3 Broadcasting Made Easy Upload Tutorial for YouTube</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>New 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-the-ultimate-guide-to-removing-tiktok-watermarks-for-free/"><u>New In 2024, The Ultimate Guide to Removing TikTok Watermarks for Free</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/pioneer-dj-wego4-advanced-controller-with-dex-n-support-and-downloadable-maps-for-ace-mixing/"><u>Pioneer DJ WeGo4 Advanced Controller with DEX N Support & Downloadable Maps for Ace Mixing</u></a></li>
-<li><a href="https://common-error.techidaily.com/top-techniques-utilizing-system-file-checker-sfc-and-deployment-image-service-and-management-dism-for-resolving-windows-11-problems/"><u>Top Techniques: Utilizing System File Checker (SFC) and Deployment Image Service and Management (DISM) for Resolving Windows 11 Problems</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-secrets-to-compelling-youtube-live-thumbnails/"><u>Unlocking Secrets to Compelling YouTube Live Thumbnails</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/windows-movie-maker-6-download-and-install-in-minutes/"><u>Windows Movie Maker 6 Download and Install in Minutes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ow-to-make-a-youtube-reaction-video-in-2024/"><u>[New] How to Make a YouTube Reaction Video, In 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-picks-the-best-10-recorders-for-podcasting-for-2024/"><u>[New] Top Picks The Best 10 Recorders for Podcasting for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-streamline-content-sharing-a-complete-instagram-video-upload-guide-from-desktop/"><u>[Updated] 2024 Approved Streamline Content Sharing A Complete Instagram Video Upload Guide From Desktop</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-charting-success-with-youtube-income-streams/"><u>[Updated] Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-mobile-methods-for-capturing-snapchat-content-for-2024/"><u>[Updated] Mobile Methods for Capturing Snapchat Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-initial-step-in-youtube-fame-account-registration/"><u>[Updated] The Initial Step in YouTube Fame Account Registration</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-tips-for-amplifying-minecraft-performance-via-ram-increase/"><u>[Updated] Tips for Amplifying Minecraft Performance via RAM Increase</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-15-best-free-youtube-introduction-tools/"><u>2024 Approved 15 Best Free YouTube Introduction Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/behind-the-scenes-filmmaking-tips-from-youtube-experts-for-2024/"><u>Behind-the-Scenes Filmmaking Tips From YouTube Experts for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/compre-written-guide-on-incorporating-markup-features-in-youtube-for-2024/"><u>Compre Written Guide on Incorporating Markup Features in YouTube for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dj-beats-unleashed-high-fidelity-templates-downloaded-easily/"><u>DJ Beats Unleashed High-Fidelity Templates Downloaded Easily</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/dying-light-running-smoothly-again-how-to-address-and-eradicate-game-lags/"><u>Dying Light Running Smoothly Again: How to Address and Eradicate Game Lags</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-views-to-revenue-simplifying-the-process-with-a-3-step-framework-for-monitoring-youtube-income/"><u>From Views to Revenue Simplifying the Process with a 3-Step Framework for Monitoring YouTube Income</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-demystifying-youtubes-keyword-power-play/"><u>In 2024, Demystifying YouTube's Keyword Power Play</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/the-hidden-rise-of-chromebooks-and-what-it-means-for-tech-enthusiasts-zdnet-analysis/"><u>The Hidden Rise of Chromebooks and What It Means for Tech Enthusiasts | ZDNET Analysis</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-guide-to-resolving-cyberpunk-2077-latency-and-frame-dropping-problems/"><u>Ultimate Guide to Resolving Cyberpunk 2077 Latency & Frame Dropping Problems</u></a></li>
 </ul></div>
 

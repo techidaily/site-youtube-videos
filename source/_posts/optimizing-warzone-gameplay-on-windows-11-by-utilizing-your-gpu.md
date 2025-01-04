@@ -1,7 +1,7 @@
 ---
 title: Optimizing Warzone Gameplay on Windows 11 by Utilizing Your GPU
-date: 2024-12-23T16:09:21.914Z
-updated: 2024-12-25T16:28:07.054Z
+date: 2025-01-01T20:59:59.733Z
+updated: 2025-01-03T17:52:46.836Z
 tags:
   - win11
   - win10
@@ -31,10 +31,6 @@ If you’re experiencing Dota 2 FPS drops on your Windows computer, don’t worr
 8. **[Restrict applications and downloads in the background](https://tools.techidaily.com/drivereasy/download/)**
 9. **[Set the Power Plan of your PC for Best Performance](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 1: Verify the game files
 
  You should ensure that the game files are not corrupted, since corrupted game files might lead to FPS drops in Dota 2\. To fix FPS drops caused by corrupted game files, you can verify the integrity of game files in Steam. Here is how to do it:
@@ -43,20 +39,16 @@ If you’re experiencing Dota 2 FPS drops on your Windows computer, don’t worr
 ![steam dota2 properties](https://images.drivereasy.com/wp-content/uploads/2021/04/steam-dota2-properties.jpg)
 2. Go to the**LOCAL FILES** section, then click**Verify the integrity of game files** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Dota 2 verify the integrity of the game files](https://images.drivereasy.com/wp-content/uploads/2021/04/Dota-2-verify-the-integrity-of-the-game-files.jpg)
 3. It may take some time to finish verifying the game files.  
 
 ![](https://www.drivereasy.com/wp-content/uploads/2021/04/image-1.png)
 
- Launch Dota 2 after the verifying process is completed to see if this fix works. If not, try the next fix, below.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Launch Dota 2 after the verifying process is completed to see if this fix works. If not, try the next fix, below.
 
 ## Fix 2: Update your drivers
 
@@ -85,11 +77,11 @@ There are mainly two methods for you to update the graphics driver:
 ![](https://www.drivereasy.com/wp-content/uploads/2021/05/NVIDIA-GeForce-RTX-3090-Ti.jpg)
 4. Restart your computer for the change to take effect.
 
-**The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
 ## Fix 3: Install the latest game patch
 
@@ -98,6 +90,10 @@ There are mainly two methods for you to update the graphics driver:
  If a patch is available, it will be detected by Steam, and the latest game patch will be automatically downloaded and installed when you launch the game.
 
  Run Dota 2 again to see whether the FPS is back to normal. If it didn’t work, or there was no new game patch available, move on to the next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 4: Turn off the Steam Overlay
 
@@ -109,11 +105,11 @@ There are mainly two methods for you to update the graphics driver:
 
 ![Disable steam overlay in Dota 2](https://images.drivereasy.com/wp-content/uploads/2021/04/Disable-steam-overlay-in-Dota-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Launch Dota 2 to see if the game runs smoothly. If the issue persists, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 5: Modify Steam launch options for Dota 2
 
@@ -123,6 +119,10 @@ There are mainly two methods for you to update the graphics driver:
 2. In the **GENERAL** section, enter the command into the textbox under **SET LAUNCH OPTIONS** .  
 `**-map dota -high -dx11 +fps_max #**`  
 ![modify dota 2 steam launch options](https://images.drivereasy.com/wp-content/uploads/2021/04/modify-dota-2-steam-launch-options1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Explanation** :
 
@@ -154,10 +154,6 @@ There are mainly two methods for you to update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/run-dialog-control-panel-1.jpg)
 2. View the Control Panel by **Large icons** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-category.jpg)
 3. Select **NVIDIA Control Panel**  to open it.  
 
@@ -166,6 +162,10 @@ There are mainly two methods for you to update the graphics driver:
 
 ![Dota 2 modify Nvidia control panel](https://images.drivereasy.com/wp-content/uploads/2021/04/Dota-2-modify-Nvidia-control-panel.jpg)
 5. In the**Specify the settings for this program** : part, modify the following settings:  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **CUDA – GPUs** : set it to_your dedicated GPU_  
 **Power management mode** : set it to_Prefer maximum performance_  
@@ -190,10 +190,6 @@ There are mainly two methods for you to update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/run-dialog-control-panel-2.jpg)
 2. View the Control Panel by **Large icons** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-category.jpg)
 3. Select **Intel Graphics Settings**  to open it.  
 
@@ -208,6 +204,10 @@ There are mainly two methods for you to update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-graphics-3D-settings-3.png)
 7. Click **Apply** to save the settings.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-graphics-3D-settings-4.jpg)
 
@@ -225,15 +225,7 @@ To modify Windows OS graphics settings, follow the steps below:
 ![dota 2 graphics settings Windows 10](https://images.drivereasy.com/wp-content/uploads/2021/04/dota-2-graphics-settings-Windows-10.jpg)
 4. Once added, click the Options button under dota2.exe, then select**High performance** and click**Save** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![dota 2 graphics settings Windows 10 high performance](https://images.drivereasy.com/wp-content/uploads/2021/04/dota-2-graphics-settings-Windows-10-high-performance.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### On Windows 11
 
@@ -253,7 +245,7 @@ To modify Windows OS graphics settings, follow the steps below:
 ![](https://www.drivereasy.com/wp-content/uploads/2021/04/Modify-in-game-settings-dota-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Resolution
@@ -314,7 +306,15 @@ To set Dota 2 to High priority:
 2. Select any other applications and programs that take up a large amount of **CPU** , **memory** and **network**  and then click **End task**  to close it.  
 ![End task](https://images.drivereasy.com/wp-content/uploads/2019/07/Task-Manager.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Run Dota 2 again to see if you can play the game smoothly. if not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 9: Set the Power Plan of your PC for Best Performance
 
@@ -355,20 +355,22 @@ Launch Dota 2 to see if you resolve the FPS drops issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/hannel-boosting-mastery-unveiling-the-best-5-video-marketing-strategies/"><u>[New] Channel Boosting Mastery Unveiling the Best 5 Video Marketing Strategies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-customize-video-speed-to-match-your-desired-watch-time/"><u>[New] Customize Video Speed to Match Your Desired Watch Time</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-new-age-of-youtube-branding-ideal-channel-titles-for-video-blogging-limited-to-156-characters-for-2024/"><u>[New] The New Age of YouTube Branding Ideal Channel Titles for Video Blogging (Limited to 156 Characters) for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-earning-edge-reached-for-subscribers-above-500/"><u>[Updated] Earning Edge Reached for Subscribers Above 500</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-mastering-twitch-broadcasts-recording-essentials/"><u>[Updated] In 2024, Mastering Twitch Broadcasts Recording Essentials</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-guide-top-10-free-youtube-to-mp3-tools/"><u>2024 Approved Essential Guide Top 10 Free YouTube-to-MP3 Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-tale-of-two-approaches-polite-vs-aggressive-asking/"><u>A Tale of Two Approaches Polite vs Aggressive Asking</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-of-breed-the-comprehensive-analysis-of-furbos-highest-ranking-dog-camera/"><u>Best of Breed: The Comprehensive Analysis of Furbo’s Highest Ranking Dog Camera</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/experts-choice-top-10-low-cost-sbd-applications/"><u>Expert's Choice Top 10 Low-Cost SBD Applications</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-or-malfunctioning-your-hardware-drivers-with-windows-device-manager-on-windows-11-and-10-by-drivereasy-guide/"><u>How to identify missing or malfunctioning your hardware drivers with Windows Device Manager on Windows 11 & 10</u></a></li>
-<li><a href="https://driver-download.techidaily.com/hp-officejet-pro-8600-driver-downloads-for-windows-devices-how-to/"><u>HP Officejet Pro 8600 Driver Downloads for Windows Devices - How To</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-analyzing-the-post-upload-process-in-youtubes-ecosystem/"><u>In 2024, Analyzing the Post-Upload Process in YouTube's Ecosystem</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/launch-a-cost-free-windows-gpt-simulator-with-gpt4all/"><u>Launch a Cost-Free Windows GPT Simulator with GPT4All</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-channel-disabling-pc-and-phone-guide/"><u>Navigating Channel Disabling PC & Phone Guide</u></a></li>
-<li><a href="https://network-issues.techidaily.com/1719974854754-revitalize-graphic-performance-seamlessly-update-intel-hd-graphics-3000-driver-for-w10/"><u>Revitalize Graphic Performance: Seamlessly Update Intel HD Graphics 3000 Driver for W10</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/5-best-game-recording-software-for-youtuber/"><u>[New] 15 Best Game Recording Software for YouTuber</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-the-essential-handbook-to-professional-screen-recordings/"><u>[New] 2024 Approved The Essential Handbook to Professional Screen Recordings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-success-top-online-video-channels/"><u>[New] Charting Success Top Online Video Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevated-engagement-awards-on-video-realms/"><u>[New] Elevated Engagement Awards on Video Realms</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-filmora-compared-the-ultimate-list-of-free-high-quality-templates-for-2024/"><u>[New] Filmora Compared The Ultimate List of Free, High-Quality Templates for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-adobes-toolset-perfecting-your-youtube-uploads/"><u>[New] In 2024, Adobe's Toolset Perfecting Your YouTube Uploads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-compact-video-summary-key-insights-unveiled/"><u>2024 Approved Compact Video Summary Key Insights Unveiled</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/bridge-the-gap-how-to-multistream-for-a-wider-diverse-audience/"><u>Bridge the Gap How to Multistream for a Wider, Diverse Audience</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/effortless-link-to-your-printer/"><u>Effortless Link to Your Printer</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-or-malfunctioning-your-drivers-with-windows-device-manager-on-windows-11107-by-drivereasy-guide/"><u>How to identify missing or malfunctioning your drivers with Windows Device Manager on Windows 11/10/7</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-a-20-second-symphony-understanding-musics-compact-formats/"><u>In 2024, A 20-Second Symphony Understanding Music's Compact Formats</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-lava-blaze-pro-5g-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Lava Blaze Pro 5G</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/insight-into-tseries-earnings-and-profitability-through-youtube-channels/"><u>Insight Into TSeries' Earnings and Profitability Through YouTube Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/positive-persuasion-the-secret-to-attracting-followers/"><u>Positive Persuasion The Secret to Attracting Followers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/tutorial-configuring-ipad-settings-to-hide-youtube-videos/"><u>Tutorial: Configuring iPad Settings to Hide YouTube Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/video-subtitle-fabricator/"><u>Video Subtitle Fabricator</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/zdnet-reviews-cost-effective-surface-pro-n-model-unveiled-by-microsoft-expert-affordable-tech-insights/"><u>ZDNet Reviews: Cost-Effective Surface Pro N Model Unveiled by Microsoft Expert | Affordable Tech Insights</u></a></li>
 </ul></div>
 

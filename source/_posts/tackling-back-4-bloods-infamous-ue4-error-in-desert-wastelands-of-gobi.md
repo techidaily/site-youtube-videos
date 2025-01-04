@@ -1,7 +1,7 @@
 ---
 title: Tackling Back 4 Blood's Infamous UE4 Error in Desert Wastelands of Gobi
-date: 2024-12-21T16:11:44.331Z
-updated: 2024-12-25T16:18:08.976Z
+date: 2025-01-02T23:48:09.955Z
+updated: 2025-01-03T18:26:02.299Z
 tags:
   - win11
   - win10
@@ -31,6 +31,10 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 6. **[Lower your graphics settings](https://tools.techidaily.com/drivereasy/download/)**
 7. **[Run the game in Windowed mode](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 1 – Ran the game as administrator
 
  Your PC may not give**Elite Dangerous or the game launcher** the necessary permissions they need to work correctly. You might run into game issues like game crashing in this case.
@@ -47,17 +51,9 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/02/2020-02-14_17-15-17.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **3)** Right-click **Elite Dangerous**  and select **Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-09_10-38-23.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **4)** Click the **LOCAL FILES** tab, then click **VERIFY INTEGRITY OF GAME FILES** .
 
@@ -65,9 +61,17 @@ This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-09_10-38-34.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **5)**  Relaunch your game to test the issue.
 
  Still failing? Try the next solution to update your graphics driver to the most recent version.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 3 – Update your graphics driver
 
@@ -91,7 +95,7 @@ This could take several minutes. Wait for the process to be complete.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-58-08.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
@@ -119,10 +123,6 @@ This could take several minutes. Wait for the process to be complete.
 
 Your game still won’t work correctly? Read on and try Fix 5.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 6 – Lower your graphics settings
 
  If you’re playing Elite Dangerous on higher graphics settings than your PC can handle, you may run into crashing issues. To see if that’s the core issue, try lowering your graphics settings.
@@ -136,7 +136,7 @@ Your game still won’t work correctly? Read on and try Fix 5.
 If the crashing still happens, continue with the next solution below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 7 – Run the game in Windowed mode
@@ -147,13 +147,13 @@ If the crashing still happens, continue with the next solution below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-17_17-03-22.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2)** Copy **%localappdata%Frontier DevelopmentsElite DangerousOptionsGraphics** and paste it into the text box, then press**Enter** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-17_17-10-56.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **3)** Double-click**DisplaySettings.xml** to open the file.
 
@@ -182,17 +182,15 @@ If the crashing still happens, continue with the next solution below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-innovation-in-action-top-video-editing-strategies/"><u>[New] Innovation in Action Top Video Editing Strategies</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-most-effective-ways-to-log-youtube-live-events/"><u>[Updated] 2024 Approved Most Effective Ways to Log YouTube Live Events</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-elevate-your-streaming-experience-six-insightful-quizzes-for-fandom-enthusiasts/"><u>[Updated] Elevate Your Streaming Experience Six Insightful Quizzes for Fandom Enthusiasts</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-how-to-improve-video-quality-in-zoom-meetings/"><u>[Updated] In 2024, How to Improve Video Quality in Zoom Meetings?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-5-winter-youtube-background-ideas-to-warm-up-your-videos/"><u>2024 Approved 5 Winter YouTube Background Ideas to Warm Up Your Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-direct-upload-techniques-for-iphone-and-ipad-users-to-youtube/"><u>2024 Approved Direct Upload Techniques for iPhone and iPad Users to YouTube</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/elevate-creations-get-free-high-quality-templates-today-in-2024/"><u>Elevate Creations - Get FREE High-Quality Templates Today, In 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-should-past-facebook-actions-follow-you-today-investigate/"><u>In 2024, Should Past Facebook Actions Follow You Today? Investigate</u></a></li>
-<li><a href="https://techtrends.techidaily.com/is-microsoft-word-free-yes-it-can-be/"><u>Is Microsoft Word Free? Yes, It Can Be</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-10-mas-potentes-memorias-para-videojuegos-de-2024-recomendaciones-por-movavi/"><u>Top 10 Más Potentes Memorias Para Videojuegos De 2024 - Recomendaciones Por Movavi</u></a></li>
-<li><a href="https://techidaily.com/turn-off-screen-lock-nokia-c300-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Nokia C300</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/zoom-in-or-out-tailoring-your-youtube-viewing-pace/"><u>Zoom in or Out? Tailoring Your YouTube Viewing Pace</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-capture-every-angle-how-to-create-dynamic-viewpoint-driven-reaction-vids-for-youtube-success/"><u>[New] Capture Every Angle – How to Create Dynamic, Viewpoint-Driven Reaction Vids for YouTube Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-leading-the-video-conversion-game-with-ipv-strategies/"><u>[Updated] Leading the Video Conversion Game with IPV Strategies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-troubleshooting-tips-for-a-stable-windows-11-photo-experience/"><u>[Updated] Troubleshooting Tips for a Stable Windows 11 Photo Experience</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/crafting-advanced-ai-queries-navigating-anthropics-claude-3-innovations-in-the-prompt-store/"><u>Crafting Advanced AI Queries: Navigating Anthropic’s Claude 3 Innovations in the Prompt Store</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-youtube-entrance-videos-with-the-top-tools-for-2024/"><u>Crafting YouTube Entrance Videos with the Top Tools for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/does-immediate-subscribing-affect-content-recommendations-for-2024/"><u>Does Immediate Subscribing Affect Content Recommendations for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-viewership-maintaining-youtubes-creative-commons-for-2024/"><u>Enhancing Viewership Maintaining YouTube's Creative Commons for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/full-tutorial-to-bypass-your-nokia-c12-pro-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Nokia C12 Pro Face Lock?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-streamline-your-viewing-with-these-9-playlist-extractors/"><u>In 2024, Streamline Your Viewing with These 9 Playlist Extractors</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-compatibility-issues-in-windows-11/"><u>Mastering Compatibility Issues in Windows 11</u></a></li>
 </ul></div>
 

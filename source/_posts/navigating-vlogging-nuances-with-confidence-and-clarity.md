@@ -1,7 +1,7 @@
 ---
 title: "Navigating Vlogging Nuances with Confidence and Clarity"
-date: 2024-12-18T16:15:59.476Z
-updated: 2024-12-25T16:30:23.275Z
+date: 2025-01-01T17:24:47.430Z
+updated: 2025-01-03T21:52:00.164Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -59,7 +63,7 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -69,6 +73,10 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -82,10 +90,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -95,10 +99,6 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -111,7 +111,7 @@ Consider your audience: they are coming home from school or work, where there we
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
@@ -139,7 +139,7 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -159,24 +159,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-discovering-ideal-hashtags-for-your-youtube-videos/"><u>[New] Discovering Ideal Hashtags for Your YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-your-fitness-routine-top-10-yoga-streams-unveiled/"><u>[New] Elevate Your Fitness Routine - Top 10 Yoga Streams Unveiled</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-13-ways-to-fine-tune-colors-in-photoshop-effortlessly/"><u>[New] In 2024, 13 Ways to Fine-Tune Colors in Photoshop Effortlessly</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-enhancing-youtube-visibility-with-tubebuddy/"><u>[Updated] Enhancing YouTube Visibility with TubeBuddy</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-customize-your-videos-appeal-youtube-thumbnail-tips-and-tricks/"><u>2024 Approved Customize Your Video's Appeal YouTube Thumbnail Tips & Tricks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-decoding-youtube-cpm-for-content-creators-success/"><u>2024 Approved Decoding YouTube CPM for Content Creators' Success</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-resurrecting-windows-photo-viewer-via-windows-10-simple-fixes/"><u>2024 Approved Resurrecting Windows Photo Viewer via Windows 10 - Simple Fixes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-an-impactful-online-presence-with-perfect-yt-dimensions/"><u>Crafting an Impactful Online Presence with Perfect YT Dimensions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discover-times-tales-top-10-historical-channels-to-study-with/"><u>Discover Time's Tales Top 10 Historical Channels to Study With</u></a></li>
-<li><a href="https://win-superb.techidaily.com/how-can-i-fix-a-problem-with-my-sound-card-expert-advice-from-yl-computings-tech-gurus/"><u>How Can I Fix a Problem with My Sound Card? Expert Advice From YL Computing's Tech Gurus</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Vivo Y78t? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/introduction-to-langchain-your-first-guide/"><u>Introduction to LangChain: Your First Guide</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/mastering-podcast-name-selection-step-by-step-guide-plus-50plus-top-ideas-list/"><u>Mastering Podcast Name Selection Step-by-Step Guide + 50+ Top Ideas List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigate-through-creating-stellar-educational-video-content-for-online-platforms/"><u>Navigate Through Creating Stellar Educational Video Content for Online Platforms</u></a></li>
-<li><a href="https://program-issues.techidaily.com/overcoming-nba-2k24s-e-66ac-code-malfunction-with-expert-strategies-updated/"><u>Overcoming NBA 2K24's E-66ac Code Malfunction with Expert Strategies - Updated</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/peering-into-mr-beasts-economic-landscape/"><u>Peering Into Mr. Beast's Economic Landscape</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolved-overcoming-steam-account-login-difficulties/"><u>Resolved! Overcoming Steam Account Login Difficulties</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-samsung-galaxy-a15-4g-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Samsung Galaxy A15 4G Step-by-Step Solutions | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/top-rated-zero-price-after-effects-samples/"><u>Top-Rated, Zero-Price After Effects Samples</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-10-tips-for-shooting-profesional-youtube-videos-for-2024/"><u>[New] 10 Tips For Shooting Profesional YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-efficient-techniques-for-modifying-playback-rate-of-tracks-for-2024/"><u>[New] Efficient Techniques for Modifying Playback Rate of Tracks for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-ensuring-thumbnails-show-shorts-video-troubleshooting/"><u>[New] Ensuring Thumbnails Show Shorts Video Troubleshooting</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-skyrocket-your-game-with-these-7-14-stardew-mods/"><u>[Updated] 2024 Approved Skyrocket Your Game with These #7-14 Stardew Mods</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-essential-knowledge-for-recording-movies-anywhere-for-2024/"><u>[Updated] Essential Knowledge for Recording Movies Anywhere for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-hustle-smart-listen-hard-top-tasks-for-podcast-enthusiasts/"><u>[Updated] Hustle Smart, Listen Hard Top Tasks for Podcast Enthusiasts</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ace-your-tech-upgrade-with-primes-finest-exclusive-laptop-bargains-in-october-2er/"><u>Ace Your Tech Upgrade with Prime's Finest - Exclusive Laptop Bargains in October 2Er</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/clip-description-creator-for-2024/"><u>Clip Description Creator for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/convert-with-confidence-best-apps-to-turn-spotify-into-youtube-channels/"><u>Convert with Confidence Best Apps to Turn Spotify Into YouTube Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhance-your-media-with-top-free-android-editing-tools-for-2024/"><u>Enhance Your Media with Top Free Android Editing Tools for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/enhanced-stability-fixes-in-fnaf-pc-gameplay-experience-say-goodbye-to-interruptions/"><u>Enhanced Stability Fixes in FNaF PC Gameplay Experience: Say Goodbye to Interruptions!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explorar-o-portugues-todas-as-formas-de-saudar/"><u>Explorar O Português: Todas As Formas De Saudar</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Motorola Edge 40 Neo? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-best-mobile-film-and-picture-capture-tools-for-iphones-and-androids/"><u>In 2024, Best Mobile Film & Picture Capture Tools for iPhones & Androids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/monetizing-mastery-a-triple-step-approach-to-understanding-youtube-revenue/"><u>Monetizing Mastery A Triple Step Approach to Understanding YouTube Revenue</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of YouTube Channels  Crafting Brands That Attract Viewers\""
-date: 2024-12-19T16:26:31.874Z
-updated: 2024-12-25T16:34:46.612Z
+date: 2024-12-30T00:41:57.378Z
+updated: 2025-01-04T00:06:03.002Z
 tags:
   - ai video
   - ai youtube
@@ -40,15 +40,15 @@ _Michelle Phan’s YouTube brand is calm, whimsical, and aspirational._
 
 They have different branding because they want to reflect different feelings for different audiences.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bad Branding Causes Mistrust
 
 When a branding element does not align with the message or the tone does not match with the material, then the audience is not going to trust what you offer. Without trust, you won’t be able to get the advocacy that is essential for a YouTube channel to grow.
 
 Imagine Michelle Phan using the aggressive colors of Epic Meal Time or vice versa. Pretty weird, huh?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What is YouTube Branding?
 
@@ -83,10 +83,6 @@ Here is a quick exercise to find your channel’s purpose:
 Draw a 3 circle Venn diagram.
 
 ![Branding YouTube Channel](https://images.wondershare.com/filmora/article-images/branding-youtube-channel.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In circle 1, write down everything you consider yourself an expert in.
 
@@ -136,10 +132,6 @@ Demand = Beauty School
 
 PURPOSE: Give people more confidence in beauty products.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Is Your Channel Different From the Others?
 
 Now that you have your purpose, it’s time to separate you from others with similar purposes. YouTube is a crowded space for content creators. If your channel is mimicking another more successful channel, you will be in the shadows.
@@ -165,7 +157,7 @@ The power of good branding is that your viewers will be able to spot your brand 
 ![Create Video Thumbnails](https://images.wondershare.com/filmora/article-images/create-video-thumbnails.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Epic Meal Time thumbnails standing out amongst other loud thumbnails._
@@ -212,6 +204,10 @@ Look at PewDiePie’s branding. You can argue that it is inconsistent and the de
 
 ![Pew Die Pie Channel](https://images.wondershare.com/filmora/article-images/pew-die-pie-channel.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _PewDiePie’s brand highlights its upbeat and unpredictable personality._
 
  PewDiePie wants you to laugh. He is not branding his expertise like Peter McKinnon is, he’s branding his personality.
@@ -223,7 +219,7 @@ The humor in PewDiePie’s brand is consistent, even though his thumbnails don�
 ![Philip DeFranco](https://images.wondershare.com/filmora/article-images/philip-defranco.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Philip DeFranco supplies commentary on current events with a satirical flair. Like a news broadcast, his branding and video format are consistent, while the daily news is different._
@@ -237,7 +233,7 @@ Let’s be honest, YouTube content can all look the same, especially if you are 
  ![Improvement Pill](https://images.wondershare.com/filmora/article-images/improvement-pill.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Improvement Pill is a YouTube channel focused on inspiring and motivating its viewer to live a better life._
@@ -249,6 +245,10 @@ Improvement Pill is not the only channel that uses whiteboard animation to illus
 When a viewer lands on their video, the watermark gives the viewer another way to get more familiar with the channel, and if they are to scroll over the watermark a subscription button pops up.
 
 Want to set up your subscription watermark? Here is a quick tutorial:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  
 
@@ -285,14 +285,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-compre-points-for-a-smooth-and-compliant-4k-youtube-file-transfer/"><u>[New] Compre Points for a Smooth and Compliant 4K Youtube File Transfer</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-in-depth-training-on-googles-advanced-speech-to-text-feature/"><u>[New] In 2024, In-Depth Training on Google's Advanced Speech to Text Feature</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-can-a-brief-subscribe-boost-your-content-viewing/"><u>2024 Approved Can a Brief Subscribe Boost Your Content Viewing?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/freshly-released-realtek-bluetooth-driver-software-for-enhanced-connectivity-on-windows-11-and-10-download-instantly/"><u>Freshly Released Realtek Bluetooth Driver Software for Enhanced Connectivity on Windows 11 & 10: Download Instantly</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-earn-big-on-youtube-shorts-tips-for-profitable-content-creation/"><u>In 2024, Earn Big on YouTube Shorts Tips for Profitable Content Creation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-how-to-edit-youtube-videos-in-adobe-premiere/"><u>In 2024, How to Edit YouTube Videos in Adobe Premiere</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximizing-wifi-coverage-an-expert-review-on-the-tp-link-re505x-expander/"><u>Maximizing WiFi Coverage: An Expert Review on the TP-Link RE505X Expander</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-how-to-translate-video-from-japanese-to-english-online-for-2024/"><u>New How To Translate Video From Japanese to English Online for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/smart-picks-top-free-online-recorder-software/"><u>Smart Picks Top Free Online Recorder Software</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-10-youtube-storytelling-techniques-that-work/"><u>[New] 10 YouTube Storytelling Techniques That Work</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-deciphering-how-to-spot-your-video-enthusiasts/"><u>[New] Deciphering How to Spot Your Video Enthusiasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-essential-links-where-to-get-official-skype-ringtone-files/"><u>[New] Essential Links Where to Get Official Skype Ringtone Files</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-event-ensemble-curating-best-dj-templates/"><u>[New] Event Ensemble Curating Best DJ Templates</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-tailor-your-own-memetic-masterpiece-now/"><u>[Updated] 2024 Approved Tailor Your Own Memetic Masterpiece Now</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-noshadowedit-advanced-background-shadow-elimination/"><u>[Updated] NoShadowEdit Advanced Background Shadow Elimination</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1726223253789-aac-movavi/"><u>AAC形式のオーディオ・ファイルを自由に変換する - 最新Movaviツール</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-amazon-lunas-game-streaming-capabilities-a-pleasant-surprise/"><u>Comprehensive Evaluation of Amazon Luna's Game Streaming Capabilities - A Pleasant Surprise</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/gpt-4-at-your-fingertips-but-plus-continues-to-offer-unmatched-services/"><u>GPT-4 at Your Fingertips; But Plus Continues To Offer Unmatched Services.</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-masterclass-15-color-grading-look-ups-for-camcorder/"><u>In 2024, Masterclass 15 Color Grading Look-Ups for Camcorder</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/live-caption-coder/"><u>Live Caption Coder</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-your-path-as-a-first-time-youtuber-sidestep-these-8-common-mistakes/"><u>Navigating Your Path as a First-Time YouTuber Sidestep These 8 Common Mistakes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-youtube-promo-landscape-an-insiders-guide/"><u>Navigating YouTube Promo Landscape An Insider's Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/powertoys-integration-into-win11-systems/"><u>PowerToys Integration Into Win11 Systems</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/premiere-pro-a-launchpad-for-youtube-videos/"><u>Premiere Pro A Launchpad for YouTube Videos</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/step-by-step-guide-converting-mkv-files-for-itunes-compatibility-and-synchronization/"><u>Step-by-Step Guide: Converting MKV Files for iTunes Compatibility & Synchronization</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Confidence  Tips for Trending on YouTube\""
-date: 2024-12-21T16:33:15.089Z
-updated: 2024-12-25T16:07:24.016Z
+date: 2025-01-01T16:14:26.091Z
+updated: 2025-01-03T16:57:59.511Z
 tags:
   - ai video
   - ai youtube
@@ -30,10 +30,6 @@ For most people, vlogging is not something that comes naturally. Like any skill,
 
 When we watch the most popular YouTubers, the traits that make them successful are often invisible, because we are so consumed by their vlog. In this article, I’ll highlight 8 tips from the most accomplished vloggers on the Internet, so that you can vlog confidently and make the best YouTube videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -43,10 +39,6 @@ Vlogging is about honesty, telling a story that is truthful and showing your per
 There will be an urge for you to mimic other vloggers, talking and acting the way they do, but savvy YouTube viewers will be able to see your faux personality pretty quickly.
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
 
@@ -58,6 +50,10 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -67,7 +63,7 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -91,7 +87,7 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -103,10 +99,6 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -142,7 +134,15 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -159,24 +159,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-visualsnap-win11-instant-desktop-capture-and-save/"><u>[New] 2024 Approved VisualSnap Win11 Instant Desktop Capture & Save</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-download-free-mcb-logo-templates/"><u>[New] Download Free MCB Logo Templates</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-accelerated-editing-seamless-laptoppc-videos-with-inshot/"><u>[Updated] Accelerated Editing Seamless Laptop/PC Videos with Inshot</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-circumnavigating-youtubes-block-list/"><u>[Updated] Circumnavigating YouTube's Block List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-discovering-the-stars-of-youtubes-best-music-videos-2023/"><u>[Updated] Discovering the Stars of YouTube's Best Music Videos, 2023</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-expert-tips-for-optimizing-your-srt-setup/"><u>[Updated] Expert Tips for Optimizing Your SRT Setup</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-brief-but-impactful-music-shorts-on-youtube-unveiled/"><u>2024 Approved Brief but Impactful Music Shorts on YouTube Unveiled</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-comprehensive-guide-the-triad-technique-for-assessing-youtube-revenue-streams/"><u>2024 Approved Comprehensive Guide The Triad Technique for Assessing YouTube Revenue Streams</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-allure-in-online-visuals-for-beauty/"><u>2024 Approved Crafting Allure in Online Visuals for Beauty</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discovering-the-best-music-playback-on-youtube-2023-for-2024/"><u>Discovering the Best Music Playback on YouTube, 2023 for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/fixing-lg-monitor-drivers-solutions-for-windows-10-7-and-81-users/"><u>Fixing LG Monitor Drivers: Solutions for Windows 10, 7 & 8.1 Users</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-accurately-assess-your-mobile-or-wi-fi-data-use-at-home/"><u>How to Accurately Assess Your Mobile or Wi-Fi Data Use at Home</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-embed-a-youtube-playlist-on-a-website/"><u>How to Embed A YouTube Playlist On a Website</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-vivo-v27e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Vivo V27e? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-nokia-c12-pro-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Nokia C12 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Google Pixel 8 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-hash-tactics-for-thriving-gaming-vids/"><u>Mastering Hash Tactics for Thriving Gaming Vids</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/pattern-locks-are-unsafe-secure-your-vivo-v27-pro-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Vivo V27 Pro Phone Now with These Tips</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-8-solutions-eliminate-the-unwanted-blue-hue-from-your-television/"><u>Top 8 Solutions: Eliminate the Unwanted Blue Hue From Your Television</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-discover-the-tricks-to-recording-and-screencasting-your-youtube-views-without-cash/"><u>2024 Approved Discover The Tricks to Recording & Screencasting Your YouTube Views without Cash</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-zte-nubia-z60-ultra-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-captureclub-bout/"><u>In 2024, CaptureClub Bout</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-directing-rhythms-integrating-sounds-into-youtube/"><u>In 2024, Directing Rhythms Integrating Sounds Into Youtube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevating-video-experience-non-youtube-hubs-explained/"><u>In 2024, Elevating Video Experience Non-Youtube Hubs Explained</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harness-ease-of-video-editing-on-windows-11/"><u>In 2024, Harness Ease of Video Editing on Windows 11</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-instagram-reels-adding-your-own-soundtrack/"><u>In 2024, Mastering Instagram Reels Adding Your Own Soundtrack</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/maximizing-youtube-revenue-understanding-adsense-payments-per-thousand-views/"><u>Maximizing Youtube Revenue Understanding AdSense Payments per Thousand Views</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unboxing-the-essence-of-dji-inspire-2/"><u>Unboxing the Essence of DJI Inspire 2</u></a></li>
 </ul></div>
 
