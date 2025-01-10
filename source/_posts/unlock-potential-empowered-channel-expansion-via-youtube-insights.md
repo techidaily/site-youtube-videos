@@ -1,7 +1,7 @@
 ---
 title: "\"Unlock Potential  Empowered Channel Expansion via YouTube Insights\""
-date: 2024-12-27T20:02:36.235Z
-updated: 2025-01-03T16:42:48.126Z
+date: 2025-01-09T16:33:39.989Z
+updated: 2025-01-10T18:10:53.999Z
 tags:
   - ai video
   - ai youtube
@@ -58,10 +58,6 @@ When you enter your YouTube Creator Studio, you will find the Analytics Tab on t
 
 ![youtube-creator-sutdio](https://images.wondershare.com/filmora/youtube-creator-sutdio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 But with all this information, it can get a little overwhelming for new YouTubers. Don’t sweat. Let’s walk through each section to identify:
 
 \- What information it is displaying
@@ -91,6 +87,10 @@ By default, the dashboard will show you the stats from the last 28 days, but you
 
 ![data-of-specific-region](https://images.wondershare.com/filmora/data-of-specific-region.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Note: You will be able to change the time frame and region for all the data within YouTube Analytics.
   
@@ -166,6 +166,10 @@ There are 3 ways to change the timeline:
 ![revenue-drop-down-menu](https://images.wondershare.com/filmora/revenue-drop-down-menu.jpg)  
   
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Calendar
 
 ![revenue-calendar](https://images.wondershare.com/filmora/revenue-calendar.jpg)  
@@ -179,10 +183,6 @@ You can also change how you view your data, whether Daily, Weekly, Monthly, etc.
 
 ![slide-bar-daily-view](https://images.wondershare.com/filmora/slide-bar-daily-view.jpg)  
   
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **Identify Your Highest Earning Videos**
 
@@ -211,6 +211,10 @@ Know more about how your data are related by comparing to see if Revenue is affe
 
 ![revenue-earning-to-other-metrics](https://images.wondershare.com/filmora/revenue-earning-to-other-metrics.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **How to Use the Revenue Dashboard**
 
@@ -253,10 +257,6 @@ You can see these details from the channel level or from an individual video lev
 ![ad-type-within-individual-video](https://images.wondershare.com/filmora/ad-type-within-individual-video.jpg)  
   
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **How to Use Ad Rates Report**
 
 Ad performance might not be something you think about at the early stages. You want to make videos, and not worry too much about ads, after all.
@@ -283,6 +283,10 @@ Put your videos side by side to compare the performance over the course of a tim
 
 ![performance-of-videos-in-the-graph](https://images.wondershare.com/filmora/performance-of-videos-in-the-graph.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **How to Use Watch Time Report**
 
@@ -341,6 +345,10 @@ However, if you notice a sudden peak in the middle of your video, you can assume
 In the example below, we see that there is a peak at the point in this video where a specific part of a tutorial is shown. Viewers were most likely rewatching to confirm they understand the information, so they can apply it themselves.
 
 ![how-to-use-audience-retention](https://images.wondershare.com/filmora/how-to-use-audience-retention.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Knowing this, for the next video you make, you can better anticipate where your viewers are going to need more time on a specific part or whether you should skip ahead to something more interesting.
 
@@ -402,16 +410,17 @@ If your video is only promoted organically your views will likely be coming from
 ![playback-locations](https://images.wondershare.com/filmora/playback-locations.jpg)  
   
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **Which External Source Are Your Videos Being Watched**
 
 By clicking into the Embedded in External Websites and Apps report, you’ll be able to see all the different websites and apps that your video is featured on. This will give you a good indication of which sites and apps are driving the most views.
 
 ![external-source](https://images.wondershare.com/filmora/external-source.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to Use Playback Locations Report**
 
 Knowing where your videos are being played back is important, especially if you are getting a lot of views from an external source.
@@ -532,10 +541,6 @@ Identify the days you got a lot of Likes or Dislikes, and ask, was there somethi
 ![date-you-got-the-most-likes-and-dislikes](https://images.wondershare.com/filmora/date-you-got-the-most-likes-and-dislikes.jpg)  
   
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **Compare Subscriber vs Non-Subscriber Likes and Dislikes**
 
 Knowing how your subscribers and non-subscribers are responding to your content will give you a good idea at how effective your video is at delighting those that know your content well, and those that are newer to your videos.
@@ -565,10 +570,6 @@ By having a report to see which videos have been added to the playlist, you can 
 ![video-in-the-most-playlists](https://images.wondershare.com/filmora/video-in-the-most-playlists.jpg)  
   
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **See If There Is a Correlation Between Videos in Playlists and Watch Time**
 
 Identify if there are any direct or indirect effects of having videos in the playlist by comparing it to important metrics such as Watch Time. If you see that there is a boost for days when more videos are added to the playlist, you can start planning more strategies to get video features along with other related content.
@@ -590,10 +591,6 @@ Select a time period and see how many comments your channel and videos got at th
 ![the-number-of-commented-people](https://images.wondershare.com/filmora/the-number-of-commented-people.jpg)  
   
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **Compare Different Videos and Time Period to See How Your Videos Are Engaging Audience**
 
 Evaluate how your videos are performing by comparing them, and identifying what makes a more engaging video for your audience.
@@ -609,6 +606,11 @@ However, there are also benefits of using an external analytics tool like [Sotre
 
 ![how-to-use-comments-report](https://images.wondershare.com/filmora/how-to-use-comments-report.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **16\. Sharing**
 
 #### **See How Many Times Your Videos Have Been Shared**
@@ -630,10 +632,6 @@ Understand how your videos are getting shared by your viewers. Do you see a spik
 
 ![the-frequecy-of-a-video-getting-shared-one](https://images.wondershare.com/filmora/the-frequecy-of-a-video-getting-shared-one.jpg)  
   
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **Compare Sharing to Views**
 
@@ -666,10 +664,6 @@ This report allows you to see which type of annotations are performing the best 
 ![compare-performance-of-different-annotations](https://images.wondershare.com/filmora/compare-performance-of-different-annotations.jpg)  
   
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **See Annotation Performance of a Specific Video**
 
 Click into a specific video to see which type of annotations are getting engagement and at what time it is happening. If you see that many annotation clicks are happening at a certain point in your video, going forward with your new videos that is where you can insert it.
@@ -689,10 +683,19 @@ Find out which videos are driving the most Card clicks and which type of Cards y
 
 ![card-teasers-get-clicked](https://images.wondershare.com/filmora/card-teasers-get-clicked.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Are viewers more interested in watching more videos or are they wanting to read a post from your blog (associated website)? This report is where you can find out by clicking into Card Type.
 
 ![card-type](https://images.wondershare.com/filmora/card-type.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Find Correlation Between On-Screen Content and Click-worthy Link**
 
@@ -747,6 +750,10 @@ By clicking into the Best for Viewer section you can see the top-performing vide
 The End Screens report is great for letting you know which of your existing content the audience is interested in seeing after they finished watching one of your videos. As you learn more about your viewers and accumulate more videos, with the help of the End Screens report, you can determine which videos to use to increase Views and Watch Time.
   
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Conclusion**
 
 Television producers pay hundreds of thousands of dollars to data companies to get the same set of analytics that YouTube offers its creators for free.
@@ -760,10 +767,6 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -780,18 +783,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-tinyflicker-log-review-and-options-to-consider/"><u>[New] In 2024, TinyFlicker Log Review & Options to Consider</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/avigating-the-network-of-youtube-multitasking-mastery-for-2024/"><u>[New] Navigating The Network Of YouTube Multitasking Mastery for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-cutting-edge-design-a-look-at-the-newest-monitor-in-town-hp-envy-27/"><u>[Updated] Cutting Edge Design - A Look at the Newest Monitor in Town, HP Envy 27</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-blueprint-of-successful-video-endorsements-for-2024/"><u>[Updated] The Blueprint of Successful Video Endorsements for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-xiaomi-redmi-note-13-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/breaking-the-mold-pushing-a-video-into-hot-water-for-2024/"><u>Breaking the Mold Pushing a Video Into Hot Water for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/flawless-drivers-rollout-for-pro-6/"><u>Flawless Drivers Rollout for Pro 6</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-fix-unspecified-error-code-0x80004005-for-smooth-operations/"><u>How to Fix 'Unspecified Error' (Code 0X80004005) for Smooth Operations</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-youtube-movie-binge-guides/"><u>In 2024, Essential YouTube Movie Binge Guides</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/pioneers-in-the-realm-of-multimedia-synergy/"><u>Pioneers in the Realm of Multimedia Synergy</u></a></li>
-<li><a href="https://program-issues.techidaily.com/tackling-pc-latency-best-practices-to-smooth-out-your-bless-unleashed-gaming-experience/"><u>Tackling PC Latency: Best Practices to Smooth Out Your Bless Unleashed Gaming Experience</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-art-of-authenticity-financial-fruits-in-filmmaking/"><u>The Art of Authenticity Financial Fruits in Filmmaking</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/visual-storytelling-in-business-marketing/"><u>Visual Storytelling in Business Marketing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-best-in-class-meme-modification-software/"><u>[New] Best in Class Meme Modification Software</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-foundations-in-digital-visual-narratives/"><u>[Updated] Foundations in Digital Visual Narratives</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagrams-creative-toolkit-applying-effects-on-existing-content/"><u>[Updated] Instagram's Creative Toolkit Applying Effects on Existing Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-5-dreamy-winter-scenes-as-youtube-backdrops/"><u>2024 Approved 5 Dreamy Winter Scenes as YouTube Backdrops</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-charting-new-heights-with-popular-youtube-content/"><u>2024 Approved Charting New Heights with Popular YouTube Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-filmmakers-dream-the-8-best-no-fee-video-editors-on-the-market-for-2024/"><u>A Filmmaker's Dream The 8 Best No-Fee Video Editors on the Market for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ace-your-earnings-game-in-youtube-shorts-for-2024/"><u>Ace Your Earnings Game in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/aesthetic-alignment-for-online-glamour-content/"><u>Aesthetic Alignment for Online Glamour Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1716465747637-binge-on-christmas-classics-enjoy-9-whole-film-flicks-no-charge/"><u>Binge on Christmas Classics Enjoy 9 Whole-Film Flicks No Charge!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-sustainable-cities-innovation-in-environmental-design/"><u>Building Sustainable Cities Innovation in Environmental Design</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/captivating-call-to-action-designing-a-dynamic-subscribe-buttons-with-filmora-for-2024/"><u>Captivating Call-to-Action Designing a Dynamic Subscribe Buttons with Filmora for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/common-problems-and-fixes-for-broken-usb-internet-connection/"><u>Common Problems and Fixes for Broken USB Internet Connection</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/decoding-the-algorithm-behind-youtube-shorts/"><u>Decoding the Algorithm Behind YouTube Shorts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-conversion-of-m4v-files-to-mp4-format-by-movavi-easy-and-secure/"><u>Free Conversion of M4V Files to MP4 Format by Movavi - Easy and Secure</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/top-free-tools-for-easy-pdf-to-epub-conversion-improve-your-digital-reading-experience/"><u>Top Free Tools for Easy PDF to ePUB Conversion – Improve Your Digital Reading Experience!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-syncing-your-fire-stick-controller-perfectly/"><u>Ultimate Guide: Syncing Your Fire Stick Controller Perfectly</u></a></li>
 </ul></div>
 

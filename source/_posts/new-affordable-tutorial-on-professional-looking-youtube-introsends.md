@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2025-01-01T00:10:17.734Z
-updated: 2025-01-04T00:23:06.559Z
+date: 2025-01-04T19:42:29.724Z
+updated: 2025-01-10T18:23:56.078Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/7c8eb4a6751ebbb720d8baa15eb6264cc6e760acb
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,22 +143,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-top-kid-approved-drone-choices-summarized/"><u>[New] 2024 Approved Top Kid-Approved Drone Choices Summarized</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-all-inclusive-review-of-dji-phantom-4-technology-for-2024/"><u>[New] All-Inclusive Review of DJI Phantom 4 Technology for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-effortless-engagement-how-to-craft-a-direct-subscribe-link/"><u>[New] Effortless Engagement How to Craft a Direct Subscribe Link</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-why-is-instagram-turning-my-video-sideways-in-2024/"><u>[Updated] Why Is Instagram Turning My Video Sideways, In 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-10-must-see-vr-videos-on-youtube-for-deep-immersion/"><u>2024 Approved 10 Must-See VR Videos on YouTube for Deep Immersion</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-vivo-y36i-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Vivo Y36i Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-infinix-hot-40-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Infinix Hot 40 Pro to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/ace-your-youtube-finances-secrets-for-profits-at-the-500-subscriber-milestone/"><u>Ace Your Youtube Finances Secrets for Profits at the 500-Subscriber Milestone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/bend-reality-with-your-own-animated-craftsmanship/"><u>Bend Reality with Your Own Animated Craftsmanship</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/boost-your-income-earn-up-to-85-commission-with-the-wonderfox-affiliate-program/"><u>Boost Your Income: Earn Up To 85% Commission With the WonderFox Affiliate Program</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-the-mysteries-of-effective-youtube-keywords/"><u>Decoding the Mysteries of Effective YouTube Keywords</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/deep-dive-android-edition-of-adobe-lightroom-review/"><u>Deep Dive Android Edition of Adobe Lightroom Review</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/get-your-lost-photos-back-top-rated-iphone-data-rescue-tool-available/"><u>Get Your Lost Photos Back: Top-Rated iPhone Data Rescue Tool Available</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-captivating-viewers-with-youtubes-visual-polishing/"><u>In 2024, Captivating Viewers with Youtube's Visual Polishing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-how-to-make-asmr-videos-all-you-need-to-know/"><u>In 2024, How to Make ASMR Videos All You Need to Know</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/protecting-memories-a-guide-to-uploading-iphone-pics-to-online-storage/"><u>Protecting Memories: A Guide to Uploading iPhone Pics to Online Storage</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/whats-youtube-creative-commons-and-how-to-use-cc-to-make-video/"><u>What's YouTube Creative Commons and How to Use CC to Make Video</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-best-free-youtube-comment-finder-you-should-try/"><u>[New] Best Free YouTube Comment Finder You Should Try</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-ultimate-guide-to-pcs-and-macs-best-recorders/"><u>[Updated] In 2024, Ultimate Guide to PC's and Mac's Best Recorders</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-glimpses-identifying-who-sees-your-pics/"><u>[Updated] Instagram Glimpses Identifying Who Sees Your Pics</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2023-compendium-of-techniques-to-archive-your-online-interactions/"><u>2023 Compendium of Techniques to Archive Your Online Interactions</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-cutting-edge-gaming-setup-unpacking-samsungs-ue590-panel/"><u>2024 Approved Cutting Edge Gaming Setup Unpacking Samsung's UE590 Panel</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-unlock-iphone-7-plus-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>3 Ways to Unlock iPhone 7 Plus without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://win-hot.techidaily.com/complete-users-manual-mastering-data-transfer-with-usmt-in-windows-11-and-beyond/"><u>Complete User's Manual: Mastering Data Transfer with USMT in Windows 11 and Beyond</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-10-tricks-for-turning-youtube-watchlists-around/"><u>In 2024, 10 Tricks for Turning YouTube Watchlists Around</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/monetize-your-youtube-shorts-essentials-possible-income/"><u>Monetize Your Youtube Shorts Essentials, Possible Income</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-sealed-snap-chronicles-an-experts-guidebook/"><u>The Sealed Snap Chronicles An Expert's Guidebook</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/uncovering-hidden-treasures-expert-tips-for-tracking-and-retrieving-missing-gmail-emails/"><u>Uncovering Hidden Treasures: Expert Tips for Tracking and Retrieving Missing Gmail Emails</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/video-earning-excellence-mastering-youtube-monetization-anywhere/"><u>Video Earning Excellence Mastering YouTube Monetization Anywhere</u></a></li>
 </ul></div>
 

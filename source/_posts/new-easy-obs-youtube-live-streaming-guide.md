@@ -1,7 +1,7 @@
 ---
 title: "[New] Easy OBS YouTube Live Streaming Guide"
-date: 2024-12-30T19:59:50.005Z
-updated: 2025-01-03T21:30:33.952Z
+date: 2025-01-07T16:44:31.283Z
+updated: 2025-01-10T19:03:02.771Z
 tags:
   - ai video
   - ai youtube
@@ -29,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/3ad4f7e8b48f19c37105255d0826afad52f6608be
 * [Part3\. Youtube Events set up](#part3)
 * [Part4\. Video tutorial](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Stream Now set up
 
 Follow these steps to live stream your impressive videos to YouTube using Stream Now tool:
@@ -41,6 +45,10 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![video manager ](https://images.wondershare.com/filmora/article-images/video-manager.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** From the drop down menu, simply select Live Streaming option to begin with.
 
 ![live streaming ](https://images.wondershare.com/filmora/article-images/live-streaming.jpg)
@@ -48,10 +56,6 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 **Step 4:** Now hot the steam now option on your screen.
 
 ![stream now ](https://images.wondershare.com/filmora/article-images/stream-now.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 5:** Change or Upload your thumbnail as per need.
 
@@ -61,13 +65,13 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![  category](https://images.wondershare.com/filmora/article-images/category.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 7:** While using stream option, never forget to click on ‘make archive unlisted when complete’ option so that you can save as well as watch your content on YouTube at later stage.
 
 ![make archive ](https://images.wondershare.com/filmora/article-images/make-archive.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 8:** You can monetize your ads as per need.
 
@@ -81,33 +85,29 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![ encoder setup](https://images.wondershare.com/filmora/article-images/encoder-setup.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 11:** Now you can set your live chat option as per your requirement.
 
 ![ chat accordingly](https://images.wondershare.com/filmora/article-images/chat-accordingly.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 12:** The analysis window will help you to know about how many viewers are connected to your video as well as the message updates will be reflected.
 
 ![watching and messages ](https://images.wondershare.com/filmora/article-images/watching-and-messages.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 13:** Stream health can be monitored directly.
 
 ![stream health ](https://images.wondershare.com/filmora/article-images/stream-health.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 14:** One can also use the social media button for live shares.
 
 ![ share via](https://images.wondershare.com/filmora/article-images/share-via.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2.Set up Your Live Streaming Encoder
 
@@ -123,21 +123,17 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 ![youtube to OBS ](https://images.wondershare.com/filmora/article-images/youtube-to-obs.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** Users can now add their sources and scenes.
 
 ![add you scenes ](https://images.wondershare.com/filmora/article-images/add-you-scenes.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5:** Once all these settings are done then you can simply hit the option for start streaming and it will bring your content to YouTube directly.
 
 ![ click start streaming](https://images.wondershare.com/filmora/article-images/click-start-streaming.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Youtube Events set up
 
@@ -147,9 +143,17 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![schedule ](https://images.wondershare.com/filmora/article-images/schedule.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** It is much easier to make settings for basic information as well as audience type. Make some desired changes to SNS platform. If you select the Quick type then it will directly select your webcam and you need not to make additional complicated settings whereas the custom type option provides easy set up options with OBS.
 
 ![set the basic ](https://images.wondershare.com/filmora/article-images/set-the-basic.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** The advance settings option works same as that of stream now features and users can adjust most of these settings as per their streaming needs.
 
@@ -158,6 +162,10 @@ Live stream is little different from Stream Now platform as it allows users to s
 **Step 4:** Users can turn monetization On or Off as per their preferences.
 
 ![ monetization](https://images.wondershare.com/filmora/article-images/monetization.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5:** As soon as you finish all above settings then simply click on the create event option.
 
@@ -171,25 +179,17 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![save changes ](https://images.wondershare.com/filmora/article-images/save-changes.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 8:** Now click on events and here you will be able to find your event. Move to live control room if you want to access complete details about this event and you can easily delete it.
 
 ![live control room ](https://images.wondershare.com/filmora/article-images/live-control-room.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 9:** Users can set privacy terms or simple delete the event that is currently in action.
 
 ![set the privacy ](https://images.wondershare.com/filmora/article-images/set-the-privacy.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Video tutorial
 
@@ -210,22 +210,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-beyondonecam-testing-are-there-better-options/"><u>[Updated] 2024 Approved BeyondOneCam Testing Are There Better Options?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-best-practices-for-instagram-video-sharing/"><u>2024 Approved Best Practices for Instagram Video Sharing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-captivating-yt-cover-art-for-maximum-traffic/"><u>2024 Approved Captivating YT Cover Art for Maximum Traffic</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-compelling-youtube-narratives-with-chapters-and-subsections/"><u>Crafting Compelling YouTube Narratives with Chapters and Subsections</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/deciphering-customization-the-art-of-iphone-rings/"><u>Deciphering Customization The Art of iPhone Rings</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/effortless-transition-from-spotify-to-youtube-find-the-best-apps/"><u>Effortless Transition From Spotify to YouTube Find the Best Apps</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-meizu-21-pro-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Meizu 21 Pro Devices</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unmarked-image-accumulation-essentials/"><u>In 2024, Unmarked Image Accumulation Essentials</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-your-youtube-income-through-understanding-cpm/"><u>Maximizing Your YouTube Income Through Understanding CPM</u></a></li>
-<li><a href="https://win-blog.techidaily.com/movavi-streamline-your-file-format-quick-and-free-m4v-to-mov-video-conversion-online-now/"><u>Movavi Streamline Your File Format: Quick and Free M4V to MOV Video Conversion Online Now!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/step-by-step-to-success-joining-youtubes-partner-program/"><u>Step-by-Step to Success Joining YouTube's Partner Program</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/straight-from-the-studio-simple-steps-to-sizzling-mac-vids-on-youtube/"><u>Straight From the Studio Simple Steps to Sizzling Mac Vids on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-guide-to-banner-and-art-design-for-your-youtube-channel/"><u>The Ultimate Guide to Banner & Art Design for Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlock-video-insights-mastering-youtube-statistics-with-social-blade/"><u>Unlock Video Insights Mastering YouTube Statistics with Social Blade</u></a></li>
-<li><a href="https://common-error.techidaily.com/windows-11-taskbar-not-hiding-solved/"><u>Windows 11 Taskbar Not Hiding [Solved]</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/your-roadmap-to-monetization-mastery-the-straightforward-strategy-for-analyzing-youtube-earnings/"><u>Your Roadmap to Monetization Mastery The Straightforward Strategy for Analyzing YouTube Earnings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-digital-domain-decisions-short-form-content/"><u>[New] Digital Domain Decisions Short-Form Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/arner-over-a-thousand-viewers-swiftly-for-2024/"><u>[New] Garner Over a Thousand Viewers Swiftly for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-boosting-virtual-engagement-how-to-incorporate-filters-in-zoom/"><u>[Updated] Boosting Virtual Engagement How to Incorporate Filters in Zoom</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-discover-8-trustworthy-online-content-promoters/"><u>[Updated] In 2024, Discover 8 Trustworthy Online Content Promoters</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/10-top-editing-apps-at-no-cost-online-for-2024/"><u>10 Top Editing Apps at No Cost Online for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-innovative-approaches-to-live-broadcasting-on-youtube-with-wirecast/"><u>2024 Approved Innovative Approaches to Live Broadcasting on Youtube with WireCast</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-vivo-t2-pro-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Vivo T2 Pro 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-visual-hook-creating-captivating-youtube-thumbnails-to-drive-traffic-for-2024/"><u>A Visual Hook Creating Captivating YouTube Thumbnails to Drive Traffic for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/beneath-the-surface-a-deeper-look-at-snapchat-emojis-for-2024/"><u>Beneath the Surface A Deeper Look at Snapchat Emojis for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/creating-accessibility-your-guide-to-an-intuitive-youtube-signup-for-2024/"><u>Creating Accessibility Your Guide to an Intuitive YouTube Signup for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effortless-subscriber-acquisition-for-enhanced-viewership-for-2024/"><u>Effortless Subscriber Acquisition for Enhanced Viewership for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-filming-flair-with-free-green-screen-insights-from-4-youtube-authorities-for-2024/"><u>Elevate Your Filming Flair with Free Green Screen Insights From 4 YouTube Authorities for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-enhance-creativity-with-6-premium-and-complimentary-video-downloaders/"><u>In 2024, Enhance Creativity With 6 Premium and Complimentary Video Downloaders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/make-music-accessible-with-a-well-designed-youtube-playlist/"><u>Make Music Accessible with a Well-Designed YouTube Playlist</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/perfecting-your-discopic-the-ultimate-guide-to-eye-catching-images-for-2024/"><u>Perfecting Your DiscoPic The Ultimate Guide to Eye-Catching Images for 2024</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/repair-and-restore-your-scanners-functionality-with-expert-tips-from-yl-software/"><u>Repair and Restore Your Scanner's Functionality with Expert Tips From YL Software</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-5-telepresence-bots-comprehensive-review-and-ranking/"><u>Top 5 Telepresence Bots : Comprehensive Review & Ranking</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/ultimate-university-sound-snatchers-for-2024/"><u>Ultimate University Sound Snatchers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtubes-economic-model-month-to-month-income/"><u>YouTube's Economic Model Month-to-Month Income?</u></a></li>
 </ul></div>
 

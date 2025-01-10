@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Demystifying Video SEO on YouTube as a Novice"
-date: 2024-12-30T17:13:34.222Z
-updated: 2025-01-03T17:03:04.477Z
+date: 2025-01-04T16:57:48.045Z
+updated: 2025-01-10T18:09:31.693Z
 tags:
   - ai video
   - ai youtube
@@ -38,10 +38,6 @@ Ready?
 
 Let’s Go!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -61,10 +57,6 @@ Uh oh… your video will be competing against celebrities like Gordon Ramsay and
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
 
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
 
@@ -92,6 +84,10 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
@@ -99,7 +95,7 @@ Some you will use to dig deeper in and other you will deem irrelevant to your vi
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ####  
@@ -202,6 +198,10 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -212,6 +212,10 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -219,10 +223,6 @@ Don’t want to pay money for a photo editing software such as Photoshop?
 You can use an online service called [Canva](https://www.canva.com/)or download [GIMP](https://www.gimp.org/), an open-source photo editor much like Photoshop, but far less powerful. These will help you get the job done as you are starting out.
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Publishing With Attention to Optimization
 
@@ -237,6 +237,10 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -262,10 +266,6 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -285,22 +285,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-a-techies-playbook-screen-record-and-share-on-snapchat/"><u>[New] A Techie's Playbook Screen Record & Share on Snapchat</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-comprehensive-guide-your-shorts-hidden-thumbnails/"><u>[New] Comprehensive Guide Your Shorts' Hidden Thumbnails</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-redesigned-look-at-s3700-sony-entertainment/"><u>[New] Redesigned Look at S3700 Sony Entertainment</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-top-10-strategies-for-youtube-to-mpeg-conversion/"><u>[New] Top 10 Strategies for YouTube-to-MPEG Conversion</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-breaking-down-tseries-income-strategy-on-youtube-platform/"><u>[Updated] Breaking Down TSeries' Income Strategy on YouTube Platform</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-innovative-shooting-with-drones-in-media/"><u>[Updated] Innovative Shooting with Drones in Media</u></a></li>
-<li><a href="https://games-able.techidaily.com/acer-chromebook-516-ge-performance-assessment-optimal-choice-for-seamless-cloud-gaming-insights-from-zdnet/"><u>Acer Chromebook 516 GE Performance Assessment: Optimal Choice for Seamless Cloud Gaming – Insights From ZDNet</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boost-length-on-youtube-entry-filming/"><u>Boost Length on YouTube Entry Filming</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/c-span-broadcasts-unlocked-tips-for-fee-free-download/"><u>C-Span Broadcasts Unlocked Tips for Fee-Free Download</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/connecting-your-beats-wireless-headphones-to-a-pc-a-step-by-step-guide/"><u>Connecting Your BEATS Wireless Headphones to a PC: A Step-by-Step Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/decode-insta-success-your-comprehensive-guide-to-understanding-user-insights/"><u>Decode Insta Success Your Comprehensive Guide to Understanding User Insights</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/earning-streaming-strategies-8-beginners-tips-for-2024/"><u>Earning Streaming Strategies - 8 Beginners' Tips for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-boundless-creativity-fantasy-backdrops-on-thumbnails/"><u>In 2024, Boundless Creativity Fantasy Backdrops on Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-down-clutter-discover-these-7-ultimate-android-app-blockers/"><u>In 2024, Cut Down Clutter Discover These 7 Ultimate Android App Blockers</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-depth-look-at-samsungutation-studio-features/"><u>In-Depth Look at Samsung'utation Studio Features</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/standard-youtube-licenses-versus-cc/"><u>Standard Youtube Licenses Versus CC</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-shorts-profitability-secrets/"><u>Youtube Shorts Profitability Secrets</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-finding-your-portal-to-youtubes-video-mastery-hub/"><u>[New] In 2024, Finding Your Portal to YouTube's Video Mastery Hub</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-peacock-party-patter/"><u>[New] In 2024, Peacock Party Patter</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-chimecrafted-a-step-by-step-guide-to-creating-your-own-ringtone-tracks/"><u>[Updated] ChimeCrafted A Step-by-Step Guide to Creating Your Own Ringtone Tracks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-deep-dive-into-rank-tracker-solutions-for-peak-success-on-youtube/"><u>2024 Approved Deep Dive Into Rank Tracker Solutions for Peak Success on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-download-youtube-videos-directly/"><u>2024 Approved Download YouTube Videos Directly</u></a></li>
+<li><a href="https://fox-links.techidaily.com/achieving-flawless-aerial-shots-the-best-gimbals-for-drones-for-2024/"><u>Achieving Flawless Aerial Shots The Best Gimbals for Drones for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-apps-for-3d-video-intros-on-social-platforms-for-2024/"><u>Best Apps for 3D Video Intros on Social Platforms for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/craft-compelling-videos-utilize-no-cost-templates-and-samples-for-2024/"><u>Craft Compelling Videos Utilize No-Cost Templates & Samples for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-channel-with-these-top-11-budget-friendly-tools-for-2024/"><u>Elevate Your Channel with These Top 11 Budget-Friendly Tools for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/jackery-powerbar-portable-charger-analysis-featuring-integrated-ac-output/"><u>Jackery PowerBar Portable Charger Analysis: Featuring Integrated AC Output</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
 </ul></div>
 

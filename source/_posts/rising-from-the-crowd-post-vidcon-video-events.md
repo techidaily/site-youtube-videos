@@ -1,7 +1,7 @@
 ---
 title: "\"Rising From the Crowd  Post-VidCon Video Events\""
-date: 2024-12-28T22:30:00.287Z
-updated: 2025-01-03T16:17:44.100Z
+date: 2025-01-03T17:51:41.888Z
+updated: 2025-01-10T19:09:49.845Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 7. [Summer in the City (UK)](#sitc)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
@@ -45,10 +45,6 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -61,7 +57,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
@@ -91,6 +87,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -125,6 +125,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 **London, UK:** November
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
@@ -161,6 +165,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -200,10 +208,6 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -228,10 +232,6 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -247,20 +247,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-foundations-of-using-zooms-clustering-feature-for-2024/"><u>[New] Foundations of Using Zoom's Clustering Feature for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-from-humble-beginnings-to-prodigy-carryminatis-earnings-ajey/"><u>[New] From Humble Beginnings to Prodigy CarryMinati's Earnings (Ajey)</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-unlocking-xbox-experience-with-video-capture-techniques/"><u>[Updated] 2024 Approved Unlocking Xbox Experience with Video Capture Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-ascend-youtube-rankings-through-optimal-dating/"><u>2024 Approved Ascend YouTube Rankings Through Optimal Dating</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/amplify-impact-through-effective-video-marketing-on-youtubes-top-5-moves-for-2024/"><u>Amplify Impact Through Effective Video Marketing on YouTube's Top 5 Moves for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/assemble-visual-pieces-into-watchable-arrays/"><u>Assemble Visual Pieces Into Watchable Arrays</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-engagement-a-guide-to-more-youtube-shorts-success/"><u>Boosting Engagement A Guide to More YouTube Shorts Success</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/capturing-moving-images-mirrorless-versus-dslr/"><u>Capturing Moving Images Mirrorless Versus DSLR</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-realme-12-proplus-5g-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Realme 12 Pro+ 5G</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-youtube-gaming-content-with-key-freefire-hashtags/"><u>In 2024, Elevate Your YouTube Gaming Content With Key FreeFire Hashtags</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-components-to-creativity-building-a-professional-4k-pc/"><u>In 2024, From Components to Creativity Building a Professional 4K PC</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/piecing-together-a-unique-tiktok-outro-elements-for-2024/"><u>Piecing Together A Unique TikTok Outro Elements for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/prime-gear-picks-for-beginning-creators/"><u>Prime Gear Picks for Beginning Creators</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/simplify-video-creation-making-engaging-youtube-trailers-in-filmora/"><u>Simplify Video Creation Making Engaging YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-iphone-filmmaking-essentials-creating-and-changing-video-speed-dynamics-for-2024/"><u>[New] IPhone Filmmaking Essentials Creating and Changing Video Speed Dynamics for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-exclusive-list-of-premium-3d-blu-ray-players-reviewed/"><u>[Updated] In 2024, Exclusive List of Premium 3D Blu-Ray Players Reviewed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-chuckle-factory-designing-7-video-ideas-for-humorists/"><u>2024 Approved Chuckle Factory Designing 7 Video Ideas for Humorists</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-direct-transfer-path-youtube-content-to-dailymotion-hub/"><u>2024 Approved Direct Transfer Path YouTube Content to Dailymotion Hub</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/5-pro-audio-techniques-for-windows-10-users/"><u>5 Pro Audio Techniques for Windows 10 Users</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/average-income-for-popular-youtube-creators-for-2024/"><u>Average Income for Popular YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-free-subtitles-and-downloader-guide/"><u>Best Free Subtitles & Downloader Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-y100-5g-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from Y100 5G.</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/editorprime-design/"><u>EditorPrime Design</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ensure-smooth-performance-download-updated-toshiba-nb25-01t-dynabook-drivers-for-windows-systems/"><u>Ensure Smooth Performance: Download Updated Toshiba NB25-01T Dynabook Drivers for Windows Systems</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exclusive-list-top-business-vault-for-2024/"><u>Exclusive List Top Business Vault for 2024</u></a></li>
+<li><a href="https://discover-great.techidaily.com/fast-data-recovery-on-windows-1nplus1-with-usb-flash-drive-methodology/"><u>Fast Data Recovery on Windows 1N+1 with USB Flash Drive Methodology</u></a></li>
 </ul></div>
 

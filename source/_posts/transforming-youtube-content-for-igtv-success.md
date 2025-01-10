@@ -1,7 +1,7 @@
 ---
 title: "Transforming YouTube Content for IGTV Success"
-date: 2024-12-09T21:50:20.190Z
-updated: 2024-12-16T18:57:10.355Z
+date: 2025-01-04T16:12:34.331Z
+updated: 2025-01-10T19:26:47.641Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ YouTube videos, on the other hand, are mostly horizontally oriented. If you atte
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you don’t already have the original file of the video you’d like to upload to your IGTV channel, you can [download a video from YouTube](https://tools.techidaily.com/wondershare/filmora/download/), but keep in mind that you can’t use any content without permission from its owner.
 
 Once you have the file, you can **create a new project** in Filmora and then after the project loads you should click on the **File menu** and select the **Project Settings option**. Pick one of the **9:16** video resolution options provided by the editor and click **OK to confirm the changes**.
@@ -50,17 +54,9 @@ Go to the **Effects tab** and click on the **Background Blur** submenu if you wa
 
 ![Filmora  convert YouTube to IGTV](https://images.wondershare.com/filmora/article-images/filmora-convert-youtube-video-igtv.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In case you are working with a video that already has a 16:9 aspect ratio, you can create a project that has the same aspect ratio, and then just use **the Rotate slider in the Transform menu**, to change turn a landscape video into a portrait video. The scaling tool is helpful to enlarge the frames in a vertical aspect ratio.
 
 ![Filmora  convert YouTube to IGTV with transform](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-to-convert-youtube-igtv.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Filmora lets you create vertical videos in just a few quick steps, which makes it a perfect choice for influencers and marketers who want to share video content on YouTube and IGTV.
 
@@ -68,9 +64,17 @@ Latest News: In Filmora V10.5 and later versions, there is a new feature called 
 
 ![Filmora  Auto-Reframe YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/auto-reframe-youtube-video-to-vertical-igtv-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can watch the video below to find out more information about the Auto-Reframe tool.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
 
@@ -80,21 +84,17 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
 
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
 
 **You may also like:** [ How to Convert MKV to MP4 without Losing Quality \[Free Converters Provided\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Changing the Aspect Ratio of a YouTube Video with Final Cut Pro
 
@@ -111,7 +111,7 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -129,20 +129,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-effortless-sound-sourcing-the-top-15-freebie-audiosites/"><u>[New] Effortless Sound Sourcing The Top 15 Freebie Audiosites</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-end-screen-elegance-free-guides-to-upgrade-your-videos/"><u>[New] End-Screen Elegance - Free Guides to Upgrade Your Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-top-20-strategies-for-effective-facebook-video-campaigns/"><u>[New] Top 20 Strategies for Effective Facebook Video Campaigns</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-androidiphones-best-free-imagery-modification-apps-ranked/"><u>[Updated] In 2024, Android/iPhone's Best FREE Imagery Modification Apps Ranked</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-in-depth-update-the-latest-sony-s6500-model-review/"><u>[Updated] In 2024, In-Depth Update The Latest Sony S6500 Model Review</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-ranking-8-real-time-strategies-to-grow-youtube-success/"><u>2024 Approved Ranking 8 Real-Time Strategies to Grow YouTube Success</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/gratuito-online-convertidor-de-archivos-ogg-a-flac-con-movavi/"><u>Gratuito Online - Convertidor De Archivos OGG a FLAC Con Movavi</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/innovative-ways-to-craft-unique-dandd-characters-by-leveraging-chatgpt-and-dall-e-technologies/"><u>Innovative Ways to Craft Unique D&D Characters by Leveraging ChatGPT and DALL-E Technologies</u></a></li>
-<li><a href="https://media-tips.techidaily.com/quick-and-effective-techniques-how-to-seamlessly-transform-mp4-videos-into-swf-format/"><u>Quick & Effective Techniques: How to Seamlessly Transform MP4 Videos Into SWF Format</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/swift-modification-youtube-aspect-ratio-on-mac/"><u>Swift Modification YouTube Aspect Ratio on MAC</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/tailored-for-tech-savvy-audiences-unveil-the-youtuber-who-resonates-with-you-through-six-quizzes/"><u>Tailored for Tech-Savvy Audiences Unveil the YouTuber Who Resonates with You Through Six Quizzes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/taking-off-in-tutorials-the-beginners-guide-to-fashionable-mac-footage/"><u>Taking Off in Tutorials The Beginner’s Guide to Fashionable Mac Footage</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-professionals-guide-to-adding-youtube-content-to-powerpoint-slides/"><u>The Professional's Guide to Adding YouTube Content to PowerPoint Slides</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unraveling-t-mobiles-metro-network-policies-for-seamless-national-coverage/"><u>Unraveling T-Mobile's Metro Network Policies for Seamless National Coverage</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-video-magic-comprehensive-editing-for-professionals/"><u>YouTube Video Magic Comprehensive Editing for Professionals</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-tailoring-horizontal-video-footage-for-maximum-impact-on-igtv/"><u>[New] 2024 Approved Tailoring Horizontal Video Footage for Maximum Impact on IGTV</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mobile-sound-library-explore-the-best-free-downloader-apps-for-youtube/"><u>[Updated] Mobile Sound Library Explore the Best Free Downloader Apps for YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-pocket-sized-mac-viewer-absolutely-free-for-2024/"><u>[Updated] Pocket-Sized Mac Viewer - Absolutely Free for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-easily-add-subtitles-and-closed-captions-to-youtube-video/"><u>How to Easily Add Subtitles and Closed Captions to YouTube Video</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-edit-youtube-videos-in-sony-vegas-for-2024/"><u>How to Edit YouTube Videos in Sony Vegas for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-honor-play-7t-to-mac-drfone-by-drfone-android/"><u>How to Mirror Honor Play 7T to Mac? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ideal-screen-re-recorders-for-youtube-performances/"><u>Ideal Screen Re-Recorders for YouTube Performances</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-xiaomi-14-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Xiaomi 14 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-audience-augmentation-made-simple-5-solutions-available/"><u>In 2024, Audience Augmentation Made Simple - $5 Solutions Available</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-can-instant-subscription-lead-to-higher-watch-time/"><u>In 2024, Can Instant Subscription Lead to Higher Watch Time?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-capture-creativity-iosandroids-best-caption-apps/"><u>In 2024, Capture Creativity IOS/Android’s Best Caption Apps</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-revolutionary-impact-future-of-vr-cinematic-experience/"><u>In 2024, The Revolutionary Impact Future of VR Cinematic Experience</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-poco-c65-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Poco C65 FRP Bypass</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Honor Magic 5 Lite | Dr.fone</u></a></li>
 </ul></div>
 

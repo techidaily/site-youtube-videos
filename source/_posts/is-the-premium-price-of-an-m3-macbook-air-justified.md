@@ -1,7 +1,7 @@
 ---
 title: Is the Premium Price of an M3 MacBook Air Justified?
-date: 2024-12-11T17:48:51.930Z
-updated: 2024-12-16T17:57:21.879Z
+date: 2025-01-07T17:37:47.464Z
+updated: 2025-01-10T18:11:09.767Z
 categories:
   - BestProducts
 description: This Article Describes Is the Premium Price of an M3 MacBook Air Justified?
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/-VRVKWEfqD1YNUa0XpubmaqxsF4=/400x300/fi
 ## A Close Look At Star Wars Squadrons – Experience the Thrill of Hyper-Realistic Space Skirmishes
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Star Wars: Squadrons
 
@@ -39,9 +43,17 @@ Lifewire / Andy Zahn
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Star Wars: Squadrons
 
 ![Star Wars: Squadron](https://www.lifewire.com/thmb/ymdujoeG8lwdw1L7OD6l0EFi1ug=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Star-Wars-Squadrons-1-daa1e236365f4a4a8831cce59004223a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -72,10 +84,6 @@ Lifewire / Andy Zahn
 
 ![Star Wars: Squadrons](https://www.lifewire.com/thmb/1xt9t7ffMjuv6ggtXGJER_irSnk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Star-Wars-Squadrons-2-fcfb7e9a60e74ce9b42cecff0e2061ed.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
 ## **Story: Passable, but skip the exposition dumps**
@@ -94,13 +102,13 @@ Star Wars: Squadrons is drop-dead gorgeous.
 
 ![Star Wars: Squadrons](https://www.lifewire.com/thmb/_MN0adYtaTCJ1Qhmsivk-M-DkXo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Star-Wars-Squadrons-3-31074635684244d48b1d792540a477e2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  In between story missions you are fixed in place in different rooms, where you click on different characters to talk to them. I found these sequences to be very linear and I found that they tended to drag on. I’d certainly have preferred to be able to walk around rather than teleport between locations on the ship. This is probably due to this game being intended to be played in VR where the fixed positioning makes more sense due to the limitations of VR, but the game would've been well served by separate control schemes. This is a minor gripe; if desired you can just skip through these sequences pretty quickly.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Gameplay: Refined and surprisingly deep**
 
@@ -113,10 +121,6 @@ Star Wars: Squadrons is drop-dead gorgeous.
  Dogfights are fast, brutal, and thanks to a wide variation in map design, each match feels remarkably fresh and non-repetitive. There is some of the traditional looping around in circles, but between the obstacles placed about the map, the different capabilities of the various ships, and the interaction between you and your teammates, this happens only occasionally.
 
 ![Star Wars: Squadrons](https://www.lifewire.com/thmb/COT6eEVvzd6QqCbhmtbP4a_C--Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Star-Wars-Squadrons-6-9d086810906a486b9266ec247e2ab966-3636fb8670644ae98afd0bc57b59df8d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -132,21 +136,21 @@ Star Wars: Squadrons is drop-dead gorgeous.
 
 ![Star Wars: Squadrons](https://www.lifewire.com/thmb/a-_aXPmbq5vlMG21Sutf0cIe4BI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Star-Wars-Squadrons-7-dc3679df974e4da793c52f2fb2831eac.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
  The game is less attractive in VR, with muddier textures and blurrier skybox, but the trade-off for added immersion is well worth the sacrifice. Actually moving your head to scan around the glass cockpit for enemy fighters and capital ships (or your own wingmates) and then diving in to engage is some of the most fun you can have in VR.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Audio: Authentic Star Wars**
 
  With the vast majority of video games, your experience is almost as dependent on what you hear as what you see. In this regard, Squadrons is a masterpiece. This game perfectly replicates the epic feel of classic Star Wars space combat from the laser fire, to the roar of your engines, to the exhilarating whoosh of grazing an asteroid. There’s also the unforgettable John Williams soundtrack, which is fully present here and is just as vital to the experience of the game as it is to the films.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Solid on moderately powerful PCs**
 
@@ -154,17 +158,9 @@ Star Wars: Squadrons is drop-dead gorgeous.
 
  Dogfights are fast, brutal, and thanks to a wide variation in map design, each match feels remarkably fresh and non-repetitive.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Controls: Wide support for different inputs**
 
  Squadrons offers customizable support for a wide range of different control schemes, from gamepads to HOTAS flight sticks to mouse and keyboard. I had to fiddle with a few settings to get my stick and thrust control up and running, but when I did, it added an extra layer of immersion to the experience. However, mouse and keyboard is clearly the optimal and intended control method for Squadrons.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Multiplayer: Challenging dogfights**
 
@@ -190,6 +186,10 @@ Star Wars: Squadrons is drop-dead gorgeous.
 
  Star Wars: Squadrons is a fine successor to classic space combat games, and is an undeniably exciting and realistic experience. It’s best if played with a VR headset, but is worth your time and money on a traditional screen as well. The memory of my first flight at the helm of a TIE Fighter in this game has stuck with me with surprising clarity in a way that few moments in video games do, and it’s something you really have to experience for yourself to understand.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Star Wars: Squadrons
@@ -213,22 +213,22 @@ Star Wars: Squadrons is drop-dead gorgeous.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-top-5-youtube-video-editor-alternatives/"><u>[New] Top 5 YouTube Video Editor Alternatives</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-8-mistakes-to-avoid-as-a-new-youtuber/"><u>[Updated] 8 Mistakes to Avoid as a New Youtuber</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-convert-with-precision-10-leading-tools-from-flv-to-youtube-platforms/"><u>[Updated] Convert with Precision 10 Leading Tools From Flv to YouTube Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-delving-into-the-world-of-asmr-soundscapes/"><u>[Updated] Delving Into the World of ASMR Soundscapes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-effective-legal-strategies-for-content-visibility/"><u>[Updated] Effective, Legal Strategies for Content Visibility</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-enhance-videos-naturally-free-9-youtube-thumbnail-crafting-tips/"><u>[Updated] Enhance Videos Naturally - Free 9 YouTube Thumbnail Crafting Tips</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-discover-the-best-12-free-and-paid-video-game-openings-for-yt/"><u>[Updated] In 2024, Discover the Best 12 Free and Paid Video Game Openings for YT</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-skillful-use-of-skypes-screen-share-capabilities-in-telecommuting/"><u>[Updated] Skillful Use of Skype's Screen Share Capabilities in Telecommuting</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/captivating-lion-family-portraits-and-stunning-wallpaper-collections-explore-visuals-by-yl-computing/"><u>Captivating Lion Family Portraits & Stunning Wallpaper Collections: Explore Visuals by YL Computing</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/facebooks-favorites-todays-10-music-moments/"><u>Facebook's Favorites Today's #10 Music Moments</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-vivo-g2-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Vivo G2 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-simple-tale-creation-guide/"><u>In 2024, Simple Tale Creation Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maintain-uninterrupted-youtube-experience-on-phones/"><u>Maintain Uninterrupted YouTube Experience on Phones</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/secure-footage-leading-stabilizers-on-youtube/"><u>Secure Footage Leading Stabilizers on YouTube</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211403960-9781958997826-the-disciples-manual/"><u>The Disciples Manual | Free Book</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-experts-list-of-top-vector-stock-portals/"><u>The Expert's List of Top Vector Stock Portals</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-5-easy-ways-to-multiply-your-youtube-follower-base/"><u>[New] In 2024, 5 Easy Ways to Multiply Your YouTube Follower Base</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-facebooks-terms-of-service-for-media-sharing/"><u>[New] Navigating Facebook's Terms of Service for Media Sharing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-why-av1-improving-streams-and-videos-on-youtube/"><u>2024 Approved Why AV1? – Improving Streams and Videos on YouTube</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/effective-techniques-for-capturing-windows-8-display-for-2024/"><u>Effective Techniques for Capturing Windows 8 Display for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/engaging-audiences-triad-of-effective-storytelling-for-2024/"><u>Engaging Audiences Triad of Effective Storytelling for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-youtube-videos-with-professional-techniques-using-wmm-for-2024/"><u>Enhancing YouTube Videos with Professional Techniques Using WMM for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-techniques-to-elevate-your-channels-visibility-for-2024/"><u>Essential Techniques to Elevate Your Channel's Visibility for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-windows-media-player-how-to-restore-audio-functionality/"><u>Fixing Windows Media Player: How to Restore Audio Functionality</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-raw-to-refined-mastering-the-art-of-pc-video-editing-on-windows/"><u>From Raw to Refined Mastering the Art of PC Video Editing on Windows</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-get-people-to-subscribe-by-asking-the-right-way/"><u>How to Get People to Subscribe by Asking the Right Way</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-conquering-green-hue-fixing-it-on-mac-for-video-editors/"><u>In 2024, Conquering Green Hue Fixing It On Mac For Video Editors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-converting-live-streamed-youtubes-into-animated-gif-formats/"><u>In 2024, Converting Live Streamed YouTubes Into Animated GIF Formats</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-discover-new-heights-top-10-adventure-channels/"><u>In 2024, Discover New Heights Top 10 Adventure Channels</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Samsung Galaxy XCover 7? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ower-of-branding-in-video-ranks-and-traffic/"><u>The Power of Branding in Video Ranks and Traffic</u></a></li>
+<li><a href="https://program-issues.techidaily.com/what-to-do-if-you-encounter-an-unresponsive-minecraft-window-on-desktop/"><u>What To Do If You Encounter an Unresponsive Minecraft Window on Desktop</u></a></li>
 </ul></div>
 

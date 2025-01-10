@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of YouTube Channels  Crafting Brands That Attract Viewers\""
-date: 2024-12-30T00:41:57.378Z
-updated: 2025-01-04T00:06:03.002Z
+date: 2025-01-09T19:37:54.954Z
+updated: 2025-01-10T17:15:07.607Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ They have different branding because they want to reflect different feelings for
 When a branding element does not align with the message or the tone does not match with the material, then the audience is not going to trust what you offer. Without trust, you won’t be able to get the advocacy that is essential for a YouTube channel to grow.
 
 Imagine Michelle Phan using the aggressive colors of Epic Meal Time or vice versa. Pretty weird, huh?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What is YouTube Branding?
 
@@ -156,10 +152,6 @@ The power of good branding is that your viewers will be able to spot your brand 
 
 ![Create Video Thumbnails](https://images.wondershare.com/filmora/article-images/create-video-thumbnails.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Epic Meal Time thumbnails standing out amongst other loud thumbnails._
 
  Once you have the feeling you want to evoke, test out different thumbnails. Go incognito, search up your videos, and see how the visuals appear beside your competitions. Do they all have the same style or is your far more impressive?
@@ -194,7 +186,15 @@ Consistent branding affirms the viewer that they are in the right place. Peter M
 
 ![Peter McKinnon](https://images.wondershare.com/filmora/article-images/peter-mckinnon.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Peter McKinnon is best known for his photography and cinematography, and his branding amplifies that._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## But Branding Is Not Designing, It’s A Feeling
 
@@ -205,7 +205,7 @@ Look at PewDiePie’s branding. You can argue that it is inconsistent and the de
 ![Pew Die Pie Channel](https://images.wondershare.com/filmora/article-images/pew-die-pie-channel.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _PewDiePie’s brand highlights its upbeat and unpredictable personality._
@@ -218,11 +218,11 @@ The humor in PewDiePie’s brand is consistent, even though his thumbnails don�
 
 ![Philip DeFranco](https://images.wondershare.com/filmora/article-images/philip-defranco.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Philip DeFranco supplies commentary on current events with a satirical flair. Like a news broadcast, his branding and video format are consistent, while the daily news is different._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Inserting A Watermark
 
@@ -233,7 +233,7 @@ Let’s be honest, YouTube content can all look the same, especially if you are 
  ![Improvement Pill](https://images.wondershare.com/filmora/article-images/improvement-pill.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Improvement Pill is a YouTube channel focused on inspiring and motivating its viewer to live a better life._
@@ -246,11 +246,11 @@ When a viewer lands on their video, the watermark gives the viewer another way t
 
 Want to set up your subscription watermark? Here is a quick tutorial:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Coming Up With A Catchphrase
 
@@ -285,22 +285,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-10-youtube-storytelling-techniques-that-work/"><u>[New] 10 YouTube Storytelling Techniques That Work</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-deciphering-how-to-spot-your-video-enthusiasts/"><u>[New] Deciphering How to Spot Your Video Enthusiasts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-essential-links-where-to-get-official-skype-ringtone-files/"><u>[New] Essential Links Where to Get Official Skype Ringtone Files</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-event-ensemble-curating-best-dj-templates/"><u>[New] Event Ensemble Curating Best DJ Templates</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-tailor-your-own-memetic-masterpiece-now/"><u>[Updated] 2024 Approved Tailor Your Own Memetic Masterpiece Now</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-noshadowedit-advanced-background-shadow-elimination/"><u>[Updated] NoShadowEdit Advanced Background Shadow Elimination</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/1726223253789-aac-movavi/"><u>AAC形式のオーディオ・ファイルを自由に変換する - 最新Movaviツール</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-amazon-lunas-game-streaming-capabilities-a-pleasant-surprise/"><u>Comprehensive Evaluation of Amazon Luna's Game Streaming Capabilities - A Pleasant Surprise</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/gpt-4-at-your-fingertips-but-plus-continues-to-offer-unmatched-services/"><u>GPT-4 at Your Fingertips; But Plus Continues To Offer Unmatched Services.</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-masterclass-15-color-grading-look-ups-for-camcorder/"><u>In 2024, Masterclass 15 Color Grading Look-Ups for Camcorder</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/live-caption-coder/"><u>Live Caption Coder</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-your-path-as-a-first-time-youtuber-sidestep-these-8-common-mistakes/"><u>Navigating Your Path as a First-Time YouTuber Sidestep These 8 Common Mistakes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-youtube-promo-landscape-an-insiders-guide/"><u>Navigating YouTube Promo Landscape An Insider's Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/powertoys-integration-into-win11-systems/"><u>PowerToys Integration Into Win11 Systems</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/premiere-pro-a-launchpad-for-youtube-videos/"><u>Premiere Pro A Launchpad for YouTube Videos</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/step-by-step-guide-converting-mkv-files-for-itunes-compatibility-and-synchronization/"><u>Step-by-Step Guide: Converting MKV Files for iTunes Compatibility & Synchronization</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-capturing-pc-gaming-moments-6-innovative-techniques-for-2024/"><u>[Updated] Capturing PC Gaming Moments 6 Innovative Techniques for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-secrets-of-writing-impressive-podcast-summaries/"><u>[Updated] The Secrets of Writing Impressive Podcast Summaries</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-asmr-app-selection-guide-for-phones/"><u>2024 Approved ASMR App Selection Guide for Phones</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-shooting-in-the-dark-elevating-iphone-photos-with-shadows/"><u>2024 Approved Shooting in the Dark Elevating iPhone Photos with Shadows</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/best-of-the-best-ups-devices-to-secure-your-power/"><u>Best-of-the-Best UPS Devices to Secure Your Power</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/brand-battlegrounds-mastery-of-marketing-metrics-on-youtube-for-2024/"><u>Brand Battlegrounds Mastery of Marketing Metrics on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-your-brand-with-a-sports-youtube-chain-on-macos-for-2024/"><u>Building Your Brand with a Sports YouTube Chain on macOS for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/complete-mp4-recovery-solution-eradicate-errors-and-rejuvenate-broken-video-clips/"><u>Complete MP4 Recovery Solution: Eradicate Errors & Rejuvenate Broken Video Clips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1720600616314-data-rescue-express-unlock-lost-information-today/"><u>Data Rescue Express - Unlock Lost Information Today!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-stillness-to-stirring-tips-for-bouncing-text/"><u>From Stillness to Stirring Tips for Bouncing Text</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-factory-unlock-your-telstra-iphone-se-by-drfone-ios/"><u>How To Factory Unlock Your Telstra iPhone SE</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-compelling-videos-youtubes-best-thumbnail-practices/"><u>In 2024, Crafting Compelling Videos YouTube's Best Thumbnail Practices</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-tecno-pova-5-pro-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Tecno Pova 5 Pro to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/pause-the-virtual-assistant-comparison-game/"><u>Pause the Virtual Assistant Comparison Game</u></a></li>
 </ul></div>
 

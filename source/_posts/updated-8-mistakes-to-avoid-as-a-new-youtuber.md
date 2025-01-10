@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 8 Mistakes to Avoid as a New Youtuber"
-date: 2024-12-27T22:26:35.019Z
-updated: 2025-01-03T23:01:42.614Z
+date: 2025-01-03T19:11:58.860Z
+updated: 2025-01-10T19:31:11.924Z
 tags:
   - ai video
   - ai youtube
@@ -31,13 +31,13 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
@@ -45,10 +45,6 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
 
@@ -71,7 +67,7 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Making weak intros
@@ -87,6 +83,10 @@ To read more on how some of the most successful YouTubers effectively do their i
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
 
@@ -105,7 +105,7 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -123,18 +123,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-enhancing-content-reach-keeping-creative-commons-engagement-high/"><u>[New] Enhancing Content Reach Keeping Creative Commons Engagement High</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-captivate-viewers-strategies-for-viral-video-success-for-2024/"><u>[Updated] Captivate Viewers Strategies for Viral Video Success for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-creators-uniting-for-marvels-digital-future/"><u>[Updated] Creators Uniting for Marvel's Digital Future</u></a></li>
-<li><a href="https://howto.techidaily.com/calls-on-itel-a60s-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Itel A60s Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-tseries-monetary-strategies-on-youtube-video-platforms/"><u>Decoding TSeries’ Monetary Strategies on YouTube Video Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhance-videos-seamlessly-using-youtube-studio-editor/"><u>Enhance Videos Seamlessly Using YouTube Studio Editor</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/essential-techniques-to-amplify-your-youtube-success-discover-the-best-5-methods-for-virtual-and-physical-expansion/"><u>Essential Techniques to Amplify Your YouTube Success: Discover the Best 5 Methods for VIRTUAL and PHYSICAL Expansion</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/expert-strategies-for-oscillating-between-silence-and-sounds-in-obs-broadcasting/"><u>Expert Strategies for Oscillating Between Silence and Sounds in OBS Broadcasting</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/handling-haters-strategies-for-content-creators/"><u>Handling Haters Strategies for Content Creators</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/premier-productions-first-impression-for-2024/"><u>Premier Productions First Impression for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/top-6-pro-techniques-to-resolve-low-fps-issues-in-escape-from-tarkov/"><u>Top 6 Pro-Techniques to Resolve Low FPS Issues in Escape From Tarkov</u></a></li>
-<li><a href="https://win11.techidaily.com/windows-activation-the-hidden-traps-in-inexpensive-keys/"><u>Windows Activation: The Hidden Traps in Inexpensive Keys</u></a></li>
-<li><a href="https://techidaily.com/xiaomi-redmi-12-won-t-play-hevc-h-265-media-how-to-fix-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Xiaomi Redmi 12 won’t play HEVC H.265 media, how to fix? </u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-10-key-tactics-to-amplify-your-youtube-presence-and-engagement-for-2024/"><u>[New] 10 Key Tactics to Amplify Your YouTube Presence and Engagement for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-contrasting-youtubes-ownership-norms-with-cc-ideals/"><u>[New] Contrasting YouTube's Ownership Norms with CC Ideals</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-confirmation-procedures-for-youtube-users/"><u>[Updated] Confirmation Procedures for YouTube Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-reclaim-inaccessible-watch-icon/"><u>[Updated] Reclaim Inaccessible Watch Icon</u></a></li>
+<li><a href="https://win-top.techidaily.com/capture-rivals-clientele-silently-unveiling-how-massmail-software-can-amplify-your-traffic-and-profits/"><u>Capture Rivals' Clientele Silently - Unveiling How Massmail Software Can Amplify Your Traffic & Profits</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/enhancing-your-digital-collection-mastering-the-edit-library-feature/"><u>Enhancing Your Digital Collection: Mastering the Edit Library Feature</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-avchd-mts-files-on-xiaomi-redmi-12-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to play AVCHD MTS files on Xiaomi Redmi 12?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/immerse-in-crystal-clear-viewing-with-hitachis-4k-hdr-televisions-and-built-in-roku-technology/"><u>Immerse in Crystal Clear Viewing with Hitachi's 4K HDR Televisions and Built-In Roku Technology</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-9-superior-editing-platforms-for-every-drone-operators-level/"><u>In 2024, 9 Superior Editing Platforms for Every Drone Operator's Level</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-tecno-pova-6-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP from Tecno Pova 6 Pro 5G?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/put-a-stay-to-unsolicited-youtube-trails/"><u>Put a Stay to Unsolicited YouTube Trails</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/stable-shootings-top-brands-for-online-filmmaking/"><u>Stable Shootings - Top Brands for Online Filmmaking</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-translate-live-videos-with-the-best-video-translator/"><u>Updated Translate Live Videos With The Best Video Translator</u></a></li>
 </ul></div>
 

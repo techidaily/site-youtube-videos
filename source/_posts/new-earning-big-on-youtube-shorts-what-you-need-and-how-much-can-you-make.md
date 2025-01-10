@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Earning Big on Youtube Shorts  What You Need & How Much Can You Make?\""
-date: 2024-12-10T19:28:06.618Z
-updated: 2024-12-16T16:05:21.197Z
+date: 2025-01-05T18:58:30.570Z
+updated: 2025-01-10T19:13:51.715Z
 tags:
   - ai video
   - ai youtube
@@ -23,6 +23,10 @@ YouTube Shorts have grown in popularity since the launch of the platform in 2021
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 1\. YouTube Shorts Monetization: Eligibility Criteria**
 
@@ -47,10 +51,6 @@ The other way you can monetize shorts is by accessing ad revenue and fan-funding
 * At least 4,000 public watch hours in the last 365 days, or
 * At least 10 million valid public Shorts views in the last 90 days
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Additional Guidelines for Creators**
 
 Once you meet the eligibility criteria, you will be required to follow certain guidelines or policies to continue earning. The additional guidelines include:
@@ -64,6 +64,10 @@ Once you meet the eligibility criteria, you will be required to follow certain g
 * Turn on 2-Step verification for your Google Account
 * Have an active AdSense account
 * Have access to advanced YouTube features by verifying your identity
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 2\. Monetizing YouTube Shorts: Step-by-Step Guide**
 
@@ -79,9 +83,17 @@ In the top right of the YouTube page, click on your profile picture. From the po
 
 ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-3.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step 3In the left menu, Click on **Earn**
 
 ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-4.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step 4
 
@@ -89,25 +101,21 @@ If you are eligible for the YPP, you will see an **Apply** Click on it to go to 
 
 ![youtube get notified](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-5.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step 5
 
 Click **Start** to review and accept YouTube’s Base terms.
 
 ![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-6.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step 6
 
 Link your existing AdSense account if you have one. If not. Click **Start** to set up a new one.
 
 ![youtube link adsense](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-7.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step 7
 
@@ -119,17 +127,9 @@ The instructions shared above are for applying for the YPP using a computer or d
 
 The money-making feature monetizes Shorts in exciting ways. To start monetizing with Super Thanks fan funding, click Supers on the Earn tab in YouTube Studio. Then click Get Started, and follow the presented prompts. The same process is applicable for Channel Memberships, and other fan-funding options.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Part 3\. YouTube Shorts Monetization: A Realistic Look at Earnings Potential**
 
 Monetizing YouTube Shorts has the potential to make decent earnings. Although the amount is not as much as a long-form videos, it is a great way of making money on YouTube quickly. Most YouTube Shorts creators agree that the revenue per thousand views (RPM) for short-form content is currently around $0.05 - $0.07\. This means that for a million Shorts views, you will make $50 - $70.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Factors** **That Influence Earnings**
 
@@ -140,6 +140,10 @@ The amount of money you make on YouTube Shorts is not fixed. It will depend on s
 * **Number of monetized Shorts:** Monetizing most of your short-form videos will increase the revenue generated.
 * **Shopping Revenue:** How well you promote your products and the set price point of the products will determine the shopping revenue generated.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Examples of Creators Who Have Earned from Shorts**
 
 The revenue-sharing program is the easiest way for creators to earn money on YouTube. Since monetizing their Shorts, these creators earned some decent bonus amounts:
@@ -148,10 +152,6 @@ The revenue-sharing program is the easiest way for creators to earn money on You
 * [Riley Lemon](https://www.youtube.com/@RileyDoingThings) (84,000 subscribers) - Earned $76.23 in ads from 1.9 million Shorts views
 * [James Seo](https://www.youtube.com/@JamesSeo/) (573,000 subscribers) - Earned $445.09 in ads from 10.3 million Shorts views
 * [Matthew King](https://www.youtube.com/@mattykayy/) (212,000 subscribers) - Earned $163.73 in ads from 4.2 million Shorts views
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Part 4\. Editing YouTube Shorts with WonderShare to Boost Revenue Potential**
 
@@ -163,13 +163,13 @@ The best way to reap big from Shorts YouTube monetization is to make quality vid
 
 The choice of Filmora features you use on your editing projects will depend on your goals. Here are a few favorites to get you started:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **1\.** [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Before uploading a short-form video on YouTube, you want to make sure it is of the right resolution. The Auto Reframe feature on Filmora allows you to instantly resize your videos while keeping all the important details. You only need to record one video for all platforms, and edit to fit with auto reframe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **2\.** **[Text to Speech](https://tools.techidaily.com/wondershare/filmora/download/)**
 
@@ -188,7 +188,7 @@ YouTube Shorts have become immensely popular. They tend to have a higher ROI and
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -200,24 +200,20 @@ YouTube Shorts have become immensely popular. They tend to have a higher ROI and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-audiovisual-excellence-on-youtube-through-enhancements/"><u>[New] Audiovisual Excellence on YouTube Through Enhancements</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-beautifying-videos-for-youtube-viewers/"><u>[New] Beautifying Videos for YouTube Viewers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/electing-the-best-online-platforms-for-budget-stock-media/"><u>[New] Selecting the Best Online Platforms for Budget Stock Media</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-subtle-sound-reduction-tactics-with-garageband-for-2024/"><u>[New] Subtle Sound Reduction Tactics with Garageband for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-unleash-the-power-of-messaging-mastering-pinning-on-discord-for-2024/"><u>[New] Unleash the Power of Messaging Mastering Pinning on Discord for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-2023s-top-free-premiere-pro-masterpieces/"><u>[Updated] 2023'S Top Free Premiere Pro Masterpieces</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-crafting-your-personalbusiness-youtube-mobile-hub/"><u>[Updated] Crafting Your Personal/Business YouTube Mobile Hub</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-principles-of-creating-inspirational-day-to-day-visual-stories/"><u>[Updated] In 2024, Principles of Creating Inspirational Day-to-Day Visual Stories</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/extract-unlimited-photographic-content-from-esteemed-4-video-channels/"><u>Extract Unlimited Photographic Content From Esteemed 4 Video Channels</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-s17t-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo S17t to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-best-gopro-hero5-black-batteries-and-chargers-official-and-3rd-party/"><u>In 2024, Best GoPro Hero5 Black Batteries & Chargers Official and 3Rd Party</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ios-integrates-ai-apple-collaborates-with-openai-to-introduce-chatgpt-on-iphone-ipad-and-mac-insights-from-zdnet/"><u>IOS Integrates AI: Apple Collaborates with OpenAI to Introduce ChatGPT on iPhone, iPad, and Mac - Insights From ZDNet</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solution-guide-getting-the-origin-game-launcher-running-in-windows-1011/"><u>Solution Guide: Getting the Origin Game Launcher Running in Windows 10/11</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/text-temporal-tinkering-tools/"><u>Text Temporal Tinkering Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-synergy-between-youtube-and-creative-commons-licensinas/"><u>The Synergy Between YouTube and Creative Commons Licensinas</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-guide-hashtags-that-work-in-gaming-vlogs/"><u>The Ultimate Guide Hashtags That Work in Gaming Vlogs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unleashing-video-potential-the-imovie-blueprint-for-youtube-editors/"><u>Unleashing Video Potential The iMovie Blueprint for YouTube Editors</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-the-potential-of-monetized-vlogs/"><u>Unlocking the Potential of Monetized Vlogs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unveiling-secrets-to-boost-engagement-in-gaming-vlogs-via-hashes/"><u>Unveiling Secrets to Boost Engagement in Gaming Vlogs via Hashes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-the-course-from-adsense-income-to-savings/"><u>[New] Charting the Course From AdSense Income to Savings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dismantling-the-economics-of-youtubes-ambitious-shorts-fund/"><u>[New] Dismantling the Economics of YouTube's Ambitious Shorts Fund</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-optimizing-your-browsing-mastering-firefoxs-pip/"><u>[New] Optimizing Your Browsing Mastering Firefox's PIP</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-the-ultimate-guide-key-drone-upgrades-and-supplies/"><u>[New] The Ultimate Guide Key Drone Upgrades & Supplies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-amplifying-your-youtube-presence-through-consistent-content-release/"><u>[Updated] Amplifying Your YouTube Presence Through Consistent Content Release</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-attract-more-viewers-boosting-your-youtube-following/"><u>[Updated] Attract More Viewers Boosting Your YouTube Following</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-easy-steps-to-save-youtube-videos/"><u>[Updated] Easy Steps to Save YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-stealthy-search-strategies-for-elusive-youtube-videos-for-2024/"><u>[Updated] Stealthy Search Strategies for Elusive YouTube Videos for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-assessment-of-the-stunning-and-highly-performant-dell-xps-13-2-in-1-laptop/"><u>Comprehensive Assessment of the Stunning and Highly Performant Dell XPS 13 2-in-1 Laptop</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effortless-days-ahead-9-ways-gpt-streamlines-your-world/"><u>Effortless Days Ahead: 9 Ways GPT Streamlines Your World</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pinnacle-partnership-portrayal-picking-an-ideal-mcn/"><u>Pinnacle Partnership Portrayal Picking an Ideal MCN</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pump-up-your-viewership-with-these-proven-methods/"><u>Pump Up Your Viewership with These Proven Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transforming-viewers-into-loyalists-with-essential-youtube-tips-for-2024/"><u>Transforming Viewers Into Loyalists with Essential YouTube Tips for 2024</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/ultra-thin-stick-pc-packed-with-power-intel-n100-fanless-design-16gb-memory-and-windows-11-os/"><u>Ultra-Thin Stick PC Packed With Power: Intel N100, Fanless Design, 16GB Memory and Windows 11 OS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-power-a-comprehensive-look-at-the-chargetech-27000mah-battery-pack-reviews/"><u>Unpacking the Power: A Comprehensive Look at the ChargeTech 27000mAh Battery Pack Reviews</u></a></li>
 </ul></div>
 

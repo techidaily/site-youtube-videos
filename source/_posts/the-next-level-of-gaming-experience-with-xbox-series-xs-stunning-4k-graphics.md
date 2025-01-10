@@ -1,7 +1,7 @@
 ---
 title: The Next Level of Gaming Experience with Xbox Series X's Stunning 4K Graphics
-date: 2024-12-28T20:12:28.924Z
-updated: 2025-01-03T23:51:43.297Z
+date: 2025-01-06T18:22:17.688Z
+updated: 2025-01-10T17:26:24.149Z
 categories:
   - BestProducts
 description: This Article Describes The Next Level of Gaming Experience with Xbox Series X's Stunning 4K Graphics
@@ -13,16 +13,12 @@ thumbnail: https://www.lifewire.com/thmb/i1CT4Rolj9OI6Xq9xzXhe3FGv7I=/400x300/fi
 
 3.3
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/SBirmVys72S63lQd4lWukO_gXRw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
@@ -83,6 +79,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Polarizing sci-fi aesthetics**
 
  The best way to describe Alienware’s design for a vast majority of their products can be summed up as “polarizing.” Going all the way back to the company’s early days, their sci-fi and alien-esque aesthetics have always appealed to some, while those who prefer clean lines and minimal looks flee in the opposite direction.
@@ -103,6 +103,10 @@ Lifewire / Zach Sweat
 
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Plug and play**
 
  Because this is a prebuilt, setting up your new PC is super simple—essentially plug and play. This is another hugely important thing to consider if you want to get into PC gaming, but don’t know the first thing about installing an OS, troubleshooting build issues or navigating the BIOS.
@@ -114,6 +118,10 @@ Lifewire / Zach Sweat
  Upon landing at your new desktop within Windows 10, the rest of the setup process is mostly up to you. Typically, I continue the initial process by checking for Windows updates, installing those first and restarting as necessary, followed by downloading updates for drivers and graphics cards. Once you’ve got the important software updated, the next best thing is to download your favorite apps and software you want to use, like Steam, Spotify, Chrome, etc.
 
  From here, you can either fine tune your new PC’s looks within the settings menu or keep things as they are. If you’re using a monitor with a higher refresh rate or resolution, it’s also a good idea to ensure your PC is fully utilizing this by perusing the display settings and options. After all, nobody likes finding out they’ve been stuck on 60Hz with their display that’s capable of hitting 144Hz.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Results may vary**
 
@@ -134,7 +142,7 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Gaming: From ok to amazing, if you have the cash**
@@ -152,6 +160,10 @@ Lifewire / Zach Sweat
  Aside from FPS, the load times for games compared to my[SSD-equipped](https://www.lifewire.com/best-external-hard-drives-4050413) PC were much, much slower. Loading into planets and zones in[Destiny 2](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) takes only a few moments with an SSD, while this HDD R9 felt twice as long or more—similar to what you’d see with any current-gen gaming console (they all have HDDs).
 
  Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio: Decent prebuilt performance and surround sound**
 
@@ -181,10 +193,6 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 ## **Software: Windows 10 with some bloatware and extras**
@@ -199,10 +207,6 @@ Lifewire / Zach Sweat
 
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Not the best bang for your buck**
 
  PC gaming is notoriously expensive to initially get into, but the prices of many components have continued to dwindle over the decades. Although the old adage that building your own computer from scratch is cheaper still holds true, prebuilt computers have also become much more comparable. So how does this Alienware match up?
@@ -216,10 +220,6 @@ Lifewire / Zach Sweat
  Another thing to keep in mind here is that the $850 price point doesn’t include much in the way of peripherals, and these can really add up. The Aurora R9 does include a shoddy Dell keyboard and mouse, but these accessories are definitely the bare minimum, and won’t provide the best experience.
 
  Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Alienware Aurora R9 vs. Dell G5 5090**
 
@@ -265,20 +265,21 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-best-microphone-combinations-for-superior-4k-audio-and-visuals/"><u>[New] Best Microphone Combinations for Superior 4K Audio and Visuals</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-complete-walkthrough-to-grab-youtube-playlists/"><u>[New] Complete Walkthrough to Grab YouTube Playlists</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-tips-sharing-your-apple-devices-screen-with-youtube/"><u>[New] Essential Tips Sharing Your Apple Devices Screen with YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/op-6-free-online-tools-for-downloading-youtube-shorts/"><u>[New] Top 6 Free, Online Tools for Downloading YouTube Shorts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-adopt-the-best-practices-of-live-streaming-with-google-meet-youtube/"><u>[Updated] Adopt the Best Practices of Live Streaming with Google Meet Youtube</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-speaker-recorder-evaluation-tips/"><u>2024 Approved Speaker Recorder Evaluation Tips</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-creation-chronicles-the-ultimate-beauty-blogging-start-up/"><u>Channel Creation Chronicles The Ultimate Beauty Blogging Start-Up</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-content-gold-youtube-studios-path-to-perfection-for-2024/"><u>Crafting Content Gold YouTube Studio's Path to Perfection for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/decoding-usb-20-a-breakdown-of-performance-speed-cabling-essentials-and-connector-choices/"><u>Decoding USB 2.0: A Breakdown of Performance Speed, Cabling Essentials, & Connector Choices</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-motorola-moto-g34-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Motorola Moto G34 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-mastering-video-success-a-list-of-20-pro-shortcuts/"><u>In 2024, Mastering Video Success A List of 20 Pro Shortcuts</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/optimizing-patient-outcomes-with-ai-in-cognitive-therapy/"><u>Optimizing Patient Outcomes with AI in Cognitive Therapy</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/step-by-step-tutorial-on-saving-exact-timestamps-in-online-videos-as-bookmarks/"><u>Step-by-Step Tutorial on Saving Exact Timestamps in Online Videos as Bookmarks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-guide-to-youtube-fame-with-spectacular-music-videos/"><u>The Ultimate Guide to YouTube Fame with Spectacular Music Videos</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/whats-new-in-the-macbook-pro-m3-explore-specs-pricing-and-upcoming-release-date-info/"><u>What's New in the MacBook Pro M3? Explore Specs, Pricing and Upcoming Release Date Info</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-enrich-your-photographic-expression-techniques-for-inserting-text-onto-images/"><u>[Updated] In 2024, Enrich Your Photographic Expression Techniques for Inserting Text Onto Images</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-photo-to-pixellated-panels-pro-windows-and-mac-edition/"><u>[Updated] In 2024, Photo to Pixellated Panels Pro Windows & Mac Edition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/10-most-inspiring-yoga-channels-on-the-web-for-2024/"><u>10 Most Inspiring Yoga Channels on the Web for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/authenticating-a-step-by-step-for-youtube-users-for-2024/"><u>Authenticating A Step-by-Step for Youtube Users for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/chronic-removal-method-for-youtubes-bite-sized-videos/"><u>Chronic Removal Method for YouTube's Bite-Sized Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/como-convertir-archivo-wmv-a-formato-mp4-sin-coste-guia-para-windows-y-mac/"><u>Cómo Convertir Archivo WMV a Formato MP4 Sin Coste: Guía Para Windows Y Mac</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cultivating-commitment-gentle-subscription-strategies/"><u>Cultivating Commitment Gentle Subscription Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cut-costs-and-boost-creativity-8-online-spots-offering-free-eco-backdrops-for-2024/"><u>Cut Costs and Boost Creativity 8 Online Spots Offering Free Eco-Backdrops for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discover-your-favorite-6-premier-youtube-short-downloaders-for-2024/"><u>Discover Your Favorite 6 Premier YouTube Short Downloaders for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/earning-stream-start-small-see-big-on-youtube/"><u>Earning Stream Start Small, See Big on YouTube</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Samsung Galaxy F34 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-xiaomi-redmi-k70-pro-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Xiaomi Redmi K70 Pro by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-deciphering-the-coded-language-of-concealed-youtube-movies/"><u>In 2024, Deciphering the Coded Language of Concealed YouTube Movies</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-oneplus-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on OnePlus to Protect Your Individual Information</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-audio-test-failure-immediate-action-plan/"><u>Windows Audio Test Failure: Immediate Action Plan</u></a></li>
 </ul></div>
 

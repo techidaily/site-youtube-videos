@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Boosting Views Through Imaginative Video Thumbnails"
-date: 2025-01-01T17:44:39.010Z
-updated: 2025-01-03T17:17:53.584Z
+date: 2025-01-05T18:37:01.708Z
+updated: 2025-01-10T18:38:34.794Z
 tags:
   - ai video
   - ai youtube
@@ -38,16 +38,12 @@ Here are 5 easy tips for creating thumbnails that get views.
 
  _Contest now closed._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -59,7 +55,7 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -69,7 +65,7 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -78,6 +74,10 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
@@ -85,7 +85,7 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -115,20 +115,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-achieving-perfect-reproduction-tips-for-exceptional-sound-capture/"><u>[New] Achieving Perfect Reproduction Tips for Exceptional Sound Capture</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-detailed-tips-for-adequate-lighting-in-youtube-video-production/"><u>[New] Detailed Tips for Adequate Lighting in YouTube Video Production</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-crafting-engaging-content-with-google-trends-analytics/"><u>[New] In 2024, Crafting Engaging Content with Google Trends Analytics</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtube-editing-made-easy-with-the-8-best-no-cost-software-options/"><u>[Updated] In 2024, YouTube Editing Made Easy with The 8 Best No-Cost Software Options</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-boosting-your-yt-subs-a-complete-strategy-guide/"><u>2024 Approved Boosting Your YT Subs A Complete Strategy Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-brighten-up-techniques-for-improving-video-lighting-on-youtube/"><u>2024 Approved Brighten Up Techniques for Improving Video Lighting on YouTube</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/a-comprehensive-review-of-next-gen-camera-systems-for-2024/"><u>A Comprehensive Review of Next-Gen Camera Systems for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-tecno-spark-20-pro-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Tecno Spark 20 Pro FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/explore-better-than-sharex-a-guide-for-2024/"><u>Explore Better Than ShareX - A Guide for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-vivo-x100-pro-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Vivo X100 Pro IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/leading-network-augmentation-devices-for-more-ports-and-quickness/"><u>Leading Network Augmentation Devices for More Ports and Quickness</u></a></li>
-<li><a href="https://win-able.techidaily.com/mastering-valorant-mechanics-solutions-for-stutter-free-gaming-and-optimal-frame-rates/"><u>Mastering Valorant Mechanics: Solutions for Stutter-Free Gaming and Optimal Frame Rates</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-money-via-online-video-platforms/"><u>Maximizing Money via Online Video Platforms</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/photo-pinnacle-insta-coverage-excellence-on-ios-and-android-for-2024/"><u>Photo Pinnacle Insta Coverage Excellence on iOS & Android for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/watch-more-not-less-secrets-to-free-youtube-gains/"><u>Watch More, Not Less Secrets to Free YouTube Gains</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-a-comprehensive-walkthrough-for-embedding-youtube-plays-in-web-design/"><u>[New] A Comprehensive Walkthrough for Embedding YouTube Plays in Web Design</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-creating-content-with-purpose-balancing-job-and-youtube/"><u>[New] Creating Content with Purpose Balancing Job & YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-creating-stunning-youtube-openings-best-tools-list/"><u>[New] Creating Stunning YouTube Openings - Best Tools List</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-quick-tip-find-your-youtube-comments-anytime-anywhere/"><u>[New] In 2024, Quick Tip Find Your YouTube Comments Anytime, Anywhere</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-download-necessary-youtube-to-gif-conversion-made-easy-for-2024/"><u>[New] No Download Necessary YouTube-to-GIF Conversion Made Easy for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-easy-to-navigate-top-10-youtube-downloader-tools/"><u>[Updated] Easy-to-Navigate Top 10 YouTube Downloader Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-your-youtube-presence-with-ideal-video-formats/"><u>[Updated] Elevating Your YouTube Presence with Ideal Video Formats</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-compreehensive-guide-to-youtube-thumbnail-creation-mac/"><u>2024 Approved A Compreehensive Guide to YouTube Thumbnail Creation (Mac)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-digital-content-excellence-through-effective-screencasts/"><u>2024 Approved Digital Content Excellence Through Effective Screencasts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-market-mastery-strategys-first-impressions/"><u>2024 Approved Market Mastery Strategy's First Impressions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channel-collaboration-unified-watch-experience-across-platforms/"><u>Channel Collaboration Unified Watch Experience Across Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/create-compelling-animation-subscribe-bars-for-your-youtube-channel-filmora-for-2024/"><u>Create Compelling Animation Subscribe Bars for Your YouTube Channel (Filmora) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ying-google-trends-to-discover-compelling-video-themes/"><u>Employing Google Trends to Discover Compelling Video Themes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-youtube-tagging-strategies-for-optimal-visibility/"><u>Essential YouTube Tagging Strategies for Optimal Visibility</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-lava-blaze-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-honor-x8b-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Honor X8b FRP</u></a></li>
+<li><a href="https://win-tips.techidaily.com/maximize-your-pcs-potential-effective-techniques-for-expanding-hard-drive-capacity-and-enhancing-system-speed-yl-solutions/"><u>Maximize Your PC's Potential: Effective Techniques for Expanding Hard Drive Capacity and Enhancing System Speed - YL Solutions</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-nokia-c12-plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Nokia C12 Plus | Dr.fone</u></a></li>
 </ul></div>
 

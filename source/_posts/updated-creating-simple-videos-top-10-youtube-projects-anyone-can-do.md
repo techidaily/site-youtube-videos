@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2025-01-03T00:55:04.301Z
-updated: 2025-01-03T19:04:20.302Z
+date: 2025-01-05T18:27:00.547Z
+updated: 2025-01-10T19:29:56.722Z
 tags:
   - ai video
   - ai youtube
@@ -47,15 +47,15 @@ Let the world know who you are and what you do. If you are planning on starting 
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Vlog About Your Day
 
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
 
 Strive to make visually dynamic videos, because just sitting or standing and talking in front of a camera for a few minutes isn't going to create much on-screen action.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Express An Opinion
 
@@ -71,15 +71,15 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. What’s on Your Phone?
 
@@ -88,7 +88,7 @@ There were over two billion smartphone users worldwide in 2017, and this number 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
@@ -98,7 +98,7 @@ There's no need to constantly produce new videos because you can just take some 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Make a Tutorial
@@ -106,6 +106,10 @@ If you are a photography enthusiast you can also plan the entire slideshow in ad
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9\. 10 Things About You
 
@@ -129,10 +133,6 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -148,21 +148,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-breakthrough-strategies-for-peak-video-viewership-times/"><u>[New] Breakthrough Strategies for Peak Video Viewership Times</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-earning-through-online-beauty-networks/"><u>[New] Earning Through Online Beauty Networks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-11-zero-cost-youtube-moniker-makers/"><u>[New] Essential 11 Zero-Cost YouTube Moniker Makers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-strategies-for-profitable-youtube-videos/"><u>[New] Essential Strategies for Profitable YouTube Videos</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-iphone-time-lapse-101-minimizing-wait-times/"><u>[New] IPhone Time Lapse 101 Minimizing Wait Times</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-screencast-insights-101-key-concepts-for-video-creators/"><u>[New] Screencast Insights 101 Key Concepts for Video Creators</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-budget-friendly-1-decade-of-excellent-desktop-recorders/"><u>[Updated] Budget-Friendly #1 Decade of Excellent Desktop Recorders</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-from-novice-to-pro-ps4-recordings-using-obs-studio/"><u>[Updated] In 2024, From Novice to Pro PS4 Recordings Using OBS Studio</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-simplified-process-for-posting-imovie-videos-on-vimeo/"><u>[Updated] Simplified Process for Posting iMovie Videos on Vimeo</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-earnings-expertise-on-streaming-services-the-ultimate-guide/"><u>2024 Approved Earnings Expertise on Streaming Services The Ultimate Guide</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-unmatched-ride-quality-of-the-tenways-cgo60/"><u>Discover the Unmatched Ride Quality of the Tenways CGO60</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-are-there-benefits-to-purchasing-youtube-engagement/"><u>In 2024, Are There Benefits to Purchasing YouTube Engagement?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/is-sns-hdr-pro-the-gold-standard-for-hdr-editors/"><u>Is SNS HDR Pro the Gold Standard for HDR Editors?</u></a></li>
-<li><a href="https://win11.techidaily.com/obscuring-linguistic-icon-on-win11s-status-bar/"><u>Obscuring Linguistic Icon on Win11's Status Bar</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/pixel-9xl-vs-iphone-15-pro-photography-face-off-reveals-unexpected-victor-insights-and-analysis/"><u>Pixel 9XL vs iPhone 15 Pro Photography Face-Off Reveals Unexpected Victor – Insights & Analysis</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/professional-level-content-structure-with-expert-templates/"><u>Professional-Level Content Structure with Expert Templates</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevating-views-amplifying-impact-a-youtube-case-study/"><u>[New] Elevating Views, Amplifying Impact A Youtube Case Study</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssential-insights-on-youtube-tvs-unique-features-for-2024/"><u>[New] Essential Insights on YouTube TV's Unique Features for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-best-practices-in-selecting-youtube-video-extractor-apps-for-android/"><u>[Updated] Best Practices in Selecting YouTube Video Extractor Apps for Android</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-optimal-choices-in-monitors-for-ps5-gamers/"><u>[Updated] Optimal Choices in Monitors for PS5 Gamers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/10-power-players-youtubes-ladies-in-gaming/"><u>10 Power Players YouTube's Ladies in Gaming</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-secrets-of-speed-instant-background-cleanse-techniques/"><u>In 2024, Secrets of Speed Instant Background Cleanse Techniques</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unveiling-top-7-adblocker-apps-for-android-users/"><u>In 2024, Unveiling Top 7 AdBlocker Apps for Android Users</u></a></li>
+<li><a href="https://os-tips.techidaily.com/solutions-for-a-invalid-sim-error-on-your-iphone-comprehensive-fix-guide/"><u>Solutions for a 'Invalid SIM' Error on Your iPhone: Comprehensive Fix Guide</u></a></li>
+<li><a href="https://techidaily.com/stellar-data-recovery-for-iphone-failed-to-recognize-my-iphone-how-to-fix-it-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Stellar Data Recovery for iPhone failed to recognize my iPhone. How to fix it? | Stellar</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/strategic-hash-tags-chart-your-way-to-60000-in-views/"><u>Strategic Hash Tags Chart Your Way to $60,000 in Views</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-guide-for-game-channels-banner-integration/"><u>The Essential Guide for Game Channels Banner Integration</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Xiaomi Civi 3 Disney 100th Anniversary Edition? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/virtual-world-bliss-an-lg-360-vr-reveal/"><u>Virtual World Bliss An LG 360 VR Reveal</u></a></li>
 </ul></div>
 
