@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2025-01-04T16:12:38.052Z
-updated: 2025-01-10T18:37:28.643Z
+date: 2025-01-15T04:31:23.191Z
+updated: 2025-01-15T16:19:04.355Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/a7b063e2c5f1e938dc6e32e2ce85c52239dfc8e77
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,22 +143,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-exploring-the-complexity-behind-youtube-view-counter/"><u>[New] 2024 Approved Exploring the Complexity Behind YouTube View Counter</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-cybernetic-salvation-reuniting-with-your-fb-world-for-2024/"><u>[New] Cybernetic Salvation Reuniting with Your FB World for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-top-15-youtube-openings-elevate-your-contents-impact/"><u>[New] In 2024, Top 15 YouTube Openings Elevate Your Content's Impact</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-sj6-mastery-showdown-sjcam-vs-xiaomis-yi-pro-4k-for-2024/"><u>[New] SJ6 Mastery Showdown SJCam Vs. Xiaomi's Yi Pro 4K for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-a-deep-dive-into-youtube-app-features-on-smartphones/"><u>[Updated] A Deep Dive Into YouTube App Features on Smartphones</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-navigating-the-past-accelerated-access-to-archived-content/"><u>[Updated] In 2024, Navigating the Past Accelerated Access to Archived Content</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-insiders-guide-to-altering-your-iphone-ringtones-for-2024/"><u>[Updated] The Insider's Guide to Altering Your iPhone Ringtones for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-10-viral-exercise-routines-to-keep-your-channel-thriving/"><u>2024 Approved 10 Viral Exercise Routines to Keep Your Channel Thriving</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/7-comedy-youtube-video-ideas-that-only-funny-people-are-allowed-to-try-for-2024/"><u>7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-iphone-and-android-photo-and-video-capture-applications-reviewed-for-2024/"><u>Best iPhone & Android Photo & Video Capture Applications Reviewed for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/compreendendo-o-formato-de-video-m4v-e-tecnicas-para-abertura-do-mp4/"><u>Compreendendo O Formato De Vídeo M4V E Técnicas Para Abertura Do MP4</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-your-content-youtube-video-editing-secrets-revealed/"><u>Elevate Your Content YouTube Video Editing Secrets Revealed</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-oppo-find-n3-flip-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Oppo Find N3 Flip to iPad | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-standard-studio-or-beta-progress/"><u>Mastering YouTube Standard Studio or Beta Progress</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Tecno Pop 7 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/premier-top-youtube-views-monitor-for-content-success/"><u>Premier Top YouTube Views Monitor for Content Success</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-best-youtube-equipment-what-you-need-to-start-your-channel/"><u>The Best YouTube Equipment What You Need to Start Your Channel</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-a-deep-dive-into-irecorder-tech/"><u>[Updated] A Deep Dive Into iRecorder Tech</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-best-mac-mp4-cutter-apps-enhance-video-editing/"><u>[Updated] Best Mac MP4 Cutter Apps Enhance Video Editing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/accessing-global-hitters-the-1-6-short-video-downloaders/"><u>Accessing Global Hitters The #1-#6 Short Video Downloaders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/earning-on-youtube-a-step-by-step-guide-for-newbies-for-2024/"><u>Earning on YouTube A Step-by-Step Guide for Newbies for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/edit-like-a-pro-with-these-top-5-mac-videography-suites-for-2024/"><u>Edit Like a Pro with These Top 5 Mac Videography Suites for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effortless-methods-amp-up-your-yt-video-quality/"><u>Effortless Methods Amp Up Your YT Video Quality</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/embracing-the-future-microsofts-commitment-to-gaming-on-arm-powered-windows-devices/"><u>Embracing the Future: Microsoft's Commitment to Gaming on ARM-Powered Windows Devices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/examining-youtubes-copyright-stance-versus-cc-approach/"><u>Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harnessing-on-screen-speech-for-language-growth/"><u>Harnessing On-Screen Speech for Language Growth</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-club-craft-how-to-download-best-dj-vids/"><u>In 2024, Club Craft How to Download Best DJ Vids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-editorprime-design/"><u>In 2024, EditorPrime Design</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-tecno-spark-20-proplus-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Tecno Spark 20 Pro+ Devices | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-spotting-no-replay-in-your-chat-history/"><u>In 2024, Spotting No Replay in Your Chat History</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-path-to-earning-through-youtube-a-creators-guide/"><u>In 2024, The Path to Earning Through YouTube A Creator's Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-ultimate-platform-pair-comparison-twitch-and-youtube-for-2024/"><u>The Ultimate Platform Pair Comparison Twitch and YouTube for 2024</u></a></li>
 </ul></div>
 

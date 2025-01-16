@@ -1,7 +1,7 @@
 ---
 title: Tackling Back 4 Blood's Infamous UE4 Error in Desert Wastelands of Gobi
-date: 2025-01-05T17:59:56.354Z
-updated: 2025-01-10T17:13:38.108Z
+date: 2025-01-11T06:01:24.769Z
+updated: 2025-01-16T10:07:08.449Z
 tags:
   - win11
   - win10
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/1215be7bf16e16d5f6b24b8264be95ca24fa72ef1
 
 Many Elite Dangerous players have been reporting the game crashing issue. It occurs randomly, at launch or mid-game, causing extreme annoyance. In this guide, we’ll take a look at Elite Dangerous crashing fixes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Fix Elite Dangerous Crashing
 
  Before going any further, it’s critical that you restart your computer first. A restart can clean away the current state of the software, which includes any issues that have occurred.
@@ -35,15 +31,15 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 6. **[Lower your graphics settings](https://tools.techidaily.com/drivereasy/download/)**
 7. **[Run the game in Windowed mode](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 1 – Ran the game as administrator
 
  Your PC may not give**Elite Dangerous or the game launcher** the necessary permissions they need to work correctly. You might run into game issues like game crashing in this case.
 
  Try running the game and the game launcher as administrator to see if it helps. If not, try the next solution.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 2 – Verify the integrity of game files
 
@@ -59,19 +55,23 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-09_10-38-23.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **4)** Click the **LOCAL FILES** tab, then click **VERIFY INTEGRITY OF GAME FILES** .
 
 This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-09_10-38-34.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **5)**  Relaunch your game to test the issue.
 
  Still failing? Try the next solution to update your graphics driver to the most recent version.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 3 – Update your graphics driver
 
@@ -99,9 +99,17 @@ This could take several minutes. Wait for the process to be complete.
 
  Relaunch the game to test your issue. If the crash still occurs, try the next fix below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 4 – Stop overclocking
 
  An unstable overclock will crash your game and the whole system. So, **if you’re overclocking your CPU or GPU, set the clock speed rate back to the default** to see if that resolves the crash issue. If it doesn’t, move on to the fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 5 – Disable unnecessary programs
 
@@ -115,17 +123,9 @@ This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_12-07-59.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **3)** Restart your game to see if it runs correctly now.
 
 Your game still won’t work correctly? Read on and try Fix 5.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 6 – Lower your graphics settings
 
@@ -147,13 +147,13 @@ If the crashing still happens, continue with the next solution below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-17_17-03-22.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **2)** Copy **%localappdata%Frontier DevelopmentsElite DangerousOptionsGraphics** and paste it into the text box, then press**Enter** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-17_17-10-56.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **3)** Double-click**DisplaySettings.xml** to open the file.
 
@@ -182,22 +182,19 @@ If the crashing still happens, continue with the next solution below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-transform-and-edit-videos-like-a-pro-with-these-iphonepc-tools/"><u>[New] Transform and Edit Videos Like a Pro With These iPhone/PC Tools</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-essential-pc-editing-skills-for-compelling-youtube-videos/"><u>[Updated] 2024 Approved Essential PC Editing Skills for Compelling YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-delving-into-tseries-streaming-revenue-model-on-youtube/"><u>[Updated] Delving Into TSeries' Streaming Revenue Model on YouTube</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-customizing-video-assets-for-instagram-mastery/"><u>[Updated] In 2024, Customizing Video Assets for Instagram Mastery</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enriched-tv-experience-seamlessly-looping-online-content/"><u>2024 Approved Enriched TV Experience Seamlessly Looping Online Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-comprehensive-look-at-editing-and-uploading-virtual-reality-videos-to-youtube/"><u>A Comprehensive Look at Editing and Uploading Virtual Reality Videos to YouTube</u></a></li>
-<li><a href="https://techtrends.techidaily.com/effortlessly-rip-your-dvds-with-winx-dvd-ripper-free-compatible-with-iphone-android-and-more/"><u>Effortlessly Rip Your DVDs with WinX DVD Ripper (Free) - Compatible with iPhone, Android, and More!</u></a></li>
-<li><a href="https://techidaily.com/how-to-enable-compatibility-mode-for-legacy-software-on-windows-11/"><u>How to Enable Compatibility Mode for Legacy Software on Windows 11</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/how-to-video-exporting-and-integrating-resurrected-edb-data-into-live-exchange-environments/"><u>How-To Video: Exporting and Integrating Resurrected EDB Data Into Live Exchange Environments</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-dailymotion-vs-youtube-monetization-which-is-more-profitable/"><u>In 2024, Dailymotion vs YouTube Monetization Which Is More Profitable?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-top-15-youtube-movies-channels-for-you-to-kill-time/"><u>In 2024, Top 15 YouTube Movies Channels for You to Kill Time</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/infographic-analysis-the-hottest-2023-trends/"><u>Infographic Analysis The Hottest 2023 Trends</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/positive-reactions-in-a-world-of-negative-comments/"><u>Positive Reactions in a World of Negative Comments</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/select-from-the-leading-7-android-apps-to-eradicate-ads/"><u>Select From the Leading 7 Android Apps to Eradicate Ads</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/thors-bold-path-asgard-reborn-for-2024/"><u>Thor’s Bold Path Asgard Reborn for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/trim-the-excessive-green-revamping-youtubes-on-a-mac/"><u>Trim the Excessive Green Revamping YouTubes on a Mac</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-realme-gt-5-pro-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Realme GT 5 Pro? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-maximize-your-ios-for-ps2-gaming-with-best-emulators/"><u>[New] Maximize Your IOS for PS2 Gaming with Best Emulators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-bring-your-vision-online-mobilizing-content-creation-with-ease-and-simplicity/"><u>[Updated] Bring Your Vision Online Mobilizing Content Creation with Ease and Simplicity</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-cementing-climactic-conclusions/"><u>2024 Approved Cementing Climactic Conclusions</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigating-dual-display-the-netflix-floating-window-guide/"><u>2024 Approved Navigating Dual Display The Netflix Floating Window Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/current-must-see-athletic-adventures-on-screen-a-ranking-of-top-10-movies/"><u>Current Must-See Athletic Adventures on Screen: A Ranking of Top 10 Movies</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/enhance-your-smart-home-experience-with-the-limited-time-offer-on-amazons-30-echo-dot-the-perfect-budget-friendly-solution/"><u>Enhance Your Smart Home Experience with the Limited-Time Offer on Amazon's $30 Echo Dot: The Perfect Budget-Friendly Solution!</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211250159-9781954925090-eye-of-the-seeress-voice-of-the-poet/"><u>Eye of the Seeress / Voice of the Poet | Free Book</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/get-yours-today-elite-phone-screen-cleaner-for-iphones/"><u>Get Yours Today: Elite Phone Screen Cleaner for iPhones</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-samsung-galaxy-a25-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Samsung Galaxy A25 5G Phone?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-avoiding-content-id-alerts-strategies-on-youtube/"><u>In 2024, Avoiding Content ID Alerts Strategies on YouTube</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-infinix-note-30-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Infinix Note 30 FRP Bypass</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-revenue-division-on-youtube-shorts/"><u>Mastering Revenue Division on YouTube Shorts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/vlc-hacks-for-expanding-your-video-library-on-apple-tv-effortlessly/"><u>VLC Hacks for Expanding Your Video Library on Apple TV Effortlessly</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-earnings-guide-policy-updates-and-tips/"><u>YouTube Earnings Guide - Policy Updates & Tips</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2025-01-05T18:27:00.547Z
-updated: 2025-01-10T19:29:56.722Z
+date: 2025-01-08T22:21:23.121Z
+updated: 2025-01-15T16:48:15.661Z
 tags:
   - ai video
   - ai youtube
@@ -41,15 +41,15 @@ They say that less is more, so let's have a look at how you can apply this princ
 9. [10 Things About You](#nine)
 10. [Video Rant](#ten)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Introduce Yourself
 
 Let the world know who you are and what you do. If you are planning on starting a YouTube channel, or if you’ve already been posting videos on a topic but haven’t formally introduced yourself, it’s a great idea to put some thought into an introduction video. Producing such a YouTube video will enable you to introduce yourself to your future subscribers and give them an idea as to what your channel is all about.
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Vlog About Your Day
 
@@ -71,15 +71,15 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. What’s on Your Phone?
 
@@ -88,7 +88,7 @@ There were over two billion smartphone users worldwide in 2017, and this number 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
@@ -97,10 +97,6 @@ There's no need to constantly produce new videos because you can just take some 
 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 8\. Make a Tutorial
 
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
@@ -108,7 +104,7 @@ Education is our only hope for a better world so if you know how to do something
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. 10 Things About You
@@ -116,6 +112,10 @@ YouTube channels that feature tutorials often have millions of followers, becaus
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Video Rant
 
@@ -148,18 +148,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-elevating-views-amplifying-impact-a-youtube-case-study/"><u>[New] Elevating Views, Amplifying Impact A Youtube Case Study</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ssential-insights-on-youtube-tvs-unique-features-for-2024/"><u>[New] Essential Insights on YouTube TV's Unique Features for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-best-practices-in-selecting-youtube-video-extractor-apps-for-android/"><u>[Updated] Best Practices in Selecting YouTube Video Extractor Apps for Android</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-optimal-choices-in-monitors-for-ps5-gamers/"><u>[Updated] Optimal Choices in Monitors for PS5 Gamers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/10-power-players-youtubes-ladies-in-gaming/"><u>10 Power Players YouTube's Ladies in Gaming</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-secrets-of-speed-instant-background-cleanse-techniques/"><u>In 2024, Secrets of Speed Instant Background Cleanse Techniques</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-unveiling-top-7-adblocker-apps-for-android-users/"><u>In 2024, Unveiling Top 7 AdBlocker Apps for Android Users</u></a></li>
-<li><a href="https://os-tips.techidaily.com/solutions-for-a-invalid-sim-error-on-your-iphone-comprehensive-fix-guide/"><u>Solutions for a 'Invalid SIM' Error on Your iPhone: Comprehensive Fix Guide</u></a></li>
-<li><a href="https://techidaily.com/stellar-data-recovery-for-iphone-failed-to-recognize-my-iphone-how-to-fix-it-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Stellar Data Recovery for iPhone failed to recognize my iPhone. How to fix it? | Stellar</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/strategic-hash-tags-chart-your-way-to-60000-in-views/"><u>Strategic Hash Tags Chart Your Way to $60,000 in Views</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-essential-guide-for-game-channels-banner-integration/"><u>The Essential Guide for Game Channels Banner Integration</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Xiaomi Civi 3 Disney 100th Anniversary Edition? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/virtual-world-bliss-an-lg-360-vr-reveal/"><u>Virtual World Bliss An LG 360 VR Reveal</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-elevate-your-channels-image-for-boosted-youtube-subscriptions/"><u>[New] 2024 Approved Elevate Your Channels' Image for Boosted YouTube Subscriptions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-blueprint-for-successful-biographies-top-tips-and-techniques-from-experts/"><u>2024 Approved The Blueprint for Successful Biographies Top Tips & Techniques From Experts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-pros-handbook-to-youtube-income-multiplatform-use/"><u>A Pro's Handbook to YouTube Income Multiplatform Use</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/decoding-and-practicing-with-creative-commons-licenses/"><u>Decoding and Practicing with Creative Commons Licenses</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elites-free-guide-to-10-caption-download-tools/"><u>Elite's Free Guide to 10 Caption Download Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-filmmaking-software-exploration-for-2024/"><u>Essential Filmmaking Software Exploration for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Vivo S17 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-behind-the-scenes-expert-video-editing-techniques-for-youtubers/"><u>In 2024, Behind the Scenes Expert Video Editing Techniques for YouTubers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-best-practices-for-boosting-views-on-freefire-gaming-channels/"><u>In 2024, Best Practices for Boosting Views on FreeFire Gaming Channels</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-locked-apple-iphone-se-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Forgot Locked Apple iPhone SE Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-poco-c50-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Poco C50 Pattern Lock Screen</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-s18-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo S18 Phone FRP Lock</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-free-video-editing-software-for-dummies-top-picks-for-easy-edits/"><u>New In 2024, Free Video Editing Software for Dummies Top Picks for Easy Edits</u></a></li>
+<li><a href="https://driver-install.techidaily.com/reviving-nvidia-support-in-windows-environment/"><u>Reviving NVIDIA Support in Windows Environment</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/tackling-teal-turmoil-eliminate-green-screen-glitches-mac-edition/"><u>Tackling Teal Turmoil Eliminate Green Screen Glitches (Mac Edition)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-rated-dj-templates-free-access-for-music-makers/"><u>Top-Rated DJ Templates Free Access for Music Makers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/video-mastery-leading-text-manipulations/"><u>Video Mastery Leading Text Manipulations</u></a></li>
 </ul></div>
 

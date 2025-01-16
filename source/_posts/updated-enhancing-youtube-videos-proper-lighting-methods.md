@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing YouTube Videos  Proper Lighting Methods\""
-date: 2025-01-06T19:24:10.036Z
-updated: 2025-01-10T16:24:54.439Z
+date: 2025-01-12T02:40:13.509Z
+updated: 2025-01-15T18:24:02.297Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,13 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 | Table of Contents [Using Light You Already Have](#USING-LIGHT-YOU-ALREADY-HAVE) [Window Lighting](#Window-Lighting)[Home Lighting](#Home-Lighting) [Home Studio Lighting](#HOME-STUDIO-LIGHTING) [Light Control](#Light-Control)[3-Point Lighting](#Three-Point-Lighting)[4-Point Lighting](#four-point-lighting) |
 | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Using Light You Already Have
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1.  Window Lighting
 
@@ -52,10 +52,6 @@ Window lighting for me was especially difficult to work with because I live in a
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
@@ -69,17 +65,9 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1. Light Control
 
@@ -90,6 +78,10 @@ The first thing you’ll want to do to set up studio lighting in your home is to
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -106,7 +98,7 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
@@ -115,7 +107,15 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -132,18 +132,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-crafting-compelling-end-screens-in-youtube-videos/"><u>[New] Crafting Compelling End Screens in YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-presentations-add-youtube-in-google-slides/"><u>[New] Elevate Presentations - Add YouTube in Google Slides</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-top-8-android-platforms-revolutionizing-large-calls-for-2024/"><u>[New] Top 8 Android Platforms Revolutionizing Large Calls for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-hits-and-tags-mastering-the-language-of-virality-in-youtube-shorts/"><u>[Updated] 2024 Approved Hits & Tags Mastering the Language of Virality in YouTube Shorts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-deciphering-past-visual-content-inverse-queries-and-fb-techniques/"><u>[Updated] Deciphering Past Visual Content Inverse Queries and FB Techniques</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-speeding-up-instagram-content-consumption/"><u>[Updated] In 2024, Speeding Up Instagram Content Consumption</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-visionary-viewing-10-high-res-screens/"><u>2024 Approved Visionary Viewing #10 High-Res Screens</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/achieving-financial-freedom-joshis-youtube-tactics-for-2024/"><u>Achieving Financial Freedom Joshi’s YouTube Tactics for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/high-performance-screen-recorders-for-windows-users-for-2024/"><u>High-Performance Screen Recorders for Windows Users for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-engaging-youtube-summaries-with-tailored-templates/"><u>In 2024, Engaging YouTube Summaries with Tailored Templates</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-noise-reduction-for-videographers-best-freepriced-choices/"><u>In 2024, Noise Reduction for Videographers Best Free/Priced Choices</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/making-a-splash-with-youtube-ad-banners-and-thumbnails/"><u>Making a Splash with YouTube Ad Banners & Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716465132998-your-life-your-legacy-youtube-videos-that-matter/"><u>Your Life, Your Legacy YouTube Videos That Matter.</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unlock-the-secrets-of-effective-video-cropping-for-instagram/"><u>[New] 2024 Approved Unlock the Secrets of Effective Video Cropping for Instagram</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dialing-in-on-youtube-success-identifying-ranks-boosters/"><u>[New] Dialing in on YouTube Success Identifying Ranks Boosters</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>[New] Enhance Your Presence Best Free Tools for Intriguing Openings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aster-your-youtube-banner-essential-guide-for-creators-for-2024/"><u>[New] Master Your YouTube Banner Essential Guide for Creators for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-streamline-your-viewing-experience-how-to-use-floating-window-on-netflix/"><u>[New] Streamline Your Viewing Experience How To Use Floating Window on Netflix</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-prime-racing-thrills-quintet-of-choice/"><u>[Updated] 2024 Approved Prime Racing Thrills Quintet of Choice</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-complete-guide-to-aspect-ratios-about-youtube-videosshortsads/"><u>[Updated] Complete Guide to Aspect Ratios About YouTube Videos/Shorts/Ads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-early-birds-youtube-strategies-for-channel-and-revenue/"><u>[Updated] Early Bird's Youtube Strategies for Channel and Revenue</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-ideal-devices-for-capturing-stellar-videos-on-the-move/"><u>[Updated] Ideal Devices for Capturing Stellar Videos on the Move</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-sound-windows-10-recorder-tips/"><u>[Updated] Mastering Sound Windows 10 Recorder Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-your-videos-effective-titles-and-keywords-on-youtube/"><u>2024 Approved Enhance Your Videos Effective Titles and Keywords on YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-synthetic-adventures-starts-here-top-vr-tools-10/"><u>2024 Approved Synthetic Adventures Starts Here Top VR Tools (10)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/efficient-tools-simplifying-the-task-of-feedback-erasure/"><u>Efficient Tools Simplifying the Task of Feedback Erasure</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-oneplus-ace-2-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset OnePlus Ace 2 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-discover-the-best-tools-and-tips-to-accurately-tag-your-videos/"><u>In 2024, Discover the Best Tools & Tips to Accurately Tag Your Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unlocking-canvas-potential-10-secrets-for-professionals/"><u>In 2024, Unlocking Canvas Potential - 10 Secrets for Professionals</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-methodical-path-to-discovering-hidden-youtube-footage/"><u>The Methodical Path to Discovering Hidden YouTube Footage</u></a></li>
 </ul></div>
 

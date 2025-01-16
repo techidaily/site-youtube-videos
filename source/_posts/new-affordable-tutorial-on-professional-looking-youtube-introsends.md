@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2025-01-04T19:42:29.724Z
-updated: 2025-01-10T18:23:56.078Z
+date: 2025-01-11T01:22:12.522Z
+updated: 2025-01-16T06:37:32.999Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/7c8eb4a6751ebbb720d8baa15eb6264cc6e760acb
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,17 +143,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-best-free-youtube-comment-finder-you-should-try/"><u>[New] Best Free YouTube Comment Finder You Should Try</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-ultimate-guide-to-pcs-and-macs-best-recorders/"><u>[Updated] In 2024, Ultimate Guide to PC's and Mac's Best Recorders</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-glimpses-identifying-who-sees-your-pics/"><u>[Updated] Instagram Glimpses Identifying Who Sees Your Pics</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2023-compendium-of-techniques-to-archive-your-online-interactions/"><u>2023 Compendium of Techniques to Archive Your Online Interactions</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-cutting-edge-gaming-setup-unpacking-samsungs-ue590-panel/"><u>2024 Approved Cutting Edge Gaming Setup Unpacking Samsung's UE590 Panel</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-unlock-iphone-7-plus-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>3 Ways to Unlock iPhone 7 Plus without Passcode or Face ID | Dr.fone</u></a></li>
-<li><a href="https://win-hot.techidaily.com/complete-users-manual-mastering-data-transfer-with-usmt-in-windows-11-and-beyond/"><u>Complete User's Manual: Mastering Data Transfer with USMT in Windows 11 and Beyond</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-10-tricks-for-turning-youtube-watchlists-around/"><u>In 2024, 10 Tricks for Turning YouTube Watchlists Around</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/monetize-your-youtube-shorts-essentials-possible-income/"><u>Monetize Your Youtube Shorts Essentials, Possible Income</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/the-sealed-snap-chronicles-an-experts-guidebook/"><u>The Sealed Snap Chronicles An Expert's Guidebook</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/uncovering-hidden-treasures-expert-tips-for-tracking-and-retrieving-missing-gmail-emails/"><u>Uncovering Hidden Treasures: Expert Tips for Tracking and Retrieving Missing Gmail Emails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/video-earning-excellence-mastering-youtube-monetization-anywhere/"><u>Video Earning Excellence Mastering YouTube Monetization Anywhere</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-effective-multitasking-during-podcast-engagement/"><u>[New] Effective Multitasking During Podcast Engagement</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-best-8-platforms-for-professional-linux-editing/"><u>[Updated] Best 8 Platforms for Professional Linux Editing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-privacy-first-reader-of-facebook-snapshots/"><u>[Updated] Privacy-First Reader of Facebook Snapshots</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-10-best-fitness-channels-for-yogis/"><u>2024 Approved 10 Best Fitness Channels for Yogis</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-channels-growth-strategies-for-effective-trailers/"><u>Boosting Channels' Growth Strategies for Effective Trailers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ning-striking-valorant-thumbnails-for-online-platforms/"><u>Designing Striking Valorant Thumbnails for Online Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/embedding-yt-playlists-seamlessly-on-webpages/"><u>Embedding YT Playlists Seamlessly on Webpages</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-top-6-screen-recorder-no-ads-for-android/"><u>In 2024, Top 6 Screen Recorder No Ads for Android</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/instant-guide-image-to-thumbnail-magic-for-your-youtube-channel/"><u>Instant Guide Image-To-Thumbnail Magic for Your YouTube Channel</u></a></li>
+<li><a href="https://discover-help.techidaily.com/methods-transferring-and-outlook-folders/"><u>Methods, Transferring, and Outlook Folders.</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/perfecting-the-pause-how-to-craft-exceptional-slow-motion-videos/"><u>Perfecting the Pause How to Craft Exceptional Slow Motion Videos</u></a></li>
+<li><a href="https://common-error.techidaily.com/solve-your-streaming-woes-permanent-fix-for-kodi-stutter-and-buffering/"><u>Solve Your Streaming Woes: Permanent Fix for Kodi Stutter & Buffering</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-visionaries-of-video-workshop/"><u>The Visionaries of Video Workshop</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transfer-tactics-efficiently-getting-data-on-your-computer-for-2024/"><u>Transfer Tactics Efficiently Getting Data On Your Computer for 2024</u></a></li>
 </ul></div>
 

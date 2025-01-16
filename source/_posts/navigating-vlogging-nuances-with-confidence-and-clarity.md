@@ -1,7 +1,7 @@
 ---
 title: "Navigating Vlogging Nuances with Confidence and Clarity"
-date: 2025-01-07T19:36:40.273Z
-updated: 2025-01-10T18:10:53.813Z
+date: 2025-01-15T11:36:42.081Z
+updated: 2025-01-16T08:46:57.414Z
 tags:
   - ai video
   - ai youtube
@@ -30,10 +30,6 @@ For most people, vlogging is not something that comes naturally. Like any skill,
 
 When we watch the most popular YouTubers, the traits that make them successful are often invisible, because we are so consumed by their vlog. In this article, I’ll highlight 8 tips from the most accomplished vloggers on the Internet, so that you can vlog confidently and make the best YouTube videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -45,7 +41,7 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
@@ -58,10 +54,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -70,6 +62,10 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -77,10 +73,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -94,6 +86,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -104,6 +100,10 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -113,6 +113,10 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -138,10 +142,6 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -159,22 +159,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-elevating-your-youtube-stream-the-wirecast-way/"><u>[New] Elevating Your YouTube Stream The WireCast Way</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-15-pioneering-youtube-tutorials-for-flawless-product-reviews/"><u>[Updated] 15 Pioneering YouTube Tutorials for Flawless Product Reviews</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-breathing-life-into-images-mastering-face-motion-blur-in-picsart/"><u>[Updated] Breathing Life Into Images Mastering Face Motion Blur in Picsart</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-clipmaster-software/"><u>[Updated] ClipMaster Software</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-practices-for-youtube-video-marketing/"><u>2024 Approved Best Practices for YouTube Video Marketing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-compile-of-free-high-quality-sound-clips-for-videos/"><u>2024 Approved Compile of Free, High-Quality Sound Clips for Videos</u></a></li>
-<li><a href="https://win11.techidaily.com/advanced-tips-for-seamless-windows-partition-merging/"><u>Advanced Tips for Seamless Windows Partition Merging</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apples-portable-powerhouse-unveiled-in-depth-review-of-the-ipad-mini-5/"><u>Apple's Portable Powerhouse Unveiled: In-Depth Review of the iPad Mini 5</u></a></li>
-<li><a href="https://fox-making.techidaily.com/bypassing-iphone-activation-locks-methods-for-users-and-non-users-of-itunes/"><u>Bypassing iPhone Activation Locks: Methods for Users and Non-Users of iTunes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-aspect-ratios-for-effective-youtube-videos-for-2024/"><u>Decoding Aspect Ratios for Effective YouTube Videos for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722968496292-easy-fixes-to-get-your-epson-xp-830-driver-downloaded-today/"><u>Easy Fixes to Get Your Epson XP-830 Driver Downloaded Today!</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-instagram-reload-trump-era/"><u>Facebook & Instagram Reload Trump Era</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/imagecraft-tools/"><u>ImageCraft Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-a-viral-video-journey-6-key-strategies-on-youtube/"><u>In 2024, Crafting a Viral Video Journey 6 Key Strategies on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-youtube-visibility-with-key-hashtags/"><u>Maximizing YouTube Visibility with Key #Hashtags</u></a></li>
-<li><a href="https://games-able.techidaily.com/move-to-another-continent-with-a-press-of-buttons/"><u>Move to Another Continent with a Press of Buttons</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ts-to-profitability-on-youtube-shorts-fundamentals-and-future-earnings-for-2024/"><u>Secrets to Profitability on YouTube Shorts Fundamentals & Future Earnings for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-amplify-your-channel-effortless-tactics-for-more-views/"><u>[New] Amplify Your Channel Effortless Tactics for More Views</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-common-youtube-shorts-when-thumbnails-disappear-without-notice/"><u>[New] Common YouTube Shorts When Thumbnails Disappear Without Notice</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-from-novice-to-pro-expert-tips-for-spotifys-advertisers/"><u>[Updated] 2024 Approved From Novice to Pro Expert Tips for Spotify's Advertisers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-anime-in-the-sunshine-the-best-youtubers-for-positivity-top-15/"><u>[Updated] Anime in the Sunshine The Best YouTubers for Positivity [Top 15]</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-zte-nubia-flip-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor ZTE Nubia Flip 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-confidence-against-youtube-critiques/"><u>Building Confidence Against YouTube Critiques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-amazon-fire-tablet-and-ipad-choosing-the-perfect-device/"><u>Comparing Amazon Fire Tablet and iPad: Choosing the Perfect Device</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/customize-video-speed-to-match-your-desired-watch-time/"><u>Customize Video Speed to Match Your Desired Watch Time</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-update-drivers-for-canon-pixma-mg2522-printer/"><u>Download & Update Drivers for Canon PIXMA MG2522 Printer</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/effortlessly-capture-and-archive-your-favorite-fb-story-moments/"><u>Effortlessly Capture and Archive Your Favorite FB Story Moments</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/expedite-youtube-video-submission-rapid-rendering-secrets/"><u>Expedite YouTube Video Submission Rapid Rendering Secrets</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-crafting-comedy-mastering-kinemaster/"><u>In 2024, Crafting Comedy Mastering KineMaster</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-ultimate-guide-to-swift-periscope-broadcasting/"><u>The Ultimate Guide to Swift Periscope Broadcasting</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/1728491070907-windows-11/"><u>Windows 11でオフライブドキュメントの同期：最新手順ガイド</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-star-level-stabilization-tools-listed/"><u>YouTube Star-Level Stabilization Tools Listed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-video-aspect-ratio-guide-optimal-upload-sizes-for-2024/"><u>YouTube Video Aspect Ratio Guide Optimal Upload Sizes for 2024</u></a></li>
 </ul></div>
 

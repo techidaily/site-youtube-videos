@@ -1,7 +1,7 @@
 ---
 title: "\"Unlocking High-Profile Discussions\""
-date: 2025-01-08T19:39:48.465Z
-updated: 2025-01-10T18:27:55.655Z
+date: 2025-01-13T18:12:49.618Z
+updated: 2025-01-15T17:03:24.818Z
 tags:
   - ai video
   - ai youtube
@@ -54,10 +54,6 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -65,7 +61,7 @@ YouTube has been working on improving the navigation of the comment section for 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
@@ -73,7 +69,7 @@ YouTube labels comment replies as well and call it "Highlighted Reply." You can 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
@@ -92,11 +88,11 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
 ## Part 5: How to Reply to Highlighted Comments?
 
@@ -121,7 +117,7 @@ Alternatively, you can try out a few temporary solutions.
 1. Try logging out from your Google Account and browse YouTube (anonymously). Doing this will ensure that you no longer see any highlighted comments. However, at the same time, this will restrict you from interacting in any way with that video, let alone leaving a comment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 7: Tips for Writing a Comment that will be Pinned as a Highlighted Comment?
@@ -154,6 +150,10 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -169,22 +169,14 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-grand-revelations-in-cinema-trailers/"><u>[New] Grand Revelations in Cinema Trailers</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-refined-zoom-sound-for-flawless-listening-experience/"><u>[New] In 2024, Refined Zoom Sound for Flawless Listening Experience</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/imestamping-your-youtube-videos-desktop-and-mobile-guide-for-2024/"><u>[New] Timestamping Your YouTube Videos Desktop & Mobile Guide for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-crafting-allure-in-online-visuals-for-beauty/"><u>[Updated] Crafting Allure in Online Visuals for Beauty</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-comprehensive-instructions-for-disposing-of-video-downloads/"><u>2024 Approved Comprehensive Instructions for Disposing of Video Downloads</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-crescendo-video-tips-for-music-loving-snapchaters/"><u>2024 Approved Crescendo Video Tips for Music-Loving Snapchaters</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-deconstructing-the-revenue-stream-of-tseries-in-youtube-economy/"><u>2024 Approved Deconstructing the Revenue Stream of TSeries in YouTube Economy</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-diy-guide-zero-cost-youtube-intros-and-template-usage/"><u>2024 Approved DIY Guide Zero Cost YouTube Intros & Template Usage</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-xiaomis-new-smartphone-screenshot-tool-a-game-changer-in-recording-tech/"><u>2024 Approved Xiaomi's New Smartphone Screenshot Tool A Game Changer in Recording Tech</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/deciphering-content-control-youtube-vs-creative-commons-license/"><u>Deciphering Content Control YouTube Vs. Creative Commons License</u></a></li>
-<li><a href="https://some-tips.techidaily.com/exploring-the-markets-elite-aquaproof-smartwatches-of-2024-thorough-testing-and-analysis-zdnet/"><u>Exploring the Market's Elite Aquaproof Smartwatches of 2024: Thorough Testing and Analysis | ZDNET</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-unknown-to-famous-boosting-video-views-on-youtube-step-by-step/"><u>From Unknown to Famous Boosting Video Views on YouTube Step-by-Step</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-transfer-video-from-youtube-to-dailymotion/"><u>How to Transfer Video From YouTube to Dailymotion?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-audio-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads/"><u>In 2024, Audio-to-Video Bridge Easy 3-Step Guide for MP3 to YouTube Uploads</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-blueprints-for-breaking-ground-in-edu-video-production-on-youtube-channels/"><u>In 2024, Blueprints for Breaking Ground in Edu-Video Production on YouTube Channels</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/prime-pixels-selecting-cameras-for-quality-slow-videos/"><u>Prime Pixels Selecting Cameras for Quality Slow Videos</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-choosing-the-ideal-led-floodlights-for-enhanced-home-safety-trends-of-2024/"><u>Ultimate Guide: Choosing the Ideal LED Floodlights for Enhanced Home Safety, Trends of 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-depth-vita-video-editing-analysis-and-step-by-step-guide/"><u>[New] In-Depth Vita Video Editing Analysis & Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unleash-creativity-with-iphones-top-10-free-aesthetic-photo-composer-tools/"><u>[New] Unleash Creativity with iPhone’s Top 10 Free, Aesthetic Photo Composer Tools</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-webcam-guardians-the-best-covers-reviewed/"><u>[New] Webcam Guardians The Best Covers Reviewed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-channel-riches-anywhere-adopting-youtube-analytics-and-monetization/"><u>2024 Approved Channel Riches Anywhere Adopting YouTube Analytics & Monetization</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-detailed-tips-for-adequate-lighting-in-youtube-video-production/"><u>2024 Approved Detailed Tips for Adequate Lighting in YouTube Video Production</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ensuring-legitimacy-of-your-youtube-sign-in-for-2024/"><u>Ensuring Legitimacy of Your YouTube Sign-In for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/hidden-pitfalls-investing-in-fraudulent-subscribers/"><u>Hidden Pitfalls Investing in Fraudulent Subscribers</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-fixes-for-when-outlook-wont-connect-to-the-server/"><u>Step-by-Step Fixes for When Outlook Won't Connect to the Server</u></a></li>
+<li><a href="https://techidaily.com/why-are-your-photos-lost-from-iphone-7-plus-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Why are your photos lost from iPhone 7 Plus? | Stellar</u></a></li>
 </ul></div>
 
