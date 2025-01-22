@@ -1,7 +1,7 @@
 ---
 title: Stop the Loop of Uninstalling Hardware Drivers by Nvidia
-date: 2025-01-15T11:30:20.193Z
-updated: 2025-01-15T23:17:52.290Z
+date: 2025-01-18T17:08:42.026Z
+updated: 2025-01-22T16:01:09.472Z
 tags:
   - win11
   - win10
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 ## Stop the Loop of Uninstalling Hardware Drivers by Nvidia
 
  Whenever you download and install a new**Nvidia driver** on your PC, it**keeps uninstalling itself** a few days later? Don’t worry, it’s fixable! And in most cases, the fix is pretty fast and simple…
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Try these fixes
 
@@ -40,26 +36,22 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59b08cdf4e.png)
 3. Click**System and Security** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59ba063ed0.jpg)
 4. Click**System** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59bd79ae6d.jpg)
 5. Click**Advanced system settings** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59c0e94e5d.jpg)
 6. Click the**Hardware** tab, then the**Device Installation Settings** button.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59cb552443.jpg)
 7. Select**No** , and click**Save changes** .  
@@ -67,12 +59,12 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5a1202b9e9.jpg)
 8. Click**OK** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5a2a572543.jpg)
 9. Go to the**NVIDIA Driver Downloads** page to download the needed driver for your Nvidia graphics card.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5994c83f8c.jpg)
 10. Open the downloaded file and follow the on-screen instructions to install the driver.
@@ -80,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 11. Restart your computer and check if the problem is resolved. If not, try Fix 2, below.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 2: Delete the logging file in your Windows Registry
 
@@ -89,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 
    ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5a9433a0fb.png)  
    3. Select and stop**all** Nvidia services.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
    ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5ae3f67690.jpg)
 2. You should also check that all Nvidia programs are ended:  
@@ -103,15 +103,15 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
    ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5b13e9cf85.png)  
    3. Navigate to the following path, then delete the**Logging** file:  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
    **HKEY\_LOCAL\_MACHINE\\SOFTWARE\\NVIDIA Corporation\\Logging**  
     **HKEY\_LOCAL\_MACHINE\\SOFTWARE\\Wow6432Node\\NVIDIA Corporation\\Logging**
 4. Visit the Nvidia website to download and install the needed driver. If you’re not confident playing around with drivers manually, you can, instead, update your Nvidia driver automatically with**Driver Easy** in Fix 3, below.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3: Update your Nvidia driver
 
@@ -125,13 +125,17 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 3. Click**Update** next to any flagged devices to automatically download the correct version of their drivers, then you can install them manually. Or click**Update All** to automatically download and install them all automatically. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. You get full support and a 30-day money back guarantee.)  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc58e7b30171.jpg)
 4. Restart your computer and check if your Nvidia driver now works properly. If it doesn’t, contact Driver Easy’s support team at**<support@drivereasy.com>** for further assistance. They’d be happy to help you. Or you can move on to Fix 4, below.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 4: Reinstall your Nvidia driver
 
@@ -142,10 +146,6 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5b6e7f170d.jpg)
 4. Restart your computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 5. When you’re back in Windows, repeat the steps in [**Fix** **2**](https://propmoneyinc.pxf.io/q4jzdy) above.
 
@@ -170,20 +170,21 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-seeking-the-finest-pixel-ringtones-online/"><u>[New] 2024 Approved Seeking the Finest Pixel Ringtones Online</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-dive-into-video-production-mastering-green-screens-on-yt/"><u>[New] Dive Into Video Production Mastering Green Screens on YT</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-embrace-cold-choosing-heated-backdrops-for-youtube/"><u>2024 Approved Embrace Cold Choosing Heated Backdrops for YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-transforming-youtube-descriptions-leveraging-template-power/"><u>2024 Approved Transforming YouTube Descriptions Leveraging Template Power</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-comprehensive-look-at-youtubes-adsense-mechanisms/"><u>A Comprehensive Look at YouTube's AdSense Mechanisms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/apple-media-access-and-download-youtube-videos-on-iphoneipad-for-2024/"><u>Apple Media Access and Download YouTube Videos on iPhone/iPad for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/building-your-own-youtube-organization-toolkit-the-watch-later-way/"><u>Building Your Own YouTube Organization Toolkit The Watch Later Way</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-vivo-v27-pro-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Vivo V27 Pro FRP Locks</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-realme-12-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Realme 12 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-a-curated-selection-best-stop-motion-movies-ever-made/"><u>In 2024, A Curated Selection Best Stop-Motion Movies Ever Made</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-dialing-in-on-youtube-success-identifying-ranks-boosters/"><u>In 2024, Dialing in on YouTube Success Identifying Ranks Boosters</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-unlock-the-power-of-referrals-how-to-build-effective-youtube-links/"><u>In 2024, Unlock the Power of Referrals How to Build Effective YouTube Links</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-income-average-adsense-payouts-per-thousand-viewers/"><u>Maximizing Income Average AdSense Payouts Per Thousand Viewers</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/trasforma-i-tuoi-immagini-jpg-in-formati-tiff-gratuiti-con-convertitore-online-di-movavi/"><u>Trasforma I Tuoi Immagini JPG in Formati TIFF Gratuiti Con Convertitore Online Di Movavi</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1721999252342-uncover-surprising-gaming-capabilities-with-chatgpt-heres-the-top-6-picks-for-gamers/"><u>Uncover Surprising Gaming Capabilities with ChatGPT – Here's the Top 6 Picks for Gamers!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-11-youtube-video-rippers-to-download-youtube-videos/"><u>[New] Top 11 YouTube Video Rippers to Download YouTube Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-fine-tune-your-igtv-videos-appeal-a-tale-of-titles-and-descriptions/"><u>[Updated] Fine-Tune Your IGTV Video's Appeal A Tale of Titles & Descriptions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-editors-playbook-mastering-the-art-of-youtube-cuts-for-2024/"><u>[Updated] The Editor's Playbook Mastering the Art of YouTube Cuts for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-top-7-video-enhancement-cameras-to-skyrocket-your-blogging-for-2024/"><u>[Updated] Top 7 Video Enhancement Cameras To Skyrocket Your Blogging for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/20-best-youtube-thumbnail-fonts-to-make-your-video-stunning/"><u>20 Best YouTube Thumbnail Fonts to Make Your Video Stunning</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevating-content-strategy-with-effective-youtube-partnerships/"><u>2024 Approved Elevating Content Strategy with Effective YouTube Partnerships</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/5-innovative-apps-to-design-stunning-openings-for-2024/"><u>5 Innovative Apps to Design Stunning Openings for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-step-by-step-guide-to-youtube-comms-management-for-2024/"><u>A Step-by-Step Guide to YouTube Comms Management for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/analyzing-ownership-rights-in-youtube-vs-freedom-of-use-in-cc-for-2024/"><u>Analyzing Ownership Rights in Youtube Vs. Freedom Of Use In CC for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boost-your-projects-quality-rankings-of-the-best-free-editing-apps-top-9/"><u>Boost Your Projects' Quality Rankings of the Best Free Editing Apps (Top 9)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discovering-the-most-reliable-youtube-downloader-apps-for-android-for-2024/"><u>Discovering the Most Reliable YouTube Downloader Apps for Android for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-quick-steps-to-live-stream-youtube-via-obs-for-novices/"><u>In 2024, Quick Steps to Live Stream Youtube via OBS for Novices</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782081-9781620553855-in-the-company-of-sages-2nd-ed/"><u>In the Company of Sages (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformar-mp3-en-archivos-de-video-avi-gratuito-en-linea-con-convertidor-quick-video/"><u>Transformar MP3 en Archivos De Vídeo AVI Gratuito en Línea Con Convertidor Quick Video</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unlock-next-level-features-on-a-budget-the-best-deals-in-tech-700-samsung-galaxy-s21-fe-5g/"><u>Unlock Next-Level Features on a Budget: The Best Deals in Tech - $700 Samsung Galaxy S21 FE 5G</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-professional-animation-software-8-best-creator-for-mac-and-windows/"><u>Updated In 2024, Professional Animation Software 8 Best Creator for Mac and Windows</u></a></li>
 </ul></div>
 

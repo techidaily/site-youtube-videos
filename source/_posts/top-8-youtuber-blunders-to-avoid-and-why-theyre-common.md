@@ -1,7 +1,7 @@
 ---
 title: "Top 8 Youtuber Blunders to Avoid and Why They're Common"
-date: 2025-01-12T07:24:37.077Z
-updated: 2025-01-15T23:50:25.178Z
+date: 2025-01-21T16:34:56.495Z
+updated: 2025-01-22T17:05:08.298Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  
 
 ### 1\. Failing to have a long-term vision
@@ -37,10 +41,6 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
 
@@ -57,7 +57,7 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
@@ -65,6 +65,10 @@ As an example, let's suppose you vlogged your time backpacking around Europe las
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -74,15 +78,15 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
 
@@ -91,7 +95,7 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -103,10 +107,6 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -123,20 +123,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-youtube-presence-ideal-release-windows/"><u>[New] Elevate Youtube Presence Ideal Release Windows</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-finding-the-right-free-srt-translation-for-you-our-8-picks/"><u>[Updated] Finding the Right FREE SRT Translation for You – Our #8 Picks</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-the-best-virtual-playground-for-ps3-games-on-windows-pcs/"><u>[Updated] In 2024, The Best Virtual Playground for PS3 Games on Windows PCs</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-vdsn-vidscreen-record-review-thorough-analysis/"><u>[Updated] VDSN VidScreen Record Review Thorough Analysis</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-8-linux-software-for-editors/"><u>2024 Approved Essential 8 Linux Software for Editors</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/advanced-editing-for-published-youtube-videos-for-2024/"><u>Advanced Editing for Published YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-practices-for-youtube-card-implementation-for-2024/"><u>Best Practices for YouTube Card Implementation for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cut-beyond-youtube-unveiling-the-top-5-video-editor-options-for-2024/"><u>Cut Beyond Youtube Unveiling the Top 5 Video Editor Options for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/elevate-your-entertainment-advanced-settings-for-the-best-apple-tv-experience/"><u>Elevate Your Entertainment: Advanced Settings for the Best Apple TV Experience</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-xiaomi-13t-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Xiaomi 13T Pro without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-comparing-streams-vimeo-versus-youtube/"><u>In 2024, Comparing Streams Vimeo Versus YouTube</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-motorola-moto-g23-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Motorola Moto G23 Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/picture-talk-engineer/"><u>Picture Talk Engineer</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/sonos-era-300-evaluation-nearly-ideal-smart-sound-system-a-single-major-flaw-explored-techreviewz/"><u>Sonos Era 300 Evaluation: Nearly Ideal Smart Sound System - A Single Major Flaw Explored | TechReviewZ</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-infinix-smart-8-pro-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Infinix Smart 8 Pro Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/harting-the-future-essential-online-stock-yts/"><u>[New] Charting the Future Essential Online Stock YTs</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-method-to-archive-webcam-discussions/"><u>[New] In 2024, Method to Archive Webcam Discussions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-premier-tools-for-image-transformation-framecraft-pro/"><u>[New] Premier Tools for Image Transformation FrameCraft Pro</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-optimizing-zoom-video-fidelity-comprehensible-guides/"><u>[Updated] In 2024, Optimizing Zoom Video Fidelity Comprehensible Guides</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-audio-alchemy-free-perfectly-crafted-dj-template-videos/"><u>2024 Approved Audio Alchemy Free, Perfectly Crafted DJ Template Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-your-youtube-profiles-a-guide-to-crafting-descriptions/"><u>2024 Approved Enhancing Your YouTube Profiles A Guide to Crafting Descriptions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/chromatic-brilliance-for-video-enthusiasts-for-2024/"><u>Chromatic Brilliance for Video Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/conquer-youtube-searches-with-these-top-11-seo-strategies/"><u>Conquer YouTube Searches with These Top 11 SEO Strategies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/curtail-unrequested-youtube-content-streams/"><u>Curtail Unrequested YouTube Content Streams</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dominate-discussion-how-to-trend-on-social-media-platforms/"><u>Dominate Discussion How to Trend on Social Media Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/efficiently-upload-and-render-youtube-videos-with-precision-for-2024/"><u>Efficiently Upload and Render YouTube Videos with Precision for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/free-football-filmmaking-basics-from-screen-to-studio/"><u>Free-Football Filmmaking Basics From Screen to Studio</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-vivo-t2x-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Vivo T2x 5G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-settled-unseen-videos-a-fix/"><u>In 2024, Settled Unseen Videos - A Fix</u></a></li>
+<li><a href="https://extra-information.techidaily.com/watermark-wisdom-the-10-best-apps-reviewed/"><u>Watermark Wisdom The 10 Best Apps Reviewed</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/wireless-vr-a-step-by-step-guide-to-linking-your-ps-vr-headset-with-a-computer/"><u>Wireless VR: A Step-by-Step Guide to Linking Your PS VR Headset with a Computer</u></a></li>
 </ul></div>
 

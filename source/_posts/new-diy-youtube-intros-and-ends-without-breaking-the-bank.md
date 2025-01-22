@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2025-01-15T04:31:23.191Z
-updated: 2025-01-15T16:19:04.355Z
+date: 2025-01-18T16:28:18.894Z
+updated: 2025-01-22T16:16:59.326Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/a7b063e2c5f1e938dc6e32e2ce85c52239dfc8e77
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,20 +143,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-a-deep-dive-into-irecorder-tech/"><u>[Updated] A Deep Dive Into iRecorder Tech</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-best-mac-mp4-cutter-apps-enhance-video-editing/"><u>[Updated] Best Mac MP4 Cutter Apps Enhance Video Editing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/accessing-global-hitters-the-1-6-short-video-downloaders/"><u>Accessing Global Hitters The #1-#6 Short Video Downloaders</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/earning-on-youtube-a-step-by-step-guide-for-newbies-for-2024/"><u>Earning on YouTube A Step-by-Step Guide for Newbies for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/edit-like-a-pro-with-these-top-5-mac-videography-suites-for-2024/"><u>Edit Like a Pro with These Top 5 Mac Videography Suites for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/effortless-methods-amp-up-your-yt-video-quality/"><u>Effortless Methods Amp Up Your YT Video Quality</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/embracing-the-future-microsofts-commitment-to-gaming-on-arm-powered-windows-devices/"><u>Embracing the Future: Microsoft's Commitment to Gaming on ARM-Powered Windows Devices</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/examining-youtubes-copyright-stance-versus-cc-approach/"><u>Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/harnessing-on-screen-speech-for-language-growth/"><u>Harnessing On-Screen Speech for Language Growth</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-club-craft-how-to-download-best-dj-vids/"><u>In 2024, Club Craft How to Download Best DJ Vids</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-editorprime-design/"><u>In 2024, EditorPrime Design</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-tecno-spark-20-proplus-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Tecno Spark 20 Pro+ Devices | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-spotting-no-replay-in-your-chat-history/"><u>In 2024, Spotting No Replay in Your Chat History</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-path-to-earning-through-youtube-a-creators-guide/"><u>In 2024, The Path to Earning Through YouTube A Creator's Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-ultimate-platform-pair-comparison-twitch-and-youtube-for-2024/"><u>The Ultimate Platform Pair Comparison Twitch and YouTube for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-generate-funny-image-jokes-at-flipfotohub/"><u>[New] Generate Funny Image Jokes at FlipFotoHub</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-obs-vs-twitch-studio-which-one-is-better-in-2024/"><u>[New] OBS Vs Twitch Studio Which One Is Better, In 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-the-art-of-loop-creating-impactful-content-for-instagram/"><u>[Updated] In 2024, Mastering the Art of Loop Creating Impactful Content for Instagram</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/6-methods-to-share-apple-iphone-6-plus-screen-with-pc-drfone-by-drfone-ios/"><u>6 Methods to Share Apple iPhone 6 Plus Screen with PC | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/breakdown-of-steps-perfecting-idevice-video-features-on-youtube/"><u>Breakdown of Steps Perfecting iDevice Video Features on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/deciphering-the-coded-language-of-concealed-youtube-movies/"><u>Deciphering the Coded Language of Concealed YouTube Movies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discover-inspirational-hiring-vids-1-10-for-2024/"><u>Discover Inspirational Hiring Vids #1-10 for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/eliminating-grey-edges-on-video-a-youtube-fix-guide-for-2024/"><u>Eliminating Grey Edges on Video A YouTube Fix Guide for 2024</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/resolved-issue-error-in-macrium-reflects-xml-mapping-and-validation-process-corrected/"><u>Resolved Issue: Error in Macrium Reflect's XML Mapping and Validation Process Corrected</u></a></li>
+<li><a href="https://win-web3.techidaily.com/solve-your-audio-woes-updating-and-repairing-outdated-sound-card-drivers-with-yl-softwares-help/"><u>Solve Your Audio Woes: Updating & Repairing Outdated Sound Card Drivers with YL Software's Help</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/why-is-utorrent-unresponsive-explore-7-effective-remedies/"><u>Why Is Utorrent Unresponsive? Explore 7 Effective Remedies</u></a></li>
 </ul></div>
 

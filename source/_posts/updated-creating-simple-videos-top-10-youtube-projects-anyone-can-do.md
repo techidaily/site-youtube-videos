@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2025-01-08T22:21:23.121Z
-updated: 2025-01-15T16:48:15.661Z
+date: 2025-01-20T17:19:07.013Z
+updated: 2025-01-22T17:27:31.870Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ They say that less is more, so let's have a look at how you can apply this princ
 10. [Video Rant](#ten)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Introduce Yourself
@@ -78,7 +78,7 @@ Are you a Tarantino fan? Why not? When you are struggling to find inspiration fo
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. What’s on Your Phone?
@@ -88,7 +88,7 @@ There were over two billion smartphone users worldwide in 2017, and this number 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
@@ -104,7 +104,7 @@ Education is our only hope for a better world so if you know how to do something
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. 10 Things About You
@@ -112,10 +112,6 @@ YouTube channels that feature tutorials often have millions of followers, becaus
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 10\. Video Rant
 
@@ -133,6 +129,10 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -148,22 +148,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-elevate-your-channels-image-for-boosted-youtube-subscriptions/"><u>[New] 2024 Approved Elevate Your Channels' Image for Boosted YouTube Subscriptions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-blueprint-for-successful-biographies-top-tips-and-techniques-from-experts/"><u>2024 Approved The Blueprint for Successful Biographies Top Tips & Techniques From Experts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-pros-handbook-to-youtube-income-multiplatform-use/"><u>A Pro's Handbook to YouTube Income Multiplatform Use</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-and-practicing-with-creative-commons-licenses/"><u>Decoding and Practicing with Creative Commons Licenses</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elites-free-guide-to-10-caption-download-tools/"><u>Elite's Free Guide to 10 Caption Download Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-filmmaking-software-exploration-for-2024/"><u>Essential Filmmaking Software Exploration for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Vivo S17 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-behind-the-scenes-expert-video-editing-techniques-for-youtubers/"><u>In 2024, Behind the Scenes Expert Video Editing Techniques for YouTubers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-best-practices-for-boosting-views-on-freefire-gaming-channels/"><u>In 2024, Best Practices for Boosting Views on FreeFire Gaming Channels</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-locked-apple-iphone-se-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Forgot Locked Apple iPhone SE Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-poco-c50-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Poco C50 Pattern Lock Screen</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-s18-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo S18 Phone FRP Lock</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-free-video-editing-software-for-dummies-top-picks-for-easy-edits/"><u>New In 2024, Free Video Editing Software for Dummies Top Picks for Easy Edits</u></a></li>
-<li><a href="https://driver-install.techidaily.com/reviving-nvidia-support-in-windows-environment/"><u>Reviving NVIDIA Support in Windows Environment</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/tackling-teal-turmoil-eliminate-green-screen-glitches-mac-edition/"><u>Tackling Teal Turmoil Eliminate Green Screen Glitches (Mac Edition)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-rated-dj-templates-free-access-for-music-makers/"><u>Top-Rated DJ Templates Free Access for Music Makers</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/video-mastery-leading-text-manipulations/"><u>Video Mastery Leading Text Manipulations</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-perfect-your-pictures-focus-and-soft-edges-quickly/"><u>[New] Perfect Your Picture's Focus & Soft Edges Quickly</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-optimizing-apex-dive-deep-into-single-platform-solitude-for-2024/"><u>[Updated] Optimizing Apex Dive Deep Into Single-Platform Solitude for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-honor-magic-5-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-composing-correspondents-curtains/"><u>2024 Approved Composing Correspondents' Curtains</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-double-down-on-youtube-visibility-2-quick-methods/"><u>2024 Approved Double Down on YouTube Visibility (2 Quick Methods)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-audio-visual-fidelity-use-av1-on-youtube/"><u>2024 Approved Enhance Audio-Visual Fidelity Use AV1 on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/controlling-who-sees-your-youtube-productions-for-2024/"><u>Controlling Who Sees Your Youtube Productions for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discover-the-best-3-platforms-for-video-consumption-post-youtube/"><u>Discover the Best 3 Platforms for Video Consumption (Post-YouTube)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Realme GT 5? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-xiaomi-redmi-note-12-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Xiaomi Redmi Note 12 5G FRP Bypass</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-the-mystery-of-yellow-screens-on-iphones-unveiling-nine-reliable-fixes-to-restore-vibrancy/"><u>Solving the Mystery of Yellow Screens on iPhones: Unveiling Nine Reliable Fixes to Restore Vibrancy</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-for-restarting-windows-default-settings/"><u>Steps for Restarting Windows Default Settings</u></a></li>
 </ul></div>
 

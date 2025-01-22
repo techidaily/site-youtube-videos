@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cutting Through the Clutter  YouTube's Copyright Evolution\""
-date: 2025-01-14T12:06:14.345Z
-updated: 2025-01-15T17:39:56.446Z
+date: 2025-01-21T16:26:59.264Z
+updated: 2025-01-22T16:58:20.814Z
 tags:
   - ai video
   - ai youtube
@@ -47,7 +47,7 @@ Without fair use, there wouldn’t be any flexibility for creators. There wouldn
 Think of fair use as exceptions to copyright rules.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: What YouTube Considers Fair Use
@@ -57,10 +57,6 @@ There are a few aspects YouTube looks at when it comes to determining whether cr
 1. Is the copyrighted content being creatively or purposefully used?
 2. Are there more original content used than copyrighted content in the video?
 3. Will your video benefit the original copyrighted content?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Types of Content That Meet Fair Use
 
@@ -77,6 +73,10 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 **Parody:** Imitation for comedic or dramatic effect is an artistic pursuit as long as it is done in a transformative manner. What does transformative mean? It means in some way, the original is being examined.
 
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
@@ -95,10 +95,6 @@ So what should you do? Here are the steps to take after you receive a copyright 
 1. Review the copyright strike by going into Creator Studio > Video Manager > Copyright notice
 
 ![YouTube Copyright notice](https://images.wondershare.com/filmora/article-images/youtube-copyright-notice.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Click on the “Copyright Strike” link beside the flagged video to see details
 2. Decide how to respond to the strike:  
@@ -129,7 +125,7 @@ In this example from Screen Prism, we see scenes from Wes Anderson movies all th
 **5\. Keep it short.** There is no precise number of seconds or ratio of copyrighted to original footage you should have in your video to qualify as fair use. But generally, if the copyrighted clip is short and/or broken up, then it stands a better chance at being approved by YouTube.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: What to Do When Other YouTubers Are Copying Your Content
@@ -145,16 +141,20 @@ If you ever notice that your content is being copied without your approval — i
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/report-copyright-infringement-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Select “Infringes my rights” in the pop up window and click “infringes my copyright” in the dropdown options.
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/infringe-my-copyright-report.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
 2. Submit report and wait for an email confirmation that the infringing content has been removed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 7: YouTube Copyright Match
 
@@ -201,22 +201,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-behind-the-scenes-filmmaking-tips-from-youtube-experts/"><u>[New] Behind-the-Scenes Filmmaking Tips From YouTube Experts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-creating-engaging-stream-content-shorts/"><u>[New] Creating Engaging Stream Content Shorts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-discover-the-7-most-wanted-apps-to-boost-your-youtube-live-quality/"><u>[New] Discover the 7 Most Wanted Apps to Boost Your YouTube LIVE Quality</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-crack-the-code-of-creativity-in-depth-snapchat-filters-exploration/"><u>[Updated] 2024 Approved Crack the Code of Creativity In-Depth Snapchat Filters Exploration</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-optimal-visual-performance-in-4k-titles/"><u>[Updated] In 2024, Optimal Visual Performance in 4K Titles</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-soundtrack-secrets-your-complete-audio-compilation-for-ig-videos/"><u>[Updated] Soundtrack Secrets Your Complete Audio Compilation for IG Videos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-choice-top-android-3d-players/"><u>2024 Approved Ultimate Choice Top Android 3D Players</u></a></li>
-<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-oppo-reno-9a-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/achieving-million-sub-milestone-the-youtube-guide-for-2024/"><u>Achieving Million-Sub Milestone The YouTube Guide for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/advanced-techniques-for-youtube-card-use-for-2024/"><u>Advanced Techniques for YouTube Card Use for 2024</u></a></li>
-<li><a href="https://fox-search.techidaily.com/backing-up-your-memories-a-comprehensive-comparison-of-google-photos-and-icloud-storage-solutions/"><u>Backing Up Your Memories: A Comprehensive Comparison of Google Photos and iCloud Storage Solutions</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-oppo-find-x7-ultra-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Oppo Find X7 Ultra Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-a-step-by-step-expedition-to-youtubes-unseen-layers/"><u>In 2024, A Step-by-Step Expedition to YouTube's Unseen Layers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-broadcast-your-curated-playlist-with-ease/"><u>In 2024, Broadcast Your Curated Playlist with Ease</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/prime-10-editors-seamless-image-transformation-pro/"><u>Prime 10 Editors Seamless Image Transformation Pro</u></a></li>
-<li><a href="https://some-tips.techidaily.com/taking-your-photo-skills-to-new-heights-creating-timelapse-footage-with-gopro-studio-for-2024/"><u>Taking Your Photo Skills to New Heights Creating Timelapse Footage with GoPro Studio for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-enhancement-the-art-of-background-blur/"><u>YouTube Enhancement The Art of Background Blur</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-a-list-makeup-tutorials-who-to-watch/"><u>[New] 2024 Approved A-List Makeup Tutorials Who to Watch ?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dissecting-youtubes-activities-post-uploading-videos/"><u>[New] Dissecting YouTube's Activities Post-Uploading Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/asterminds-of-immersive-marvellous-marvel-spheres/"><u>[New] Masterminds of Immersive Marvellous Marvel Spheres</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-top-9-web-based-microphone-recording-tools-of-23/"><u>[Updated] In 2024, Top 9 Web-Based Microphone Recording Tools of '23</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effortless-imovie-music-enhancement-using-youtube-songs-for-2024/"><u>Effortless iMovie Music Enhancement Using YouTube Songs for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/fixing-windows-blue-screen-0x8007007e-problems/"><u>Fixing Windows Blue Screen 0X8007007E Problems</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-bridging-the-gap-youtube-editing-mastered-in-imovie-workflows/"><u>In 2024, Bridging the Gap YouTube Editing Mastered in iMovie Workflows</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-xiaomi-mix-fold-3-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Xiaomi Mix Fold 3? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://app-tips.techidaily.com/red-hat-unveils-innovative-tools-in-newest-enterprise-linux-release-to-simplify-hybrid-cloud-management/"><u>Red Hat Unveils Innovative Tools in Newest Enterprise Linux Release to Simplify Hybrid Cloud Management</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/seize-visual-riches-from-four-premium-youtube-portals/"><u>Seize Visual Riches From Four Premium YouTube Portals</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Quick Guide  Crafting YouTube Thumbnails on Your Phone\""
-date: 2025-01-13T20:38:54.820Z
-updated: 2025-01-16T00:58:11.586Z
+date: 2025-01-17T17:12:39.275Z
+updated: 2025-01-22T16:21:51.491Z
 tags:
   - ai video
   - ai youtube
@@ -21,6 +21,10 @@ As a content creator, you know the importance of a visually appealing thumbnail 
 When creating your thumbnail, it's important to remember that the recommended size is 1280 x 720 pixels and a minimum width of 640 pixels. With these dimensions in mind, let's dive into how you can easily create stunning thumbnails for your YouTube videos using your mobile phone.
 
 ![make thumbnails or youtube with mobile phones](https://images.wondershare.com/filmora/article-images/how-to-make-thumbnail-for-youtube-in-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1\. Make a YouTube Thumbnail on iPhone With the iPhone Photos App
 
@@ -89,6 +93,10 @@ Step3 Edit the image using the available tools, such as cropping, rotating, and 
 
 ![pixellab editing options](https://images.wondershare.com/filmora/article-images/pixellab-editing-options.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Add text to the image and **customize** it to your liking.
 
 ![pixellab add text](https://images.wondershare.com/filmora/article-images/pixellab-add-text.jpg)
@@ -96,10 +104,6 @@ Step4 Add text to the image and **customize** it to your liking.
 Step5 Change the resolution of the image to **1280 x 720 pixels**.
 
 ![pixellab change resolution](https://images.wondershare.com/filmora/article-images/pixellab-change-resolution.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step6 Save the image to your gallery by exporting it.
 
@@ -135,10 +139,6 @@ Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 Step3 Tap on the video and tap the "**Edit**" button in the top right corner of the screen.
 
 ![youtube edit video](https://images.wondershare.com/filmora/article-images/youtube-edit-video.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 Tap the **Custom thumbnail** button and **upload** the image you want to use from your photo library.
 
@@ -186,6 +186,10 @@ Step5 Locate the thumbnail in your local drive.
 
 ![filmora export thumbnail](https://images.wondershare.com/filmora/article-images/filmora-export-thumbnail.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For more detailed instructions and a visual guide, you can watch the following video tutorial:
 
 Add a video
@@ -195,10 +199,6 @@ This video will show you how to use Filmora to create a custom thumbnail for you
 ## People Also Ask
 
 Here are some common questions that people have when it comes to creating YouTube thumbnails on mobile.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Q1\. What App Do Youtubers Use To Make Thumbnails?
 
@@ -226,10 +226,6 @@ Whether you create your thumbnails on your mobile device or your computer, use a
 
 This method is best for users looking for a quick and easy way to create a thumbnail on the go and doesn't need many customization options. It's also a good option for users needing computer or graphic design software access. If you're looking for more advanced customization options or higher image quality, consider using other methods or software.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 2\. Make YouTube Thumbnails on Android/iPhone With Third-Party Apps
 
 In addition to using the built-in Photos app on your iPhone or Android device, there are also many third-party apps that you can use to create YouTube thumbnails. Some popular options include Canva, Adobe Spark, and FotoJet. These apps offer a wider range of customization options and design templates, making it easy to create professional-looking thumbnails even if you have yet to gain graphic design experience.
@@ -246,6 +242,10 @@ Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
 
 ![pixellab editing options](https://images.wondershare.com/filmora/article-images/pixellab-editing-options.jpg)
@@ -257,6 +257,10 @@ Step4 Add text to the image and **customize** it to your liking.
 Step5 Change the resolution of the image to **1280 x 720 pixels**.
 
 ![pixellab change resolution](https://images.wondershare.com/filmora/article-images/pixellab-change-resolution.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step6 Save the image to your gallery by exporting it.
 
@@ -348,10 +352,6 @@ This video will show you how to use Filmora to create a custom thumbnail for you
 ## People Also Ask
 
 Here are some common questions that people have when it comes to creating YouTube thumbnails on mobile.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Q1\. What App Do Youtubers Use To Make Thumbnails?
 
@@ -419,19 +419,11 @@ There are a few sites where you can find Minecraft-themed channel art, and we’
 
 Besides Netix, there are a lot of other artists posting gaming or Minecraft-themed banners on YouTube with download links. Just type 'minecraft youtube banner' into the search bar.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## PlanetMinecraft Forums – Artists Section
 
 Planet Minecraft is a community for Minecraft fans, complete with forums. If you go into the forums, you’ll find an [Artists section](https://www.planetminecraft.com/forums/communities/artists) under Communities where people post all kinds of things they’ve created, including YouTube banners. [Here is an example of the kinds of posts you might find.](https://www.planetminecraft.com/forums/communities/artists/minecraft-youtube-banner-templat-441572/)
 
 If you can’t find what you’re looking for here, you may at least be able to find someone to help you make it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Best Business Template
 
@@ -450,7 +442,7 @@ As one of the best video editing software for YouTubers, [Filmora](https://tools
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -529,11 +521,19 @@ There are a few sites where you can find Minecraft-themed channel art, and we’
 
 [**![free YouTube banner](https://images.wondershare.com/filmora/article-images/50-free-youtube-banners-banner.jpg)**](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netix on YouTube
 
 [Netix](https://www.youtube.com/channel/UCLW2fOeUEhu7kBvZwlOTZ4A/featured) posts Minecraft-themed graphics, and only Minecraft-themed graphics. You'll find a lot of high quality banners on this channel, and they're all free to download. Unlike a lot of creators who post one or two free banners, but mostly focus on other gaming content, Netix was at one point consistently posting new channel art (about once a month) for over a year.
 
 Besides Netix, there are a lot of other artists posting gaming or Minecraft-themed banners on YouTube with download links. Just type 'minecraft youtube banner' into the search bar.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## PlanetMinecraft Forums – Artists Section
 
@@ -585,10 +585,6 @@ There are a few sites where you can find Minecraft-themed channel art, and we’
 
 [**![free YouTube banner](https://images.wondershare.com/filmora/article-images/50-free-youtube-banners-banner.jpg)**](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netix on YouTube
 
 [Netix](https://www.youtube.com/channel/UCLW2fOeUEhu7kBvZwlOTZ4A/featured) posts Minecraft-themed graphics, and only Minecraft-themed graphics. You'll find a lot of high quality banners on this channel, and they're all free to download. Unlike a lot of creators who post one or two free banners, but mostly focus on other gaming content, Netix was at one point consistently posting new channel art (about once a month) for over a year.
@@ -600,6 +596,10 @@ Besides Netix, there are a lot of other artists posting gaming or Minecraft-them
 Planet Minecraft is a community for Minecraft fans, complete with forums. If you go into the forums, you’ll find an [Artists section](https://www.planetminecraft.com/forums/communities/artists) under Communities where people post all kinds of things they’ve created, including YouTube banners. [Here is an example of the kinds of posts you might find.](https://www.planetminecraft.com/forums/communities/artists/minecraft-youtube-banner-templat-441572/)
 
 If you can’t find what you’re looking for here, you may at least be able to find someone to help you make it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Best Business Template
 
@@ -638,24 +638,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-behind-the-scenes-crafting-a-screenplay/"><u>[New] In 2024, Behind the Scenes Crafting a Screenplay</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-average-podcast-income-whats-the-payoff-in-2024/"><u>[Updated] Average Podcast Income What's the Payoff, In 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-optimizing-techniques-broadcasting-via-obs-to-facebook-for-2024/"><u>[Updated] Optimizing Techniques Broadcasting via OBS to Facebook for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-best-free-after-effects-title-templates/"><u>2024 Approved Best Free After Effects Title Templates</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-how-to-embed-a-youtube-video-in-powerpoint-4-methods/"><u>2024 Approved How to Embed a YouTube Video in PowerPoint [4 Methods]</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/6-methods-to-share-apple-iphone-xs-screen-with-pc-drfone-by-drfone-ios/"><u>6 Methods to Share Apple iPhone XS Screen with PC | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/beyond-blockbuster-horizons-favorite-films/"><u>Beyond Blockbuster Horizons Favorite Films</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/eco-effect-filmmaking-youtubes-guide-to-green-magic-for-2024/"><u>Eco-Effect Filmmaking YouTube's Guide to Green Magic for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-your-youtube-presence-with-these-8-free-courses-for-2024/"><u>Elevate Your YouTube Presence with These 8 Free Courses for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/evaluating-rapid-subscriptions-impact-on-video-engagement-for-2024/"><u>Evaluating Rapid Subscription's Impact on Video Engagement for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-assessment-on-the-latest-202n-apple-macbook-pro-with-16-inch-display-and-m1-processor/"><u>Expert Assessment on the Latest 202N Apple MacBook Pro with 16-Inch Display and M1 Processor</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-hidden-gems-to-hit-videos-strategies-for-success/"><u>From Hidden Gems to Hit Videos Strategies for Success</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/pushing-the-limits-of-solid-state-drives-on-windows-with-ssdfresh/"><u>Pushing the Limits of Solid State Drives on Windows with SSDFresh</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/revenue-revolution-unlocking-the-potential-of-your-youtube-channel-on-mobile/"><u>Revenue Revolution Unlocking the Potential of Your YouTube Channel on Mobile</u></a></li>
-<li><a href="https://extra-support.techidaily.com/revolutionize-replies-enhancing-interaction-on-telegram-platforms-for-2024/"><u>Revolutionize Replies Enhancing Interaction on Telegram Platforms for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/todays-top-social-media-stars-a-look-at-8-hits/"><u>Today's Top Social Media Stars A Look at 8 Hits</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-rated-2024-robot-mop-vacuums-comprehensive-testing-and-reviews-by-tech-gurus-zdnet/"><u>Top-Rated 2024 Robot Mop Vacuums: Comprehensive Testing & Reviews by Tech Gurus | ZDNET</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/tracking-trends-the-systematic-method-for-assessing-youtube-income-flows/"><u>Tracking Trends The Systematic Method for Assessing YouTube Income Flows</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/ultimate-freefire-tag-collection-enhance-your-youtube-channels/"><u>Ultimate FreeFire Tag Collection Enhance Your YouTube Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unlocking-potential-creating-your-youtube-identity/"><u>[New] 2024 Approved Unlocking Potential Creating Your YouTube Identity</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-accessing-vintage-facebook-content-tips-for-all-devices-for-2024/"><u>[New] Accessing Vintage Facebook Content Tips for All Devices for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ontent-creation-in-todays-revenue-landscape-for-2024/"><u>[New] Content Creation in Today’s Revenue Landscape for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-essential-ios-video-editor-apps-top-10-best-to-know/"><u>[New] In 2024, Essential iOS Video Editor Apps Top 10 Best to Know</u></a></li>
+<li><a href="https://program-issues.techidaily.com/beat-the-bug-blitz-ultimate-guide-to-fixing-pc-crash-issues-with-zombie-army-4-dead-war/"><u>Beat the Bug Blitz: Ultimate Guide to Fixing PC Crash Issues with Zombie Army 4: Dead War</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/become-a-pro-in-calculating-youtube-ratio-measures/"><u>Become a Pro in Calculating YouTube Ratio Measures</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/best-tiktok-food-accounts/"><u>Best Tiktok Food Accounts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-channel-earnings-the-step-by-step-famebit-guide-to-affiliates-for-2024/"><u>Boosting Channel Earnings The Step-by-Step FameBit Guide to Affiliates for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boundless-creativity-celebrating-our-top-10-female-youtubers/"><u>Boundless Creativity Celebrating Our Top 10 Female YouTubers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dancefloor-directives-expert-dj-video-downloads-for-2024/"><u>Dancefloor Directives Expert DJ Video Downloads for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/disable-unsolicited-youtube-video-listings/"><u>Disable Unsolicited YouTube Video Listings</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-xiaomi-civi-3-phone-by-drfone-android/"><u>How to Reset a Locked Xiaomi Civi 3 Phone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/techniques-to-improve-video-visibility-on-youtube-platform-for-2024/"><u>Techniques to Improve Video Visibility on YouTube Platform for 2024</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-honor-x8b-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Honor X8b? | Dr.fone</u></a></li>
 </ul></div>
 

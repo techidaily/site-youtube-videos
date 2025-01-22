@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2025-01-11T01:22:12.522Z
-updated: 2025-01-16T06:37:32.999Z
+date: 2025-01-15T17:18:59.638Z
+updated: 2025-01-22T17:19:07.509Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/7c8eb4a6751ebbb720d8baa15eb6264cc6e760acb
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,19 +143,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-effective-multitasking-during-podcast-engagement/"><u>[New] Effective Multitasking During Podcast Engagement</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-best-8-platforms-for-professional-linux-editing/"><u>[Updated] Best 8 Platforms for Professional Linux Editing</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-privacy-first-reader-of-facebook-snapshots/"><u>[Updated] Privacy-First Reader of Facebook Snapshots</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-10-best-fitness-channels-for-yogis/"><u>2024 Approved 10 Best Fitness Channels for Yogis</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boosting-channels-growth-strategies-for-effective-trailers/"><u>Boosting Channels' Growth Strategies for Effective Trailers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ning-striking-valorant-thumbnails-for-online-platforms/"><u>Designing Striking Valorant Thumbnails for Online Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/embedding-yt-playlists-seamlessly-on-webpages/"><u>Embedding YT Playlists Seamlessly on Webpages</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-top-6-screen-recorder-no-ads-for-android/"><u>In 2024, Top 6 Screen Recorder No Ads for Android</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/instant-guide-image-to-thumbnail-magic-for-your-youtube-channel/"><u>Instant Guide Image-To-Thumbnail Magic for Your YouTube Channel</u></a></li>
-<li><a href="https://discover-help.techidaily.com/methods-transferring-and-outlook-folders/"><u>Methods, Transferring, and Outlook Folders.</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/perfecting-the-pause-how-to-craft-exceptional-slow-motion-videos/"><u>Perfecting the Pause How to Craft Exceptional Slow Motion Videos</u></a></li>
-<li><a href="https://common-error.techidaily.com/solve-your-streaming-woes-permanent-fix-for-kodi-stutter-and-buffering/"><u>Solve Your Streaming Woes: Permanent Fix for Kodi Stutter & Buffering</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-visionaries-of-video-workshop/"><u>The Visionaries of Video Workshop</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transfer-tactics-efficiently-getting-data-on-your-computer-for-2024/"><u>Transfer Tactics Efficiently Getting Data On Your Computer for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-unlocking-full-hd-on-facebook-streams/"><u>[Updated] 2024 Approved Unlocking Full HD on Facebook Streams</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-drones-in-film-advanced-capturing-strategies/"><u>[Updated] In 2024, Drones in Film Advanced Capturing Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-penning-perfectly-captivating-podcast-descriptions-for-2024/"><u>[Updated] Penning Perfectly Captivating Podcast Descriptions for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-break-bot-patterns-enhance-organic-video-reach/"><u>2024 Approved Break Bot Patterns, Enhance Organic Video Reach</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-building-your-ultimate-youtube-music-list-step-by-step-guide-webmobile/"><u>2024 Approved Building Your Ultimate YouTube Music List Step-by-Step Guide (Web/Mobile)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-channel-profitability-famebit-powered-sponsorship-tactics-for-2024/"><u>Boosting Channel Profitability FameBit-Powered Sponsorship Tactics for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/breakdown-adding-narrative-pauses-to-your-youtube-projects/"><u>Breakdown Adding Narrative Pauses to Your YouTube Projects</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channel-finale-101-insider-tricks-for-successful-outros/"><u>Channel Finale 101 Insider Tricks for Successful Outros</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-indonesian-warmth-common-greetings-guide/"><u>Dive Into Indonesian Warmth: Common Greetings Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effortless-audio-blending-into-youtube-clips-using-editors-for-2024/"><u>Effortless Audio Blending Into YouTube Clips Using Editors for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-entertainment-a-thousand-gaming-channels/"><u>Elevate Entertainment A Thousand Gaming Channels</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-oppo-a1-5g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Oppo A1 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-poco-c65-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Poco C65 | Dr.fone</u></a></li>
 </ul></div>
 

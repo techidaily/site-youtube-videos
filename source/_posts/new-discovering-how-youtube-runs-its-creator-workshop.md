@@ -1,7 +1,7 @@
 ---
 title: "[New] Discovering How YouTube Runs Its Creator Workshop"
-date: 2025-01-03T18:32:52.523Z
-updated: 2025-01-10T18:46:40.334Z
+date: 2025-01-21T16:59:59.355Z
+updated: 2025-01-22T16:25:17.209Z
 tags:
   - ai video
   - ai youtube
@@ -35,7 +35,7 @@ On the main dashboard of the Creator Studio, you will see a menu that includes y
 Also on the dashboard, you can see analytics for the most successful videos that you have posted.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Adjusting the Dashboard
@@ -45,7 +45,7 @@ Pinning new charts to the dashboard will ensure that all of the data you need mo
 Making adjustments to your current widgets simply involves clicking on the gear icon in the top right corner to add custom tiles as well as rearrange the order of the various widgets that you have selected.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Creator Studio Tools
@@ -63,7 +63,7 @@ How many times a week do you check your stats in the YouTube Creator Studio?
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit YouTube Videos with Filmora
@@ -73,13 +73,13 @@ As one of the most versatile video editing software, Filmora offers various type
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -97,18 +97,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-next-gen-gameplay-logging-alternatives-to-fbx/"><u>[Updated] 2024 Approved Next-Gen Gameplay Logging Alternatives to FBX</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-securing-financial-stability-through-beauty-content/"><u>[Updated] In 2024, Securing Financial Stability Through Beauty Content</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ving-financial-gain-with-youtube-shorts-essentials-opportunities-and-earning-prospects-for-2024/"><u>Achieving Financial Gain with Youtube Shorts Essentials, Opportunities & Earning Prospects for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/achieving-profitability-on-youtube-average-view-count-for-success/"><u>Achieving Profitability on YouTube Average View Count for Success</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/automatic-cycling-of-videos-on-iphone-ease-for-2024/"><u>Automatic Cycling of Videos on iPhone Ease for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/battle-of-brains-comparing-perplex-to-chatgpt-plus-for-top-tier-ai-chatting-experience/"><u>Battle of Brains: Comparing Perplex to ChatGPT Plus for Top-Tier AI Chatting Experience</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/detailed-walkthrough-to-flawless-youtube-videos-using-imovie-software-for-2024/"><u>Detailed Walkthrough to Flawless YouTube Videos Using iMovie Software for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-engagement-discover-these-top-12-techniques-for-video-success/"><u>Elevate Engagement - Discover These Top 12 Techniques for Video Success</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/expand-your-online-horizons-upload-360-photos-with-ease-on-mobile-platforms-for-2024/"><u>Expand Your Online Horizons Upload 360 Photos with Ease on Mobile Platforms for 2024</u></a></li>
-<li><a href="https://network-issues.techidaily.com/opengl-onoff-switch-armored/"><u>OpenGL On/Off Switch Armored</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716464516434-short-film-synopsis-must-know-points/"><u>Short Film Synopsis Must-Know Points!</u></a></li>
-<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-motorola-moto-e13-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-civi-3-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Civi 3</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/expert-reviews-best-game-capture-apps/"><u>Expert Reviews Best Game Capture Apps</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-your-hands-on-canon-dr-c225-drivers-for-windows-operating-systems-download-guide/"><u>Get Your Hands on Canon DR-C225 Drivers for Windows Operating Systems - Download Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-add-a-streamline-of-youtube-playlists-on-your-website/"><u>How to Add a Streamline of YouTube Playlists on Your Website</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-14-to-samsung-galaxy-s20-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone 14 to Samsung Galaxy S20? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-7-creative-video-concepts-to-boost-your-fitness-channel/"><u>In 2024, 7 Creative Video Concepts to Boost Your Fitness Channel</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-engaging-youtube-end-credits/"><u>In 2024, Crafting Engaging YouTube End Credits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/innovative-naming-strategies-elevating-your-filmora-channels-identity/"><u>Innovative Naming Strategies Elevating Your Filmora Channels' Identity</u></a></li>
+<li><a href="https://network-issues.techidaily.com/solving-backward-facing-window-errors-windows-7/"><u>Solving Backward-Facing Window Errors, Windows 7</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-6-destinations-for-purchasing-quality-laptops/"><u>Top 6 Destinations for Purchasing Quality Laptops</u></a></li>
+<li><a href="https://win-info.techidaily.com/yl-softwares-step-by-step-guide-connecting-and-setting-up-your-new-printer/"><u>YL Software's Step-by-Step Guide: Connecting and Setting Up Your New Printer</u></a></li>
 </ul></div>
 
