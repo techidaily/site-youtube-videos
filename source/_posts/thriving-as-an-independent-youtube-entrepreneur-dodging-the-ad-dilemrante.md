@@ -1,7 +1,7 @@
 ---
 title: "\"Thriving as an Independent YouTube Entrepreneur  Dodging the Ad Dilemrante\""
-date: 2025-01-21T17:07:24.183Z
-updated: 2025-01-22T16:55:21.639Z
+date: 2025-01-23T22:44:30.911Z
+updated: 2025-01-30T03:53:00.522Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,10 @@ This is a general estimate of how much a YouTuber can make from ads once they qu
 
 \- 1000 video views will equal between $2-$5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Why It’s So Hard for YouTubers to Make Money From Ads**
 
 For new YouTubers, it is getting harder and harder to get to that point where their sole income can be from YouTube ads. Before they can make a penny, they must first qualify.
@@ -102,10 +106,6 @@ _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/colle
 
  ![YouTuber Sunny Lenarduzzi](https://images.wondershare.com/filmora/article-images/sunny-lenarduzzi2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _YouTuber and entrepreneur, Sunny Lenarduzzi uses YouTube as a platform to get clients for her consulting business._
 
 #### **How to Sell a Product or Service on YouTube**
@@ -119,6 +119,10 @@ Here is how you should go about selling your product or service on YouTube:
 If you are selling a meditation eBook and guided meditation services, type in some possible keywords in the YouTube search bar. What appears will be some popular searches:
 
 ![meditation](https://images.wondershare.com/filmora/article-images/meditation3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/)to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
 
@@ -137,16 +141,12 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 ![link in the description box](https://images.wondershare.com/filmora/article-images/link-in-description-box4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The YouTube Card:**
 
 ![youtube card tutorial](https://images.wondershare.com/filmora/article-images/youtube-card-tutorial5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
 
@@ -179,6 +179,10 @@ As a YouTuber, you can share your thoughts on products or services, and if there
 The average affiliate commission rate is between 5% to 30%, with a lot of variables. Some low price range items will have a higher commission, while higher-priced items will have lower commissions.
 
 ![affiliate links](https://images.wondershare.com/filmora/article-images/affiliat-link8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm)_’s affiliate links to her vlogging gears._
 
@@ -218,10 +222,6 @@ Here is the list of 4 popular affiliate marketing networks:
 
 You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates)and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **3\. Brand Deal or Sponsorships:**
 
 Selling out, that is often the thought when we hear creators getting brand deals and sponsorships, but that stigma is unfounded if the brand and the content are properly aligned. As your channel grows, you will begin to recognize brands that match your values — and the values of your viewers — and those that don’t.
@@ -231,6 +231,10 @@ Today, more and more brands are collaborating with YouTube creators, because [cr
 In an ad for Beats by Dre’s #BuiltForBosses campaign, YouTuber [Liza Koshy outperformed](https://www.wsj.com/articles/a-self-made-star-shows-one-way-to-crack-the-gen-z-code-1511719567?mod=e2tw) the likes of Tom Brady and DJ Khaled.
 
 ![perform the likes](https://images.wondershare.com/filmora/article-images/perform-the-likes9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 While it does take significant effort on YouTube to acquire a following, it is possible for a YouTube channel with 1,000 subscribers to get a brand deal. Getting the buy-in from brands is a numbers game, and according to [Video Creators](https://videocreators.com/how-to-get-started-with-brand-deals-on-youtube/), the minimal number of views per video shouldn’t be lower than 2,000 if this is the path you want to head in.
 
@@ -256,10 +260,6 @@ Steps to getting a brand deal:
 6. Get Paid!
 
  Unlike celebrity marketing, YouTube creators have shown brands over the years that they are inventive and clever with how they can present the brand to the audience to drive the best results. This type of independence is what makes YouTube influencer marketing special.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##  
 
@@ -298,7 +298,7 @@ If you have a pie in the sky goal, you aren’t going to fully leverage the mess
 When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/)is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Key Takeaways:**
@@ -315,7 +315,7 @@ Got questions about making money on YouTube? Leave a comment below. We love to h
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -333,16 +333,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-cementing-your-place-in-youtube-by-mastering-creative-studio-techniques/"><u>[New] Cementing Your Place in YouTube by Mastering Creative Studio Techniques</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-immediate-visuals-the-fastest-4-ways-to-snip-on-chrome-os/"><u>[New] In 2024, Immediate Visuals The Fastest 4 Ways To Snip on Chrome OS</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-fb-slideshow-101-a-beginners-guide/"><u>[Updated] In 2024, FB Slideshow 101 A Beginner's Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-deciphering-finances-how-much-do-youtubers-earn-per-ad/"><u>2024 Approved Deciphering Finances How Much Do YouTubers Earn Per Ad?</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-skyrocket-your-income-on-youtube-the-power-of-500-loyal-fans/"><u>2024 Approved Skyrocket Your Income on Youtube The Power of 500 Loyal Fans</u></a></li>
-<li><a href="https://win11.techidaily.com/boost-your-windows-screenshot-game-4-key-solutions/"><u>Boost Your Windows Screenshot Game: 4 Key Solutions.</u></a></li>
-<li><a href="https://win-web.techidaily.com/exploring-the-catalysts-behind-the-1989-tiananmen-square-demonstrations-insights-from-yl-computings-perspective/"><u>Exploring the Catalysts Behind the 1989 Tiananmen Square Demonstrations: Insights From YL Computing's Perspective</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-boosting-youtube-videos-activating-av1-support/"><u>In 2024, Boosting YouTube Videos Activating AV1 Support</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-dynamic-gifs-from-video-an-illustrative-tutorial/"><u>In 2024, Crafting Dynamic Gifs From Video An Illustrative Tutorial</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-dilemma-accessing-your-encrypted-c-drive-in-windows-10/"><u>Solving the Dilemma: Accessing Your Encrypted C: Drive in Windows 10</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-5-must-have-equipment-and-basic-software-to-start-vlogging/"><u>[New] 5 Must-Have Equipment and Basic Software to Start Vlogging</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-event-harmony-sourcing-perfect-dj-video-templates/"><u>[New] Event Harmony Sourcing Perfect DJ Video Templates</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-cutting-edge-cams-for-novices-in-24/"><u>[New] In 2024, Cutting-Edge Cams for Novices in '24</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-ultimate-screenshotting-handbook-by-professionals-using-zd-softs-software/"><u>[Updated] 2024 Approved The Ultimate Screenshotting Handbook by Professionals Using ZD Soft’s Software</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-bypassing-barriers-privately-share-youtube-video-via-google/"><u>2024 Approved Bypassing Barriers Privately Share YouTube Video via Google</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-confirming-correct-youtube-ad-revenue-allocation/"><u>2024 Approved Confirming Correct YouTube Ad Revenue Allocation</u></a></li>
+<li><a href="https://win11.techidaily.com/1726030443046-mp4wmv-in-windows-10/"><u>画質維持のため、MP4からWMVへの変換手順 in Windows 10</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-mcb-theme-images-for-channels/"><u>Affordable MCB Theme Images for Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/choosing-youtube-premium-what-makes-it-worth-the-price/"><u>Choosing YouTube Premium What Makes It Worth the Price?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/curtail-unexpected-youtube-recommendations/"><u>Curtail Unexpected YouTube Recommendations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/direct-conversion-convert-and-upload-mp3-songs-on-youtube-for-2024/"><u>Direct Conversion Convert & Upload MP3 Songs on YouTube for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/ensuring-clear-voice-commands-with-xbox-and-windows/"><u>Ensuring Clear Voice Commands with Xbox & Windows</u></a></li>
+<li><a href="https://win-net.techidaily.com/guia-efectiva-para-crear-backups-riguroso-en-windows-usando-el-simbolo-del-sistema-cmd/"><u>Guía Efectiva Para Crear Backups Riguroso en Windows Usando El Símbolo Del Sistema (CMD)</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-lava-yuva-3-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Lava Yuva 3 FRP</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-enhancing-viewership-maintaining-youtubes-creative-commons/"><u>In 2024, Enhancing Viewership Maintaining YouTube's Creative Commons</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-top-11-mac-applications-for-efficient-screen-saving/"><u>In 2024, Top 11 Mac Applications for Efficient Screen Saving</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/must-have-filmmaking-tools-for-aspiring-youtubers/"><u>Must-Have Filmmaking Tools for Aspiring YouTubers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/pros-picks-of-handheld-stabilizers-ensuring-perfect-videos/"><u>Pro's Picks of Handheld Stabilizers Ensuring Perfect Videos</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/winning-against-virtual-clutter-discover-the-top-8-chatgpt-triggers-for-focused-workflows/"><u>Winning Against Virtual Clutter: Discover the Top 8 ChatGPT Triggers for Focused Workflows</u></a></li>
 </ul></div>
 

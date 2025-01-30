@@ -1,7 +1,7 @@
 ---
 title: "Top 8 Youtuber Blunders to Avoid and Why They're Common"
-date: 2025-01-21T16:34:56.495Z
-updated: 2025-01-22T17:05:08.298Z
+date: 2025-01-25T01:00:30.106Z
+updated: 2025-01-29T16:23:56.929Z
 tags:
   - ai video
   - ai youtube
@@ -31,7 +31,7 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  
@@ -41,6 +41,10 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
 
@@ -56,10 +60,6 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
@@ -67,7 +67,7 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Making weak intros
@@ -85,7 +85,7 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
@@ -95,7 +95,7 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -123,21 +123,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/harting-the-future-essential-online-stock-yts/"><u>[New] Charting the Future Essential Online Stock YTs</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-method-to-archive-webcam-discussions/"><u>[New] In 2024, Method to Archive Webcam Discussions</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-premier-tools-for-image-transformation-framecraft-pro/"><u>[New] Premier Tools for Image Transformation FrameCraft Pro</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-optimizing-zoom-video-fidelity-comprehensible-guides/"><u>[Updated] In 2024, Optimizing Zoom Video Fidelity Comprehensible Guides</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-audio-alchemy-free-perfectly-crafted-dj-template-videos/"><u>2024 Approved Audio Alchemy Free, Perfectly Crafted DJ Template Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-your-youtube-profiles-a-guide-to-crafting-descriptions/"><u>2024 Approved Enhancing Your YouTube Profiles A Guide to Crafting Descriptions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/chromatic-brilliance-for-video-enthusiasts-for-2024/"><u>Chromatic Brilliance for Video Enthusiasts for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/conquer-youtube-searches-with-these-top-11-seo-strategies/"><u>Conquer YouTube Searches with These Top 11 SEO Strategies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/curtail-unrequested-youtube-content-streams/"><u>Curtail Unrequested YouTube Content Streams</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dominate-discussion-how-to-trend-on-social-media-platforms/"><u>Dominate Discussion How to Trend on Social Media Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/efficiently-upload-and-render-youtube-videos-with-precision-for-2024/"><u>Efficiently Upload and Render YouTube Videos with Precision for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/free-football-filmmaking-basics-from-screen-to-studio/"><u>Free-Football Filmmaking Basics From Screen to Studio</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-vivo-t2x-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Vivo T2x 5G to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-settled-unseen-videos-a-fix/"><u>In 2024, Settled Unseen Videos - A Fix</u></a></li>
-<li><a href="https://extra-information.techidaily.com/watermark-wisdom-the-10-best-apps-reviewed/"><u>Watermark Wisdom The 10 Best Apps Reviewed</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/wireless-vr-a-step-by-step-guide-to-linking-your-ps-vr-headset-with-a-computer/"><u>Wireless VR: A Step-by-Step Guide to Linking Your PS VR Headset with a Computer</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-discovering-the-finest-free-srt-translation-tools-for-2024/"><u>[New] Discovering the Finest FREE SRT Translation Tools for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-inside-look-obs-as-a-premier-screen-recorder/"><u>[New] Inside Look OBS as a Premier Screen Recorder</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-discovering-the-unique-benefits-of-youtube-tv/"><u>[Updated] Discovering the Unique Benefits of YouTube TV</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-gender-diversity-in-streaming-celebrating-top-10-females/"><u>[Updated] In 2024, Gender Diversity in Streaming Celebrating Top 10 Females</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/access-unlimited-mcb-theme-images-for-2024/"><u>Access Unlimited MCB Theme Images for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/exciting-vlog-subjects-daily-selection/"><u>Exciting Vlog Subjects Daily Selection</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1716465784482-green-screen-journey-begins-on-yt-ideas-take-flight/"><u>Green Screen Journey Begins on YT, Ideas Take Flight!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-honor-magic-6-lite-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Honor Magic 6 Lite</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-audiovisual-harmony-perfecting-voiceover-in-videos/"><u>In 2024, Audiovisual Harmony Perfecting Voiceover in Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-dominating-discussion-topics-in-the-social-space/"><u>In 2024, Dominating Discussion Topics in the Social Space</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-laptop-and-mobile-entrance-into-online-gatherings-google-meet/"><u>In 2024, Laptop & Mobile Entrance Into Online Gatherings (Google Meet)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-visual-identity-made-easy/"><u>YouTube Visual Identity Made Easy</u></a></li>
 </ul></div>
 
