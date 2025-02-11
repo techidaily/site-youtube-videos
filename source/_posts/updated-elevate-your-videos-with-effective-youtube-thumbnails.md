@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevate Your Videos with Effective YouTube Thumbnails"
-date: 2025-01-22T17:00:50.022Z
-updated: 2025-01-30T04:00:37.137Z
+date: 2025-02-06T21:55:50.242Z
+updated: 2025-02-10T19:31:19.229Z
 tags:
   - ai video
   - ai youtube
@@ -38,20 +38,12 @@ Here are 5 easy tips for creating thumbnails that get views.
 
  _Contest now closed._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -61,6 +53,14 @@ Your thumbnails all must look like part of the same set. You want viewers to rec
 An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
 
@@ -74,15 +74,15 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -97,7 +97,7 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -115,22 +115,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-beyond-the-leading-films-hidden-cinema-treasures/"><u>[New] Beyond the Leading Films Hidden Cinema Treasures</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-enhance-your-content-filmmaking-for-youtube-trailers-with-filmora/"><u>[New] Enhance Your Content Filmmaking for YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-pinpointing-precision-with-minecrafts-zoom-feature/"><u>[Updated] Pinpointing Precision with Minecraft's Zoom Feature</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-podcast-production-perfection-from-draft-to-audio-bliss/"><u>[Updated] Podcast Production Perfection From Draft to Audio Bliss</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-art-of-low-volume-playback-system-guide/"><u>[Updated] The Art of Low-Volume Playback System Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-boosting-engagement-interpreting-youtube-video-data/"><u>2024 Approved Boosting Engagement Interpreting YouTube Video Data</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-discover-9-free-whole-film-festive-movie-gems-on-youtube/"><u>2024 Approved Discover 9 Free, Whole-Film Festive Movie Gems on Youtube</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-the-two-fold-approach-to-capturing-google-hangoutsmeet/"><u>2024 Approved The Two-Fold Approach to Capturing Google Hangouts/Meet</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-carryminati-unmasked-the-monetary-milestones/"><u>In 2024, CarryMinati Unmasked The Monetary Milestones</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-mobile-and-desktop-no-cost-magnifier-toolkit/"><u>In 2024, Mobile & Desktop No-Cost Magnifier Toolkit</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/masterful-video-cutting-solutions-on-your-windows-11-system/"><u>Masterful Video Cutting Solutions on Your Windows 11 System</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-notes-and-alerts-implementation/"><u>Mastering YouTube Notes & Alerts Implementation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-art-of-dual-careers-youtuber-and-full-time-employee/"><u>The Art of Dual Careers YouTuber & Full-Time Employee</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-complete-anthropic-guide-to-claude-3-usage/"><u>The Complete Anthropic Guide to Claude 3 Usage</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/ultimate-download-of-realtek-audio-drivers-compatible-with-windows-11-step-by-step-tutorial/"><u>Ultimate Download of Realtek Audio Drivers Compatible with Windows 11 - Step by Step Tutorial</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unlocking-digital-archives-your-step-by-step-guide-to-wayback-machine-usage/"><u>Unlocking Digital Archives: Your Step-by-Step Guide to Wayback Machine Usage</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-captioning-for-clearer-communication/"><u>YouTube Captioning for Clearer Communication</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dive-into-the-dos-and-donts-of-youtube-beauty-channels/"><u>[New] Dive Into the Do's and Don'ts of YouTube Beauty Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-escalate-your-channel-with-a-swift-move-towards-youtube-partner-status/"><u>[New] Escalate Your Channel with a Swift Move Towards YouTube Partner Status</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-from-followers-to-fame-on-instagram-expert-advice-and-real-outcomes/"><u>[New] In 2024, From Followers to Fame on Instagram Expert Advice and Real Outcomes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-homemade-guide-to-google-vr-headset-construction/"><u>[New] In 2024, Homemade Guide to Google VR Headset Construction</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-command-the-stage-of-youtube-with-studio-skills/"><u>[Updated] Command the Stage of YouTube with Studio Skills</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-vid-tribute-the-power-in-customer-endorsements/"><u>[Updated] Vid Tribute The Power in Customer Endorsements</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-simplified-path-to-viewing-popular-youtube-comments/"><u>2024 Approved Simplified Path to Viewing Popular YouTube Comments</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/beyond-popularity-ten-truths-you-need-to-know-about-instagram-reels/"><u>Beyond Popularity Ten Truths You Need to Know About Instagram Reels</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-frame-grabbers-companion/"><u>In 2024, Frame Grabber's Companion</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/optimize-video-pace-on-youtube-for-devices-speed-adjustments/"><u>Optimize Video Pace on YouTube for Devices (Speed Adjustments)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pathfinding-your-way-from-adsense-to-accounts-aplenty/"><u>Pathfinding Your Way From AdSense to Accounts Aplenty</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/seamless-changeover-a-comprehensive-list-of-free-transformer-tools/"><u>Seamless Changeover A Comprehensive List of Free Transformer Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ultimate-checklist-for-optimal-yt-brand-aesthetics/"><u>The Ultimate Checklist for Optimal YT Brand Aesthetics</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-vivo-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Vivo Phone</u></a></li>
+<li><a href="https://windows11.techidaily.com/transform-steam-deck-with-official-windows-instruments/"><u>Transform Steam Deck with Official Windows Instruments</u></a></li>
 </ul></div>
 

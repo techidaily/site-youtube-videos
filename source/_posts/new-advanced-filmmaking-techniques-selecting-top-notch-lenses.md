@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Advanced Filmmaking Techniques  Selecting Top-Notch Lenses\""
-date: 2025-01-27T03:44:12.838Z
-updated: 2025-01-29T17:47:46.646Z
+date: 2025-02-06T02:04:26.444Z
+updated: 2025-02-10T22:47:53.562Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/59a195ec28420319fea5f3f07d0383273230910a4
 A DSLR is the ideal camera for some vlogs, and using a DSLR means you get to customize the look of your vlog by choosing the perfect lens. Choosing the best camera lens for your YouTube channel can be tricky because there are so many options. This article will walk you through some of them, and make two recommendations of great vlogging lenses. If you already have a good understanding of how camera lenses work then feel free to scroll down to the lens recs.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. Understanding Lenses: Zoom lens, Fixed lens, aperture, f-stop
@@ -39,7 +39,7 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 Before we get into the recommendations here is a little background information on lenses in general:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
@@ -59,6 +59,10 @@ Light passes through your lens’s aperture on its way to your camera’s sensor
 F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more information on f-stops and blurring your background read “The Best Bokeh Lens - How to Get the Blurred Background for YouTube Videos” and watch Tasha’s video.
 
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
 
@@ -85,7 +89,7 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
@@ -126,7 +130,7 @@ Recording **moving objects** from a distance requires you to have a lens that al
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
@@ -140,10 +144,6 @@ All Sony's APS-C format E mount cameras are compatible with this multi-purpose l
 If you are using a 4k camera to shoot your YouTube video, check out [best camera lens for 4k professional production.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -160,18 +160,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-detailed-discussions-via-zoom-in-ms-teams/"><u>[New] 2024 Approved Detailed Discussions via ZOOM in MS Teams</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-the-complete-guide-to-proficient-kinemaster-use-and-top-digital-services/"><u>[New] The Complete Guide to Proficient KineMaster Use and Top Digital Services</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-prime-streaming-services-ranked-a-comparison-analysis/"><u>[Updated] 2024 Approved Prime Streaming Services Ranked A Comparison Analysis</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-pros-handbook-to-youtube-income-multiplatform-use/"><u>A Pro's Handbook to YouTube Income Multiplatform Use</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/a-step-by-step-guide-to-video-aspect-ratio-selection/"><u>A Step-by-Step Guide to Video Aspect Ratio Selection</u></a></li>
-<li><a href="https://network-issues.techidaily.com/address-windows-display-glitches/"><u>Address Windows Display Glitches</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-and-practicing-with-creative-commons-licenses/"><u>Decoding and Practicing with Creative Commons Licenses</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elites-free-guide-to-10-caption-download-tools/"><u>Elite's Free Guide to 10 Caption Download Tools</u></a></li>
-<li><a href="https://some-tips.techidaily.com/exploring-reasons-behind-apples-strategic-title-downgrade-of-ex-staffers-to-associates/"><u>Exploring Reasons Behind Apple's Strategic Title Downgrade of Ex-Staffers to Associates</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-behind-the-scenes-expert-video-editing-techniques-for-youtubers/"><u>In 2024, Behind the Scenes Expert Video Editing Techniques for YouTubers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Nokia C22 | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/methods-to-exclude-sound-from-multimedia-files/"><u>Methods to Exclude Sound From Multimedia Files</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-30-pathways-to-unique-metaverse-meme-production/"><u>[New] 30 Pathways to Unique Metaverse Meme Production</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-accessing-your-curated-music-lists-on-youtube/"><u>[New] Accessing Your Curated Music Lists on Youtube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-premier-5-iphones-for-podcast-aficionados/"><u>[New] In 2024, Premier 5 iPhones for Podcast Aficionados</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-discover-9-easy-no-cost-editing-software-options/"><u>[Updated] Discover 9 Easy, No-Cost Editing Software Options</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-cost-cutting-options-for-purchasing-gopros/"><u>2024 Approved Cost-Cutting Options for Purchasing GoPros</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/dissecting-screenflows-impact-on-mac-creatives-and-developers/"><u>Dissecting ScreenFlow's Impact on Mac Creatives and Developers</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-windows-11-security-navigating-tpm-complexities/"><u>Mastering Windows 11 Security: Navigating TPM Complexities</u></a></li>
+<li><a href="https://article-posts.techidaily.com/revamping-your-mobile-melodies-an-expert-iphone-ringtone-guide-for-2024/"><u>Revamping Your Mobile Melodies An Expert iPhone Ringtone Guide for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/structured-approach-to-managing-youtube-videos-a-complete-watch-later-system/"><u>Structured Approach to Managing YouTube Videos A Complete Watch Later System</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essentials-of-earning-on-youtube-latest-changes/"><u>The Essentials of Earning on YouTube Latest Changes</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-honor-magic-6-pro-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Honor Magic 6 Pro Phone Pattern Lock</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unending-shutdown-method-how-to-kill-off-youtube-shorts/"><u>Unending Shutdown Method How to Kill Off Youtube Shorts</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On OnePlus Ace 2 | Dr.fone</u></a></li>
 </ul></div>
 

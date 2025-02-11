@@ -1,7 +1,7 @@
 ---
 title: Tackling Back 4 Blood's Infamous UE4 Error in Desert Wastelands of Gobi
-date: 2025-01-27T16:50:50.985Z
-updated: 2025-01-30T00:59:02.333Z
+date: 2025-02-04T23:46:02.738Z
+updated: 2025-02-10T17:10:05.453Z
 tags:
   - win11
   - win10
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/1215be7bf16e16d5f6b24b8264be95ca24fa72ef1
 
 Many Elite Dangerous players have been reporting the game crashing issue. It occurs randomly, at launch or mid-game, causing extreme annoyance. In this guide, we’ll take a look at Elite Dangerous crashing fixes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Fix Elite Dangerous Crashing
 
  Before going any further, it’s critical that you restart your computer first. A restart can clean away the current state of the software, which includes any issues that have occurred.
@@ -31,15 +35,15 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 6. **[Lower your graphics settings](https://tools.techidaily.com/drivereasy/download/)**
 7. **[Run the game in Windowed mode](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 1 – Ran the game as administrator
 
  Your PC may not give**Elite Dangerous or the game launcher** the necessary permissions they need to work correctly. You might run into game issues like game crashing in this case.
 
  Try running the game and the game launcher as administrator to see if it helps. If not, try the next solution.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 2 – Verify the integrity of game files
 
@@ -52,7 +56,7 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 ![](https://images.drivereasy.com/wp-content/uploads/2020/02/2020-02-14_17-15-17.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **3)** Right-click **Elite Dangerous**  and select **Properties** .
@@ -64,6 +68,10 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-09_10-38-34.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **5)**  Relaunch your game to test the issue.
 
@@ -85,14 +93,14 @@ This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-57-32.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it.  
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-58-08.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -102,10 +110,6 @@ This could take several minutes. Wait for the process to be complete.
 ## Fix 4 – Stop overclocking
 
  An unstable overclock will crash your game and the whole system. So, **if you’re overclocking your CPU or GPU, set the clock speed rate back to the default** to see if that resolves the crash issue. If it doesn’t, move on to the fix below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 5 – Disable unnecessary programs
 
@@ -119,17 +123,9 @@ This could take several minutes. Wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_12-07-59.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **3)** Restart your game to see if it runs correctly now.
 
 Your game still won’t work correctly? Read on and try Fix 5.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 6 – Lower your graphics settings
 
@@ -142,6 +138,10 @@ Your game still won’t work correctly? Read on and try Fix 5.
 **3)** Set a less demanding configuration for your game.
 
 If the crashing still happens, continue with the next solution below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 7 – Run the game in Windowed mode
 
@@ -182,22 +182,18 @@ If the crashing still happens, continue with the next solution below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-10-shopping-powerhouses-where-to-buy-personalized-present-wrappers/"><u>[Updated] In 2024, 10 Shopping Powerhouses Where to Buy Personalized Present Wrappers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-carminatis-gig-economy-ajays-youtube-wealth-stream/"><u>2024 Approved Carminati's Gig Economy AJay's YouTube Wealth Stream</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-easy-steps-for-exporting-videos-from-youtube-to-dailymotion/"><u>2024 Approved Easy Steps for Exporting Videos From YouTube to Dailymotion</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-youtubers-essential-camera-guidebook/"><u>2024 Approved YouTubers' Essential Camera Guidebook</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/a-comprehensive-guide-to-rectifying-sound-distortion-issues-in-media-software-for-windows-10-and-7-systems/"><u>A Comprehensive Guide to Rectifying Sound Distortion Issues in Media Software for Windows 10 & 7 Systems</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Vivo Y100 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/creative-choreography-compendiums/"><u>Creative Choreography Compendiums</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-video-views-to-vault-closure-income-insights-for-youtubers/"><u>From Video Views to Vault Closure Income Insights for Youtubers</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/honor-data-retrieval-tool-restore-lost-data-from-honor-x50i-by-fonelab-android-recover-data/"><u>Honor Data Retrieval tool – restore lost data from Honor X50i</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-apple-synergy-vision-and-sound-merging/"><u>In 2024, Apple Synergy Vision and Sound Merging</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-channel-prodigy-skyrocketing-with-content-innovation/"><u>In 2024, Channel Prodigy Skyrocketing with Content Innovation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/investigating-profit-per-viewer-engagement-on-video-platforms/"><u>Investigating Profit per Viewer Engagement on Video Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/multi-platform-mastery-delivering-content-to-youtube-and-others/"><u>Multi-Platform Mastery Delivering Content to YouTube & Others</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722962183645-quick-and-simple-find-and-update-your-canon-printerscanner-drivers-for-windows/"><u>Quick & Simple: Find and Update Your Canon Printer/Scanner Drivers for Windows</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/swift-technique-coding-images-for-youtube-channel-thumbnails/"><u>Swift Technique Coding Images for YouTube Channel Thumbnails</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/top-10-best-photo-watermarking-software/"><u>Top 10 Best Photo Watermarking Software</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/visual-anonymity-in-sharing-blurring-methods-explained/"><u>Visual Anonymity in Sharing Blurring Methods Explained</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-second-stories-explained-well-for-2024/"><u>[New] 5-Second Stories Explained Well for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-bring-out-the-magic-leading-frames-for-your-images-for-2024/"><u>[New] Bring Out the Magic Leading Frames for Your Images for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-from-novice-to-pro-periscope-stream-mastery/"><u>[Updated] In 2024, From Novice to Pro Periscope Stream Mastery</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-overview-how-espnplus-redefines-accessibility-for-modern-fans-through-its-subscription-service/"><u>Comprehensive Overview: How ESPN+ Redefines Accessibility for Modern Fans Through Its Subscription Service</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-zero-to-hero-youtube-intro-wonders-with-imovie/"><u>From Zero to Hero YouTube Intro Wonders with iMovie</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-convert-youtube-to-mp4-safely-in-2024/"><u>How to Convert YouTube to MP4 Safely, In 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-create-a-playlist-on-youtube/"><u>How to Create a Playlist on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-building-a-billion-view-empire-your-step-by-step-youtube-strategy/"><u>In 2024, Building a Billion-View Empire Your Step-by-Step Youtube Strategy</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-free-tools-convert-youtube-audio-to-mp3-on-iphone/"><u>In 2024, Essential Free Tools Convert YouTube Audio to MP3 on iPhone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-motorola-moto-g13frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Motorola Moto G13FRP Lock</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/simple-steps-to-resolve-problems-with-non-openable-items-on-windows-desktops/"><u>Simple Steps to Resolve Problems with Non-Openable Items on Windows Desktops</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-evolution-of-live-streaming-with-periscope/"><u>The Evolution of Live Streaming with Periscope</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-is-now-exploring-the-upgrades-in-amazons-latest-echo-generation/"><u>The Future Is Now: Exploring the Upgrades in Amazon's Latest Echo Generation</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Personalized Video Setups  A Beginner's Guide to Selfies on YouTube\""
-date: 2025-01-26T17:51:49.569Z
-updated: 2025-01-30T00:47:26.024Z
+date: 2025-02-06T17:38:01.715Z
+updated: 2025-02-11T03:22:24.009Z
 tags:
   - ai video
   - ai youtube
@@ -38,11 +38,11 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
@@ -62,7 +62,7 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -88,7 +88,7 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -107,15 +107,15 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -134,22 +134,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-capturing-life-in-motion-top-9-smartphone-props-for-dynamic-cinematography/"><u>[New] Capturing Life in Motion Top 9 Smartphone Props for Dynamic Cinematography</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-the-definitive-guide-to-flawless-morphvox-technique/"><u>[New] In 2024, The Definitive Guide to Flawless MorphVOX Technique</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-direct-save-plus-alternative-pathways-your-instagram-video-guide/"><u>[Updated] 2024 Approved Direct Save + Alternative Pathways Your Instagram Video Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-dominance-in-video-landscape-mirrorless-vs-dslr-cameras/"><u>[Updated] Dominance in Video Landscape Mirrorless vs DSLR Cameras</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtube-partnership-unlocked-break-through-at-10k-vistas/"><u>[Updated] In 2024, YouTube Partnership Unlocked Break Through at 10K Vistas</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-closer-look-at-the-monetization-mechanism-for-video-clips/"><u>2024 Approved A Closer Look at the Monetization Mechanism for Video Clips</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-club-anthems-expertly-curated-dj-vids-downloads/"><u>2024 Approved Club Anthems Expertly Curated DJ Vids Downloads</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/erate-your-channel-growth-affordable-subscribers-available/"><u>Accelerate Your Channel Growth - Affordable Subscribers Available</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/copyright-concerns-with-recording-youtube-content-for-2024/"><u>Copyright Concerns with Recording YouTube Content for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/diy-digital-storytelling-making-moving-pictures-on-your-smartphone-for-2024/"><u>DIY Digital Storytelling Making Moving Pictures on Your Smartphone for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enabling-earnings-a-step-by-step-approach-for-mobile-youtubers/"><u>Enabling Earnings A Step-by-Step Approach for Mobile YouTubers</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-from-apple-iphone-se-2020-by-drfone-ios/"><u>How To Remove the Two Factor Authentication From Apple iPhone SE (2020)</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/ignite-drive-with-these-20-high-impact-tunes-for-exercise-enthusiasts-for-2024/"><u>Ignite Drive with These 20 High-Impact Tunes for Exercise Enthusiasts for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/this-title-offers-updated-troubleshooting-steps-specific-to-2024-suggesting-that-the-content-is-up-to-date-with-the-latest-fixes-and-advice/"><u>This Title Offers Updated Troubleshooting Steps Specific to 2024, Suggesting that the Content Is Up-to-Date with the Latest Fixes and Advice.</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-screen-deformation-and-colour-irregularities-on-your-desktop-monitor/"><u>Troubleshooting Screen Deformation & Colour Irregularities On Your Desktop Monitor</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/untangle-the-windows-11-setup-knot-a-comprehensive-guide-to-fixing-error-code-80240020/"><u>Untangle the Windows 11 Setup Knot: A Comprehensive Guide to Fixing Error Code 80240020</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-cash-flow-8-simple-money-making-tips/"><u>YouTube Cash Flow 8 Simple Money-Making Tips</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-free-fcp-strategies-and-tactics-exposed-for-2024/"><u>[New] Free FCP Strategies and Tactics Exposed for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-how-to-upload-tweets-no-retweets-on-mobile/"><u>[New] How to Upload Tweets - No Retweets on Mobile?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-motorola-moto-g84-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Motorola Moto G84 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-edit-audio-on-youtube/"><u>How to Edit Audio on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-get-paid-to-review-products-on-youtube/"><u>How to Get Paid to Review Products on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-craft-and-share-360-videos-to-youtube-an-essential-guide-for-creators/"><u>In 2024, Craft and Share 360 Videos to YouTube An Essential Guide for Creators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-creating-captivating-youtube-openers-two-ways/"><u>In 2024, Creating Captivating YouTube Openers - Two Ways</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-ethical-download-strategies-for-youtube-to-mp4-files/"><u>In 2024, Ethical Download Strategies for YouTube to MP4 Files</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-nokia-g22-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Nokia G22 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/income-journey-on-youtube-start-here-with-8-tips/"><u>Income Journey on YouTube - Start Here with 8 Tips</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-resolving-oeserverdll-absence-errors/"><u>Step-by-Step Guide: Resolving oeserver.dll Absence Errors</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/summer-clearance-event-save-big-with-macxdvds-buy-two-get-one-free-promotion/"><u>Summer Clearance Event: Save Big with MacXDVD's 'Buy Two, Get One Free' Promotion</u></a></li>
 </ul></div>
 

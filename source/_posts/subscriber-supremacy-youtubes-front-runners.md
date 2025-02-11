@@ -1,7 +1,7 @@
 ---
 title: "\"Subscriber Supremacy  YouTube's Front-Runners\""
-date: 2025-01-22T22:50:55.234Z
-updated: 2025-01-29T22:23:39.532Z
+date: 2025-02-10T00:07:43.872Z
+updated: 2025-02-11T00:02:29.270Z
 tags:
   - ai video
   - ai youtube
@@ -50,12 +50,16 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\.  PewDiePie
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
@@ -66,6 +70,10 @@ The most common videos on Felix's channel are gaming videos in which he comments
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
@@ -75,16 +83,12 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ###  4\.  Smosh
 
@@ -100,10 +104,6 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
 At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 million downloads in the first week. His videos are mostly in Spanish which somewhat limits his audience, but it is safe to say the Fernanfloo channel is among the most popular channels in the Latin American countries since most of his audience comes from Bolivia, Peru, and Ecuador.
@@ -113,7 +113,7 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit YouTube Videos with Full-Featured Video Editing Software
@@ -137,24 +137,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-creating-a-multimedia-guide-adding-videos-to-text-articles-for-2024/"><u>[New] Creating a Multimedia Guide Adding Videos to Text Articles for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-how-to-get-free-picture-frame-videos-for-2024/"><u>[New] How to Get Free Picture Frame Videos for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-navigating-the-nuances-of-streaming-and-saving-on-facebook/"><u>[New] Navigating the Nuances of Streaming and Saving on Facebook</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-detailed-guide-to-dollar-counts-a-stepwise-strategy-to-track-youtube-earnings/"><u>[Updated] Detailed Guide to Dollar Counts A Stepwise Strategy to Track YouTube Earnings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mobile-innovators-guide-streamlined-channel-launch-for-entrepreneurs-and-content-makers/"><u>[Updated] In 2024, Mobile Innovators' Guide Streamlined Channel Launch for Entrepreneurs & Content Makers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-practices-in-confirming-your-youtube-access/"><u>2024 Approved Best Practices in Confirming Your YouTube Access</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-cross-platform-strategies-to-boost-youtube-presence/"><u>2024 Approved Cross-Platform Strategies to Boost YouTube Presence</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-mp3-recording-guide-exclusive-to-free-skype-calls/"><u>2024 Approved MP3 Recording Guide Exclusive to Free Skype Calls</u></a></li>
-<li><a href="https://windows11.techidaily.com/avoid-virtual-fraud-tips-for-discerning-true-windows-apps/"><u>Avoid Virtual Fraud: Tips for Discerning True Windows Apps</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ceo-change-at-openai-what-about-gpt/"><u>CEO Change at OpenAI - What About GPT?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-the-visual-language-of-live-videos-on-youtube/"><u>Decoding the Visual Language of Live Videos on YouTube</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/elevate-your-site-with-cookiebot-technology-for-targeted-user-engagement/"><u>Elevate Your Site with Cookiebot Technology for Targeted User Engagement</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-motorola-edge-2023-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Motorola Edge 2023 Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-techniques-youtube-trailers-through-filmoras-lens/"><u>In 2024, Cutting Edge Techniques YouTube Trailers Through Filmora's Lens</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-the-new-streaming-landscape-with-youtube-premium/"><u>Navigating the New Streaming Landscape with YouTube Premium</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/stop-algorithmic-youtube-video-selections/"><u>Stop Algorithmic YouTube Video Selections</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unihertz-atom-xl-review-this-tiny-rugged-phone-is-a-pint-sized-powerhouse/"><u>Unihertz Atom XL Review: This Tiny Rugged Phone Is a Pint-Sized Powerhouse</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unveiling-the-best-3-video-hosts-post-youtube-era/"><u>Unveiling the Best 3 Video Hosts Post-YouTube Era</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/video-sharing-giants-clash-vimeo-vs-youtube/"><u>Video Sharing Giants Clash Vimeo vs YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-best-practices-for-youtube-to-mpeg-format-switching/"><u>[New] In 2024, Best Practices for YouTube to MPEG Format Switching</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-streamlining-video-content-in-zoom-with-custom-filters/"><u>[Updated] Streamlining Video Content in Zoom With Custom Filters</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-tactical-timing-for-topic-tracking-via-instagram-story-polls-for-2024/"><u>[Updated] Tactical Timing for Topic Tracking via Instagram Story Polls for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-the-ultimate-guide-to-effective-youtube-banners/"><u>2024 Approved The Ultimate Guide to Effective YouTube Banners</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-beginners-guide-to-youtube-seo-keywords-for-2024/"><u>A Beginner's Guide to YouTube SEO Keywords for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-creators-primer-to-understanding-major-content-providers/"><u>A Creator's Primer to Understanding Major Content Providers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/avoiding-piracy-safe-techniques-for-youtube-to-mp4/"><u>Avoiding Piracy Safe Techniques for Youtube-to-MP4</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/chart-topping-ideas-to-invigorate-your-youtube-channel-for-2024/"><u>Chart-Topping Ideas to Invigorate Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-updates-youtube-money-standards/"><u>Charting Updates YouTube Money Standards</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dynamic-animated-and-personalized-filmora-subscribe-button-for-youtube/"><u>Dynamic, Animated, and Personalized Filmora Subscribe Button for YouTube</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-oneplus-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of OnePlus? Try These Fixes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/perfect-selfies-tips-for-instagram-story-magnification-for-2024/"><u>Perfect Selfies Tips for Instagram Story Magnification for 2024</u></a></li>
 </ul></div>
 

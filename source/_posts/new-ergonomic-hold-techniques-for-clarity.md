@@ -1,7 +1,7 @@
 ---
 title: "[New] Ergonomic Hold Techniques for Clarity"
-date: 2025-01-29T01:08:34.043Z
-updated: 2025-01-30T00:17:42.427Z
+date: 2025-02-09T18:56:48.002Z
+updated: 2025-02-10T20:29:27.486Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/48bbf816680af2439ef36580a7c2fe3c4155339da
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
@@ -35,13 +39,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -62,13 +66,13 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -95,10 +99,6 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -122,7 +122,7 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,17 +140,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-your-content-with-professional-end-screen-templates/"><u>[New] Elevate Your Content with Professional End Screen Templates</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/rime-video-editors-for-youtube-enthusiasts/"><u>[New] Prime Video Editors for YouTube Enthusiasts</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unlock-video-editing-mastery-using-lut-filters-in-obs-studio/"><u>[New] Unlock Video Editing Mastery Using LUT Filters in OBS Studio</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-deciding-audio-platforms-podcasts-or-youtube/"><u>[Updated] In 2024, Deciding Audio Platforms Podcasts or YouTube?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-architects-of-online-marvel-adventures/"><u>2024 Approved Architects of Online Marvel Adventures</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/becoming-a-filmora-fcc-the-pathway-explained/"><u>Becoming a Filmora FCC The Pathway Explained</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/curated-cinematic-journeys-the-best-yt-film-selections-for-2024/"><u>Curated Cinematic Journeys The Best YT Film Selections for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Methods to Change GPS Location On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-visualize-better-with-these-leading-sticker-addon-apps-for-phones/"><u>In 2024, Visualize Better with These Leading Sticker Addon Apps for Phones</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/unlocking-your-digital-content-how-to-remove-drm-from-acyp-bought-ebooks/"><u>Unlocking Your Digital Content: How to Remove DRM From ACYP-Bought eBooks</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unstuck-from-a-frozen-screen-heres-how-to-revitalize-your-chromebook/"><u>Unstuck From a Frozen Screen? Here's How to Revitalize Your Chromebook!</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-nine-spectacular-platforms-for-accessing-copyright-free-funny-audio-for-2024/"><u>Updated Nine Spectacular Platforms for Accessing Copyright-Free Funny Audio for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-beginners-bible-to-your-youtube-audio-visual-arsenal/"><u>[New] Beginner's Bible to Your YouTube Audio-Visual Arsenal</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-tools-for-android-and-ios-users-seeking-playlist-extractors/"><u>[New] Essential Tools for Android & iOS Users Seeking Playlist Extractors</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-elevate-your-drone-videos-with-the-best-editing-programs/"><u>[New] In 2024, Elevate Your Drone Videos with the Best Editing Programs</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-insiders-pick-of-advanced-audio-software-a-vtubers-guide/"><u>[New] Insider's Pick of Advanced Audio Software A Vtuber's Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-comprehensive-checklist-for-perfecting-your-reddit-posts/"><u>[New] The Comprehensive Checklist for Perfecting Your Reddit Posts</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-the-art-of-anime-adaptation-jujutsu-kaisens-tiktok-success/"><u>[Updated] 2024 Approved The Art of Anime Adaptation Jujutsu Kaisen's TikTok Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-advanced-techniques-for-trimming-youtube-footage/"><u>[Updated] Advanced Techniques for Trimming YouTube Footage</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mobile-filmmaking-tips-designing-engaging-youtubes-thumbnails/"><u>[Updated] Mobile Filmmaking Tips Designing Engaging YouTubes Thumbnails</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pinnacle-vr-devices-the-essential-list/"><u>2024 Approved Pinnacle VR Devices The Essential List</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/low-cost-recording-choices-top-11-vlogger-essentials/"><u>Low-Cost Recording Choices Top 11 Vlogger Essentials</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-motherboard-picks-deciphering-7-critical-aspects-to-assess-before-buying/"><u>Mastering Motherboard Picks: Deciphering 7 Critical Aspects to Assess Before Buying</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/scrutinizing-youtubes-top-viewed-community-inputs/"><u>Scrutinizing YouTube's Top Viewed Community Inputs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-by-step-legally-convert-youtube-to-mp4-format/"><u>Step-by-Step Legally Convert YouTube to MP4 Format</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/your-go-to-list-of-international-adventure-vids/"><u>Your Go-To List of International Adventure Vids</u></a></li>
 </ul></div>
 

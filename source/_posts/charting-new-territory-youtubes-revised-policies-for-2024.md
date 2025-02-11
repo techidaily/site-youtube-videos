@@ -1,7 +1,7 @@
 ---
 title: "\"Charting New Territory  YouTube's Revised Policies for 2024\""
-date: 2024-07-22T16:13:28.063Z
-updated: 2024-07-23T16:13:28.063Z
+date: 2025-02-05T17:44:36.462Z
+updated: 2025-02-10T16:36:09.172Z
 tags:
   - ai video
   - ai youtube
@@ -28,9 +28,6 @@ thumbnail: https://thmb.techidaily.com/f78a12d6fa260b60593d7d84df0572fbc03e543ca
 
 YouTube monetization refers to earning money from the content uploaded on the platform. It is the ability to derive income from the videos you have uploaded on your YouTube channels. The YouTube policies for monetization clearly stipulate what you need to start making money on the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![what is youtube monetization](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-1.JPG)
 
 After passing the YouTube requirement for monetization, your channel can generate revenue in several ways:
@@ -45,14 +42,8 @@ After passing the YouTube requirement for monetization, your channel can generat
 
 The YouTube monetization policies update on June 13th, 2023 provided a new opportunity for creators to earn money on the platforms. With the new updates, it is now easier for beginners to generate revenue on YouTube. The YouTube new monetization policy 2023 makes monetization more accessible to creators. It adds earlier access to the YouTube Partner Program.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **YouTube New Policy for Monetization**
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![updated eligibility criteria](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-2.JPG)
 
 The new eligibility criteria are more inclusive and require your channel to have:
@@ -75,9 +66,6 @@ While the new YouTube monetization criteria create more opportunities for smalle
 
 That said, the 2023 new YouTube monetization requirements are a great addition to creators’ journey. Creators who have applied for early access to fun funding are not required to reapply after qualifying for full monetization.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Additional Policies and Guidelines**
 
 Apart from the new monetization rules for YouTube 2023, other policies and guidelines remain the same. Youtubers are required to adhere to the following YouTube channel monetization policies:
@@ -87,8 +75,9 @@ Apart from the new monetization rules for YouTube 2023, other policies and guide
 * **Monetization Policies:** Content must not be designed to manipulate viewers into clicking on ads or performing other actions intended to generate revenue for the creator.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Part 3\. How YouTube's New Monetization Policy Will Impact Creators**
 
 The new monetization rules for YouTube 2023 create a unique opportunity for creators to make money. The requirements to get monetized on YouTube are now relaxed. This implies that more creators can monetize their channels. By attaining YouTube monetization eligibility quickly, small YouTubers will now be motivated to create content with more value.
@@ -101,9 +90,6 @@ Ad revenue is the most sustainable form of monetization. Creators don’t have t
 
 Streamers usually have a higher watch time than the number of subscribers they have. So, the new policy will allow YouTubers will a low following to earn from streaming their content. Short creators will benefit from the high number of views shorts tend to generate.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ### **New Policies Make YouTube More Competitive**
 
 The new YouTube channel monetization rules will not only benefit creators. By making it easier for creators to earn on the platform, YouTube is becoming more competitive amongst other platforms. These policies will make YouTube dominate the traditional long-form videos, as well as the emerging shirt-form content. More creators find the new policies more friendly and are more willing to put their content on the platform.
@@ -118,10 +104,6 @@ The new policies make it easier for more creators to monetize their channels. Si
 
 It’s interesting that watch hours from shorts will not count along the standard 4,000 public watch hours. This is a plus for many creators. You will find that many creators who post shorts on their channels have more views than their long views. With the new policies, it means that they can monetize their channels based only on the short’s figures.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Part 4\. Editing YouTube Videos For Monetization with Wondershare Filmora**
 
 Wondershare Filmora is a versatile video editing software that helps creators remain relevant. With specific editing features for various aspects of your video project, this software ensures that your videos will stand out on YouTube. It is also a great tool for making shorts using top YouTuber’s strategies.
@@ -142,56 +124,34 @@ Filmora gives you a quick and easy start to your creative video editing journey.
 
 Quickly add relevant texts to your videos. You can include captions or subtitles, choosing the font style and other formatting as desired.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![add text to video](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-6.JPG)
 
 ### **3\.** [**AI Smart Cutout**](https://images.wondershare.com/filmora/guide/filmora-ai-smart-cutout-images-on-windows-04.png)
 
 The AI Smart Cutout features allow you to easily edit out any unwanted background or objects in your clips. The AI-powered features help you edit your clips faster and finish your projects quickly.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **4\.** [**Adjustment Layer**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The adjustment layer is a great feature on Filmora that allows you to add effects to multiple video clips at once. No need to keep going back and forth when making your edits.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![adjustment layer](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-7.JPG)
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **5\.** [**Text to Speech**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The Text to Speech (TTS) feature on Filmora allows you to convert your text files to voiceovers. A great feature to bring more elements that enrich your video experience.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Conclusion**
 
 The new YouTube monetization policy 2023 has created more opportunities for creators to make money on the platform. Creators of Shorts or those who love to stream on the platform now have an easier way to monetize their channels. To get the best out of this opportunity, we recommend using Wondershare Filmora for your video editing projects. Explore the available features, and create long- or short-form videos that will stand out on YouTube.
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## **Part 1\. Introduction to YouTube Monetization: What You Need to Know**
 
 YouTube monetization refers to earning money from the content uploaded on the platform. It is the ability to derive income from the videos you have uploaded on your YouTube channels. The YouTube policies for monetization clearly stipulate what you need to start making money on the platform.
@@ -206,18 +166,16 @@ After passing the YouTube requirement for monetization, your channel can generat
 * **Super Chat**: You can also earn money from YouTube through Super Chat and Super Stickers. They allow viewers to pay for their messages to be highlighted in the live chat. They can also pay for the animated images that appear on the screen.
 * **Brand Deals**: YouTubers partner with brands to promote products or services. Brand deals can also include sponsorships and product placement.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 2\. YouTube New Monetization Policies 2023: Key Updates**
 
 The YouTube monetization policies update on June 13th, 2023 provided a new opportunity for creators to earn money on the platforms. With the new updates, it is now easier for beginners to generate revenue on YouTube. The YouTube new monetization policy 2023 makes monetization more accessible to creators. It adds earlier access to the YouTube Partner Program.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **YouTube New Policy for Monetization**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![updated eligibility criteria](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-2.JPG)
 
 The new eligibility criteria are more inclusive and require your channel to have:
@@ -236,10 +194,11 @@ With the new YouTube monetization policy 2023, creators enjoy the following bene
 
 While the new YouTube monetization criteria create more opportunities for smaller creators to earn fan funding, the [old standards](https://support.google.com/youtube/answer/72851?hl=en&ref%5Ftopic=9153642&sjid=15033404818844015570-EU) are still applicable. The YouTube policy for monetization through ad revenue will remain the same. Channels are still required to have at least 1,000 subscribers with more than 4,000 public watch hours for long videos in the past 365 days or 10M public views for Shorts videos in the past 90 days.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![updated old standards](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-3.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 That said, the 2023 new YouTube monetization requirements are a great addition to creators’ journey. Creators who have applied for early access to fun funding are not required to reapply after qualifying for full monetization.
 
@@ -255,16 +214,10 @@ Apart from the new monetization rules for YouTube 2023, other policies and guide
 
 The new monetization rules for YouTube 2023 create a unique opportunity for creators to make money. The requirements to get monetized on YouTube are now relaxed. This implies that more creators can monetize their channels. By attaining YouTube monetization eligibility quickly, small YouTubers will now be motivated to create content with more value.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ### **Who Benefits the Most from YouTube Monetization Rules 2023**
 
 Ad revenue is the most sustainable form of monetization. Creators don’t have to ask the community to support them financially. They only create good quality content and build a large following. The new YouTube policies for monetization will mostly benefit creators who create Shorts or stream on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![shorts revenue sample](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-4.JPG)
 
 Streamers usually have a higher watch time than the number of subscribers they have. So, the new policy will allow YouTubers will a low following to earn from streaming their content. Short creators will benefit from the high number of views shorts tend to generate.
@@ -272,6 +225,10 @@ Streamers usually have a higher watch time than the number of subscribers they h
 ### **New Policies Make YouTube More Competitive**
 
 The new YouTube channel monetization rules will not only benefit creators. By making it easier for creators to earn on the platform, YouTube is becoming more competitive amongst other platforms. These policies will make YouTube dominate the traditional long-form videos, as well as the emerging shirt-form content. More creators find the new policies more friendly and are more willing to put their content on the platform.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Advertisers to Benefit**
 
@@ -293,17 +250,15 @@ Wondershare Filmora is a versatile video editing software that helps creators re
 
 Filmora has all the features in one place, which makes it easy and quick to edit videos. From improving the quality of your audio to enhancing your visuals, here are 5 features you need to explore:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ### **1\.** [**Preset Templates**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Filmora gives you a quick and easy start to your creative video editing journey. Select from the readily available templates or save your own video templates for future use.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![preset templates](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-5.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **2\.** [**Add Text to Video**](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -315,9 +270,6 @@ Quickly add relevant texts to your videos. You can include captions or subtitles
 
 The AI Smart Cutout features allow you to easily edit out any unwanted background or objects in your clips. The AI-powered features help you edit your clips faster and finish your projects quickly.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **4\.** [**Adjustment Layer**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The adjustment layer is a great feature on Filmora that allows you to add effects to multiple video clips at once. No need to keep going back and forth when making your edits.
@@ -327,6 +279,10 @@ The adjustment layer is a great feature on Filmora that allows you to add effect
 ### **5\.** [**Text to Speech**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The Text to Speech (TTS) feature on Filmora allows you to convert your text files to voiceovers. A great feature to bring more elements that enrich your video experience.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -344,9 +300,6 @@ The new YouTube monetization policy 2023 has created more opportunities for crea
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Amplify Your Online Presence: Top 5 Effective YouTube Strategies
 
 YouTube is undoubtedly the most famous video sharing platform in the world. More than 5 billion videos are watched every single minute on YouTube. And the ever-growing user base has propelled YouTube to the status of 2nd most popular social media platform in the world, and the [second most visited website](https://tools.techidaily.com/wondershare/filmora/download/) after Google in 2021.
@@ -385,9 +338,6 @@ This video gives an excellent explanation of the string theory. The Video is Fro
 
 Now, look at the above video that explains String Theory in less than half the time from TED-Ed. Notice how the video has more than four times the views with an impressive 10 million views. It comes to show that if you can condense your content in such a way that you can get the maximum meaning across in minimum time, you will rack up more views!
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### b. Test different formats/scenarios
 
 Having a monotonous nature throughout your videos can be quite tiring for the viewer after some time. Make sure to mix things up a bit by introducing new types of video formats or scenarios that keeps the users engaged.
@@ -403,8 +353,9 @@ And many videos that aren’t specifically cooking at all!
 And it is evident that these new formats have also become crowd favorites. Now do all their videos hit the 1 million mark? No, that just shows they are constantly testing out the waters go ahead with what works and discard what doesn’t!
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### c. Try Giveaways and gifts
 
 You can boost the viewership and subscriber count for your channel by setting up occasional giveaways or gifts to the viewers. Make sure that you set the winning criteria to have the viewers subscribe to the channel.
@@ -435,9 +386,6 @@ In this window, you can see the different sources that led viewers to your video
 
 Analyzing YouTube videos will help you structure your future videos in a way that it is more susceptible to being clicked.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Tip #5: Track the effectiveness of your videos**
 
 You must have an eye on the metrics that your videos garner over the days. While the number of views, likes, and dislikes are great indicators in determining the popularity of the videos, but there are many more factors at play.
@@ -470,19 +418,12 @@ Creating attractive videos is a key to make success in Youtube video marketing. 
 
 To know more about Filmora Video Editor, visit its page: <https://filmora.wondershare.com/video-editor/>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/panel-layout-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 YouTube marketing has evolved over the years to a point where you need a carefully crafted plan to have a successful YouTube career. In this guide, we have mentioned some useful YouTube marketing tips that will help you alo12ng the way.
@@ -493,9 +434,6 @@ This video gives an excellent explanation of the string theory. The Video is Fro
 
 Now, look at the above video that explains String Theory in less than half the time from TED-Ed. Notice how the video has more than four times the views with an impressive 10 million views. It comes to show that if you can condense your content in such a way that you can get the maximum meaning across in minimum time, you will rack up more views!
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ### b. Test different formats/scenarios
 
 Having a monotonous nature throughout your videos can be quite tiring for the viewer after some time. Make sure to mix things up a bit by introducing new types of video formats or scenarios that keeps the users engaged.
@@ -510,9 +448,6 @@ And many videos that aren’t specifically cooking at all!
 
 And it is evident that these new formats have also become crowd favorites. Now do all their videos hit the 1 million mark? No, that just shows they are constantly testing out the waters go ahead with what works and discard what doesn’t!
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ### c. Try Giveaways and gifts
 
 You can boost the viewership and subscriber count for your channel by setting up occasional giveaways or gifts to the viewers. Make sure that you set the winning criteria to have the viewers subscribe to the channel.
@@ -525,14 +460,6 @@ From June 23rd to June 27th, 2018, Unbox therapy had gained 12,583 subscribers. 
 
 We do not advise you to try this out when you are just starting your YouTube career. Only venture out to such investments when you are stable when it comes to earnings.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## **Tip#3: Ask your audience for Feedback**
 
 All your videos must be created with the audience in mind. However, sometimes what you may think would work might not fit well with the audience. Hence, it is imperative that you understand their likes and dislikes.
@@ -547,13 +474,14 @@ YouTube has made it easier for you to track the sources from which your videos a
 
 ![YouTube Analytics](https://images.wondershare.com/filmora/article-images/youtube-analytics.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In this window, you can see the different sources that led viewers to your video. Generally, it can be a mix of websites, YouTube recommendation’s, YouTube search, etc. Metrics like Watch Time gives you an idea of how long viewers watch your videos and Audience Retention shows how consistent they are at watching them. These are just two of the many metrics you can use to your advantage.
 
 Analyzing YouTube videos will help you structure your future videos in a way that it is more susceptible to being clicked.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Tip #5: Track the effectiveness of your videos**
 
 You must have an eye on the metrics that your videos garner over the days. While the number of views, likes, and dislikes are great indicators in determining the popularity of the videos, but there are many more factors at play.
@@ -574,9 +502,6 @@ Your video ranking is important as it determines the position of your videos whe
 
 Yes, it can be quite meticulous but the results are worth the effort. Having a rank tracker like the one from [SE Ranking](https://seranking.com/position-tracking.html) or [Tubebuddy](https://www.tubebuddy.com/tools#keywordranktracking) can be quite handy at times like these. The software basically tracks everything about your videos and presents them in a neatly organized dashboard, which is cuts the effort significantly for YouTube marketers.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![SE Ranking](https://images.wondershare.com/filmora/article-images/se-ranking.jpg)
 
 Do not leave the video by itself to garner views, it often fails to register any results because elements like the title, description and the keywords play an important role in getting the videos to the users.
@@ -615,9 +540,6 @@ And many videos that aren’t specifically cooking at all!
 
 And it is evident that these new formats have also become crowd favorites. Now do all their videos hit the 1 million mark? No, that just shows they are constantly testing out the waters go ahead with what works and discard what doesn’t!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ### c. Try Giveaways and gifts
 
 You can boost the viewership and subscriber count for your channel by setting up occasional giveaways or gifts to the viewers. Make sure that you set the winning criteria to have the viewers subscribe to the channel.
@@ -638,16 +560,10 @@ And the best way to improve your videos is to take suggestions from the audience
 
 There is also another facet to incorporating audience feedback as it projects your YouTube channel to be responsive to the audience, something that is vital to building a strong and loyal viewer base on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Tip #4: Analyse your YouTube videos traffic sources**
 
 YouTube has made it easier for you to track the sources from which your videos are getting the views. Sign in to YouTube Studio Beta and the click Reach from the Analytics menu provided on the left panel. Now click on Traffic source types.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![YouTube Analytics](https://images.wondershare.com/filmora/article-images/youtube-analytics.jpg)
 
 In this window, you can see the different sources that led viewers to your video. Generally, it can be a mix of websites, YouTube recommendation’s, YouTube search, etc. Metrics like Watch Time gives you an idea of how long viewers watch your videos and Audience Retention shows how consistent they are at watching them. These are just two of the many metrics you can use to your advantage.
@@ -674,46 +590,20 @@ Your video ranking is important as it determines the position of your videos whe
 
 Yes, it can be quite meticulous but the results are worth the effort. Having a rank tracker like the one from [SE Ranking](https://seranking.com/position-tracking.html) or [Tubebuddy](https://www.tubebuddy.com/tools#keywordranktracking) can be quite handy at times like these. The software basically tracks everything about your videos and presents them in a neatly organized dashboard, which is cuts the effort significantly for YouTube marketers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![SE Ranking](https://images.wondershare.com/filmora/article-images/se-ranking.jpg)
 
 Do not leave the video by itself to garner views, it often fails to register any results because elements like the title, description and the keywords play an important role in getting the videos to the users.
 
 **You may also like:** [How to Convert YouTube to MP4 Safely? \[Step by Step Guide\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Tip #6: Choose a suitable video creator**
 
 Creating attractive videos is a key to make success in Youtube video marketing. So you will need to have a suitable video editor to help you. There are quite a few choices in marketing now, such as Adobe Premiere Pro. However, there is a better choice for most average users - [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) , which provides powerful video editing features and huge transitions, effects, and filters resources.
 
 To know more about Filmora Video Editor, visit its page: <https://filmora.wondershare.com/video-editor/>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/panel-layout-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 YouTube marketing has evolved over the years to a point where you need a carefully crafted plan to have a successful YouTube career. In this guide, we have mentioned some useful YouTube marketing tips that will help you alo12ng the way.
@@ -738,9 +628,6 @@ And many videos that aren’t specifically cooking at all!
 
 And it is evident that these new formats have also become crowd favorites. Now do all their videos hit the 1 million mark? No, that just shows they are constantly testing out the waters go ahead with what works and discard what doesn’t!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ### c. Try Giveaways and gifts
 
 You can boost the viewership and subscriber count for your channel by setting up occasional giveaways or gifts to the viewers. Make sure that you set the winning criteria to have the viewers subscribe to the channel.
@@ -765,9 +652,6 @@ There is also another facet to incorporating audience feedback as it projects yo
 
 YouTube has made it easier for you to track the sources from which your videos are getting the views. Sign in to YouTube Studio Beta and the click Reach from the Analytics menu provided on the left panel. Now click on Traffic source types.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![YouTube Analytics](https://images.wondershare.com/filmora/article-images/youtube-analytics.jpg)
 
 In this window, you can see the different sources that led viewers to your video. Generally, it can be a mix of websites, YouTube recommendation’s, YouTube search, etc. Metrics like Watch Time gives you an idea of how long viewers watch your videos and Audience Retention shows how consistent they are at watching them. These are just two of the many metrics you can use to your advantage.
@@ -806,10 +690,6 @@ Creating attractive videos is a key to make success in Youtube video marketing. 
 
 To know more about Filmora Video Editor, visit its page: <https://filmora.wondershare.com/video-editor/>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/panel-layout-01.png)
 
 ## Conclusion
@@ -831,7 +711,23 @@ The greatest takeaway from this guide should be that you must be patient and hav
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-a-comprehensive-walkthrough-for-embedding-youtube-plays-in-web-design/"><u>[New] A Comprehensive Walkthrough for Embedding YouTube Plays in Web Design</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-creating-content-with-purpose-balancing-job-and-youtube/"><u>[New] Creating Content with Purpose Balancing Job & YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-creating-stunning-youtube-openings-best-tools-list/"><u>[New] Creating Stunning YouTube Openings - Best Tools List</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-daily-dough-pewdiepies-earnings-breakdown/"><u>[Updated] 2024 Approved Daily Dough PewDiePie's Earnings Breakdown</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-best-youtube-title-generators-for-2024/"><u>[Updated] Best YouTube Title Generators for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-compreehensive-guide-to-youtube-thumbnail-creation-mac/"><u>2024 Approved A Compreehensive Guide to YouTube Thumbnail Creation (Mac)</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-oneplus-11-5g-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/building-brands-on-video-a-guide-to-partnering-with-popular-youtubers-for-2024/"><u>Building Brands on Video A Guide to Partnering with Popular YouTubers for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/crafting-excellence-in-instagram-grids-with-these-elite-tools/"><u>Crafting Excellence in Instagram Grids with These Elite Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-youtube-tagging-strategies-for-optimal-visibility/"><u>Essential YouTube Tagging Strategies for Optimal Visibility</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/fixing-non-appearing-thumbnails-in-youtube-shorts/"><u>Fixing Non-Appearing Thumbnails in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/framing-the-perfect-waterway-narrative/"><u>Framing the Perfect Waterway Narrative</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-online-video-editing-made-easy-a-jaycut-user-guide/"><u>Free Online Video Editing Made Easy A Jaycut User Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ideal-presents-for-aspiring-gamers-kid-friendly-consoles-add-ons/"><u>Ideal Presents for Aspiring Gamers: Kid-Friendly Consoles, Add-Ons</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-vivo-y100t-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Vivo Y100t without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-essential-guide-to-a-neat-system-restart-in-windows-11/"><u>The Essential Guide to a Neat System Restart in Windows 11</u></a></li>
+</ul></div>
 

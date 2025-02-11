@@ -1,7 +1,7 @@
 ---
 title: "\"The YouTube Creator Summit - A Getaway for YouTube's Top Talent\""
-date: 2025-01-03T18:37:11.657Z
-updated: 2025-01-10T17:54:45.839Z
+date: 2025-02-07T19:07:17.371Z
+updated: 2025-02-10T16:56:41.422Z
 tags:
   - ai video
   - ai youtube
@@ -51,10 +51,6 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -67,17 +63,9 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -86,24 +74,28 @@ To help them relax after long days at the summit, YouTube provided creators with
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -113,7 +105,15 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,21 +130,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-lighten-your-sentence-with-satire-ranking-funniest-facebook-detentions/"><u>[New] 2024 Approved Lighten Your Sentence with Satire Ranking Funniest Facebook Detentions</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-flawless-endgame-in-vr-worlds/"><u>[Updated] Flawless Endgame in VR Worlds</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-guide-to-digital-mastery-of-vhs-visuals/"><u>[Updated] The Ultimate Guide to Digital Mastery of VHS Visuals</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-notch-free-editors-to-enhance-your-youtube-content-efficiency-for-2024/"><u>8 Top-Notch Free Editors to Enhance Your YouTube Content Efficiency for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhance-your-asmr-experience-with-top-tier-mics-for-2024/"><u>Enhance Your ASMR Experience with Top-Tier Mics for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/finalcut-pro-elevating-your-youtube-edits-from-good-to-great/"><u>FinalCut Pro Elevating Your YouTube Edits From Good to Great</u></a></li>
-<li><a href="https://media-tips.techidaily.com/free-5kplayer-with-dlna-support-functions-benefits-configuration-and-usage-guide/"><u>Free 5KPlayer with DLNA Support - Functions, Benefits, Configuration, and Usage Guide</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/harnessing-color-grading-with-luts-in-premiere-for-2024/"><u>Harnessing Color Grading with LUTs in Premiere for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-banish-odd-greens-in-your-youtube-videos-using-mac-techniques/"><u>In 2024, Banish Odd Greens in Your YouTube Videos Using Mac Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-best-in-class-streaming-capture-software-for-youtubers/"><u>In 2024, Best-in-Class Streaming Capture Software For YouTubers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-content-masterpieces-with-these-essential-youtube-tips/"><u>In 2024, Crafting Content Masterpieces with These Essential YouTube Tips</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-the-ideal-set-of-keywords-for-your-youtube-videos/"><u>In 2024, Crafting the Ideal Set of Keywords for Your Youtube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-tools-ranking-the-best-mobile-videography-apps/"><u>In 2024, Essential Tools Ranking the Best Mobile Videography Apps</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/step-by-step-guide-overcoming-stutter-and-freezing-glitches-in-outriders-pc/"><u>Step-by-Step Guide: Overcoming Stutter and Freezing Glitches in Outriders (PC)</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782565-9781591439721-the-ecstatic-experience/"><u>The Ecstatic Experience | Free Book</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723206851052-trouble-printer-proofing-your-pdfs-swift-solutions-to-the-rescue/"><u>Trouble Printer-Proofing Your PDFs? Swift Solutions to the Rescue</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-essential-skills-for-exceptional-job-interviews-for-2024/"><u>[New] Essential Skills For Exceptional Job Interviews for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-ethical-download-strategies-for-youtube-to-mp4-files/"><u>[New] Ethical Download Strategies for YouTube to MP4 Files</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-timing-duration-for-a-20mb-high-definition-video/"><u>[Updated] 2024 Approved Timing Duration for a 20Mb High-Definition Video</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-best-8-linux-programs-for-media-makers/"><u>[Updated] Best 8 Linux Programs for Media Makers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-creating-simple-videos-top-10-youtube-projects-anyone-can-do/"><u>[Updated] Creating Simple Videos Top 10 YouTube Projects Anyone Can Do</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/becoming-an-insta-star-in-a-flash-top-15-insider-tactics-that-work-wonders-for-rapid-fame-growth-for-2024/"><u>Becoming an Insta Star in a Flash Top 15 Insider Tactics That Work Wonders for Rapid Fame Growth for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-untold-journey-of-an-instagram-story-enthusiast/"><u>In 2024, The Untold Journey of an Instagram Story Enthusiast</u></a></li>
+<li><a href="https://win-studio.techidaily.com/solving-the-issue-when-your-usb-flash-drive-is-missing-on-windows-11/"><u>Solving the Issue: When Your USB Flash Drive Is Missing on Windows 11</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-potential-empowered-channel-expansion-via-youtube-insights/"><u>Unlock Potential Empowered Channel Expansion via YouTube Insights</u></a></li>
 </ul></div>
 

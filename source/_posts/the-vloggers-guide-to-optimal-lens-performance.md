@@ -1,7 +1,7 @@
 ---
 title: "The Vlogger's Guide to Optimal Lens Performance"
-date: 2025-01-06T20:01:27.573Z
-updated: 2025-01-10T20:13:37.132Z
+date: 2025-02-09T00:52:17.092Z
+updated: 2025-02-11T02:07:25.520Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,6 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -59,6 +55,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 #### Telephoto Lens
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
 
@@ -82,6 +82,10 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -89,6 +93,10 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -106,30 +114,26 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -159,10 +163,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -178,16 +178,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-the-dual-drive-approach-video-uploads-to-twitter-plus-tumblr-for-2024/"><u>[New] The Dual-Drive Approach Video Uploads to Twitter + Tumblr for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-reimagining-communication-advanced-tactics-for-capturing-skype-calls/"><u>[Updated] In 2024, Reimagining Communication Advanced Tactics for Capturing Skype Calls</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-5-top-tier-gaming-displays-in-4k-quality/"><u>2024 Approved 5 Top-Tier Gaming Displays in 4K Quality</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-comprehensive-guide-to-the-best-makeup-tutorials-on-youtube-for-2024/"><u>A Comprehensive Guide to the Best Makeup Tutorials on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/adobe-premiere-tips-youtube-video-uploads-for-2024/"><u>Adobe Premiere Tips YouTube Video Uploads for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/artificial-ingenuity-at-play-the-8-ways-ai-redefines-whats-real-and-imaginary-in-our-world-today/"><u>Artificial Ingenuity at Play: The 8 Ways AI Redefines What’s Real and Imaginary in Our World Today</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevating-your-youtube-presence-through-famebit-inspired-sponsorships/"><u>Elevating Your YouTube Presence Through FameBit-Inspired Sponsorships</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716464343160-embark-into-the-best-youtube-vr-content-ever/"><u>Embark Into the Best YouTube VR Content Ever!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/exploring-the-differences-uefi-vs-bios-explained/"><u>Exploring the Differences: UEFI Vs. BIOS Explained</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-apple-iphone-se-2020-drfone-by-drfone-ios/"><u>How to Remove and Reset Face ID on Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-quickening-media-display-on-ppt/"><u>In 2024, Quickening Media Display on PPT</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-lens-legends-6-choices-the-finest-4k-dslrs-revealed/"><u>[New] 2024 Approved Lens Legends' 6 Choices The Finest 4K DSLRs Revealed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-boost-your-channel-top-14-gaming-vids-for-youtube-success/"><u>[New] Boost Your Channel Top 14 Gaming Vids for YouTube Success</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-driving-traffic-to-long-form-videos-via-shorts/"><u>[New] Driving Traffic to Long-Form Videos via Shorts</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-packaging-growth-tactics/"><u>[New] Packaging Growth Tactics</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-pro-level-snap-tech-free-from-any-delaying-hiccups/"><u>[New] Pro-Level Snap Tech Free From Any Delaying Hiccups</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-becoming-a-lyric-video-pro-a-lyric-video-makers-journey/"><u>[Updated] Becoming a Lyric Video Pro A Lyric Video Maker's Journey</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cutting-the-excess-a-guide-to-shortening-youtube-videos/"><u>[Updated] Cutting the Excess A Guide to Shortening YouTube Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-photoshops-handy-hacks-for-horizontal-and-vertical-warping/"><u>[Updated] Photoshop's Handy Hacks for Horizontal and Vertical Warping</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-poco-c65-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/monetizing-your-content-deciphering-the-minimum-views-needed/"><u>Monetizing Your Content Deciphering the Minimum Views Needed</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-fix-for-microsoft-store-connectivity-issues-causing-non-opening-scenarios/"><u>Step-by-Step Fix for Microsoft Store Connectivity Issues Causing Non-Opening Scenarios</u></a></li>
+<li><a href="https://ai-video.techidaily.com/the-best-pc-setups-for-serious-gamers-balancing-cost-with-performance/"><u>The Best PC Setups for Serious Gamers : Balancing Cost with Performance</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-8-free-videography-programs-perfect-for-indie-filmmakers/"><u>Top 8 Free Videography Programs Perfect For Indie Filmmakers</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/understanding-the-legality-of-secretly-recording-conversations-do-you-need-consent/"><u>Understanding the Legality of Secretly Recording Conversations: Do You Need Consent?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-analytics-how-to-analyze-your-and-competitors-youtube-video/"><u>YouTube Analytics – How to Analyze Your and Competitor's YouTube Video</u></a></li>
 </ul></div>
 

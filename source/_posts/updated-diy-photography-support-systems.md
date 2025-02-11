@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY Photography Support Systems"
-date: 2025-01-06T18:24:37.368Z
-updated: 2025-01-10T20:08:49.475Z
+date: 2025-02-03T16:29:54.761Z
+updated: 2025-02-11T03:28:03.568Z
 tags:
   - ai video
   - ai youtube
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/2ca46c2a129dc1360b713c04a30f75e3e36c2cb0f
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
@@ -39,10 +35,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -59,7 +51,7 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
@@ -67,7 +59,7 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -75,7 +67,7 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -103,6 +95,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -125,6 +121,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -140,19 +140,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-how-to-step-into-a-tiktok-event-like-a-pro/"><u>[New] 2024 Approved How to Step Into a TikTok Event Like a Pro</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-unleashing-potential-learning-to-race-with-drones-and-best-models-for-2024/"><u>[Updated] Unleashing Potential Learning to Race with Drones and Best Models for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/breaking-down-virtual-reality-jargon/"><u>Breaking Down Virtual Reality Jargon</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/effortless-setup-get-your-validity-fingerprint-sensor-driver-now/"><u>Effortless Setup: Get Your Validity Fingerprint Sensor Driver Now!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/harness-the-power-of-youtube-video-for-stunning-gif-masterpieces/"><u>Harness the Power of YouTube Video for Stunning GIF Masterpieces</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-make-a-thumbnail-for-your-youtube-free-easily/"><u>How to Make a Thumbnail for Your YouTube Free Easily</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-break-free-from-youtube-top-5-innovative-video-editing-tools/"><u>In 2024, Break Free From Youtube Top 5 Innovative Video Editing Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-breaking-barriers-youtube-marketing-mastery/"><u>In 2024, Breaking Barriers YouTube Marketing Mastery</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-effortless-guide-to-secure-and-free-youtube-music-downloads/"><u>In 2024, Effortless Guide to Secure and Free YouTube Music Downloads</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-enhance-video-storytelling-with-smart-chapter-insertion-techniques-on-youtube/"><u>In 2024, Enhance Video Storytelling with Smart Chapter Insertion Techniques on YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/january-decision-day-for-trump-on-social-media/"><u>January Decision Day for Trump on Social Media</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/step-by-step-tutorial-for-adding-tracks-into-lyrx-karaoke-windows-version/"><u>Step-by-Step Tutorial for Adding Tracks Into LYRX Karaoke (Windows Version)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/unleashing-funimate-joy-comprehensive-tutorials/"><u>Unleashing Funimate Joy - Comprehensive Tutorials</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/unveiling-the-trigger-a-deep-dive-into-the-origins-of-the-boxer-rebellion/"><u>Unveiling the Trigger: A Deep Dive Into the Origins of the Boxer Rebellion</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-26-metaverse-milestones-a-journey-into-virtual-realms/"><u>[New] In 2024, 26 Metaverse Milestones A Journey Into Virtual Realms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-gb-usage-for-full-day-film-length/"><u>[New] In 2024, GB Usage for Full-Day Film Length</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-sound-sphere-navigating-music-uploads-for-2024/"><u>[New] The Sound Sphere Navigating Music Uploads for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-bandicam-demystified-a-clearer-understanding-of-2023-functionality/"><u>2024 Approved Bandicam Demystified A Clearer Understanding of 2023 Functionality</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-the-year-of-digital-gamer-fortunes/"><u>2024 The Year of Digital Gamer Fortunes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/analyzing-youtube-adrevenue-average-payments-by-thousands-of-views/"><u>Analyzing Youtube AdRevenue Average Payments by Thousands of Views</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-engaging-video-teasers-for-youtube-success-for-2024/"><u>Crafting Engaging Video Teasers for YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/decoding-the-youtube-view-number-for-profitability-for-2024/"><u>Decoding the YouTube View Number for Profitability for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/elph-190-powershot-reliable-quality-affordably/"><u>ELPH 190 PowerShot: Reliable Quality Affordably</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhance-engagement-mastering-template-based-video-description-writing-for-2024/"><u>Enhance Engagement Mastering Template-Based Video Description Writing for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/exclusive-exploration-superior-vr-games-on-google-cardboard/"><u>Exclusive Exploration Superior VR Games on Google Cardboard</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-free-to-paid-subscriber-count-surpasses-500/"><u>From Free to Paid Subscriber Count Surpasses 500</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-oneplus-nord-n30-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can OnePlus Nord N30 5GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-lets-see-how-you-can-run-windows-and-mac-os-video-editing-apps-such-as-filmora-final-cut-pro-imovie-sony-vegas-pro-or-any-other-powerful-video-editi/"><u>In 2024, Lets See How You Can Run Windows and Mac OS Video Editing Apps, Such as Filmora, Final Cut Pro, iMovie, Sony Vegas Pro or Any Other Powerful Video Editing Software From Your Chromebook</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-ultra-fast-picture-reader-for-windows-11/"><u>In 2024, Ultra-Fast Picture Reader for Windows 11</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/learning-leaders-most-influential-edu-tutorials-yt/"><u>Learning Leaders Most Influential Edu Tutorials YT</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/spotlight-on-10-youtube-channels-with-swift-popularity-boosts/"><u>Spotlight on 10 YouTube Channels With Swift Popularity Boosts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-youtuber-revolutionary-jake-pauls-content-conquest/"><u>The YouTuber Revolutionary Jake Paul's Content Conquest</u></a></li>
 </ul></div>
 
