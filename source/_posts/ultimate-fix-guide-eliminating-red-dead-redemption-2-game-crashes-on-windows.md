@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Fix Guide: Eliminating Red Dead Redemption 2 Game Crashes on Windows"
-date: 2025-02-06T01:26:24.156Z
-updated: 2025-02-10T18:37:23.748Z
+date: 2025-02-19T16:38:27.612Z
+updated: 2025-02-20T16:47:09.090Z
 tags:
   - win11
   - win10
@@ -31,10 +31,6 @@ Stop blaming yourself for losing your temper when the FPS (frame per second) dro
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Check the system requirements
 
  If the frame rate hasn’t been good for you when gaming, one of the first things you should do is to make sure that your computer specs are**above** the minimum system requirements for the games. If your machine is below or just at the requirements, you may need to upgrade your hardware for some games to run smoothly, especially newer games that were released in recent years, as they usually require more advanced computer hardware devices.
@@ -58,7 +54,7 @@ Stop blaming yourself for losing your temper when the FPS (frame per second) dro
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Close CPU- and bandwidth-intensive services and applications
@@ -71,20 +67,12 @@ To do so:
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/image-48.png)
 2. Select each resource-hogging application and click **End Task** to close them one by one.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/image-49.png)
 3. Pay extra attention to**Intel Turbo Boost Technology** : if you have it running, please disable it as well.
 
  Then run your game again and see if the FPS dropping issue is fixed. If the problem still remains, please move on to the next fix below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Modify your network settings
 
@@ -117,7 +105,11 @@ To do so:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/Snipaste_2021-06-01_10-06-54.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4.2 Switch to a public DNS server
@@ -131,6 +123,10 @@ To do so:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/change-adapter-options.png)
 3. Right-click**the network you’re using** , then click**Properties** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/click-ethernet.png)
 4. Select**Internet Protocol Version 4 (TCP/IPv4)** , then click**Properties** .  
 
@@ -138,7 +134,7 @@ To do so:
 5. Select**Use the following DNS server addresses** , fill in the Google DNS server addresses as below, then click**OK** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **Preferred DNS server: 8.8.8.8**  
@@ -150,6 +146,10 @@ To do so:
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Update graphics card and network card drivers
 
  Another reason why FPS drops in your games is probably outdated or incorrect drivers for your graphics and network cards. This is because outdated, incorrect, or missing drivers for your display card and network card could lead to unstable graphics rendering and slow network connection, and therefore the stuttering and the FPS dropping problems. So you should update your device drivers to see if it helps.
@@ -157,7 +157,7 @@ To do so:
  There are mainly 2 ways you can update the drivers for your video card and network card: manually or automatically.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Option 1: Update your graphics and network drivers manually
@@ -190,10 +190,6 @@ and your network card manufacturer:
 ![](https://images.drivereasy.com/wp-content/uploads/2023/09/image.png)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All.)![](https://images.drivereasy.com/wp-content/uploads/2023/09/image-1.png)  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note** : You can do it for free if you like, but it’s partly manual.
 
 4. Restart your PC for the changes to take effect.
@@ -203,6 +199,10 @@ and your network card manufacturer:
  Launch your game again and see if the latest graphics and network drivers help to improve the FPS. If this fix doesn’t work for you, try the next fix, below.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Modify the Power Mode
 
@@ -218,7 +218,7 @@ To change the power mode:
 3. Then run your game to see if the frame rate per second is higher. If the problem remains still, please move on to the next fix.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ---
@@ -250,18 +250,16 @@ To change the power mode:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-leading-edge-group-chat-apps-on-android-5plus-users-for-2024/"><u>[Updated] Leading Edge Group Chat Apps on Android (5+ Users) for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-lecture-transcription-at-zero-expense/"><u>[Updated] Lecture Transcription at Zero Expense</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-tools-for-android-and-ios-users-seeking-playlist-extractors-for-2024/"><u>Essential Tools for Android & iOS Users Seeking Playlist Extractors for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-create-a-playlist-on-youtube-a-complete-guide/"><u>How to Create a Playlist on Youtube - a Complete Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/hunt-for-heated-online-hearings/"><u>Hunt for Heated Online Hearings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-5-next-level-editors-to-transcend-the-standard-youtube-videos/"><u>In 2024, 5 Next-Level Editors to Transcend the Standard Youtube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-beginners-blueprint-for-viral-video-seo/"><u>In 2024, Beginner's Blueprint for Viral Video SEO</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Samsung Galaxy M34 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/innovative-classroom-techniques-utilizing-youtube-effectively/"><u>Innovative Classroom Techniques Utilizing YouTube Effectively</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-city-streets-with-ease-on-a-gotrae-xg-v2-a-user-experience-analysis/"><u>Navigating City Streets with Ease on a Gotrae XG-V2: A User Experience Analysis</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/speak-command-and-interact-your-guide-to-activating-voicegpt-on-android-smartphones/"><u>Speak, Command, and Interact: Your Guide to Activating VoiceGPT on Android Smartphones</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-insiders-guide-to-crafting-perfect-instagram-posts-for-2024/"><u>The Insider's Guide to Crafting Perfect Instagram Posts for 2024</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/the-renin-angiotensin-aldosterone-system-and-sympathetic-nervous-system-are-key-drivers-of-maladaptive-cardiac-remodeling-in-heart-failure/"><u>The Renin-Angiotensin-Aldosterone System and Sympathetic Nervous System Are Key Drivers of Maladaptive Cardiac Remodeling in Heart Failure.</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-comprehensive-guide-to-drone-visuals/"><u>[New] Comprehensive Guide to Drone Visuals</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-essentials-of-monetization-youtube-policy-update-for-2024/"><u>[New] The Essentials of Monetization YouTube Policy Update for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-breakdown-of-youtubes-monetization-update/"><u>[Updated] Breakdown of YouTube's Monetization Update</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-quick-and-easy-comedy-unraveling-ifunnys-meme-magic/"><u>[Updated] Quick & Easy Comedy Unraveling iFunny's Meme Magic</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210551537-9798985224825-chimera-conflict/"><u>Chimera Conflict | Free Book</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-budget-friendly-webinar-strategies-for-youtube/"><u>In 2024, Budget-Friendly Webinar Strategies for YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-a-hit-list-youtubes-way-for-fans/"><u>In 2024, Crafting a Hit-List Youtube's Way for Fans</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-ad-blocking-in-chrome-firefox-android-and-ios-for-youtube/"><u>Navigating Ad-Blocking in Chrome, Firefox, Android, & iOS for YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/swift-switcheroo-rearranging-yt-lists-in-a-minute/"><u>Swift Switcheroo Rearranging YT Lists in a Minute</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-apex-of-luxury-mobile-tech-a-detailed-look-at-the-exquisite-samsung-galaxy-s10/"><u>The Apex of Luxury Mobile Tech: A Detailed Look at the Exquisite Samsung Galaxy S10</u></a></li>
 </ul></div>
 

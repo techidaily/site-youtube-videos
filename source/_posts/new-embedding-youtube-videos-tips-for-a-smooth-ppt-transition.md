@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Embedding YouTube Videos  Tips for a Smooth PPT Transition\""
-date: 2025-02-04T00:46:10.124Z
-updated: 2025-02-10T18:54:31.682Z
+date: 2025-02-13T16:16:57.884Z
+updated: 2025-02-20T16:06:55.479Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,10 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-via-url.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-url-2.jpg)
@@ -57,7 +61,7 @@ Launch PowerPoint if it is not already open, go to the slide you want to embed t
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
@@ -71,7 +75,7 @@ Go to the YouTube video you want to embed to your PowerPoint slide, click the **
 ![ embed YouTube video code to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-embed-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Get to the PowerPoint’s Insert Video Box**
@@ -94,6 +98,10 @@ Use the process explained in **Step 2** of **Method 2** to get to the **Insert V
 
 In the **Search YouTube** field next to the **YouTube** option, type the name of the video you want to search on YouTube, press **Enter**, select the video you want to embed, and click **Insert** to **insert YouTube video into PowerPoint**.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 4: Insert Video from PC
 
 Another method to **embed YouTube video in PowerPoint** is by downloading the clip to your PC, and then inserting the footage from there. You can use any free YouTube downloader to obtain a video that is available on YouTube.
@@ -114,10 +122,6 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
 Depending on the version of Microsoft Office you are using, you may or may not be able to embed a YouTube video in PowerPoint. Also, if your version of PowerPoint allows you to do so, the interface and the options may vary from those you see on your friends’ computer or in some online tutorials.
@@ -134,7 +138,7 @@ That said, the following table gives a clear picture of which version of Microso
 | PowerPoint 365/2019 for Mac | Yes                    | No                                           | No                                           | No                                  |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Frequently Asked Questions About Embedding YouTube Videos in PowerPoint
@@ -161,10 +165,6 @@ Although the above sections explain **how to embed a YouTube video in PowerPoint
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -180,18 +180,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-elite-drone-recommendations-to-boost-gopro-video-impact-for-2024/"><u>[Updated] Elite Drone Recommendations to Boost GoPro Video Impact for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-ig-tunes-crafting-perfect-music-posts/"><u>[Updated] In 2024, IG Tunes Crafting Perfect Music Posts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-visual-storytelling-hack-crafting-youtube-thumbnails-on-mobiles/"><u>[Updated] In 2024, Visual Storytelling Hack Crafting YouTube Thumbnails on Mobiles</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-best-of-the-best-12-youtube-video-game-openers-freepaid/"><u>[Updated] The Best of the Best 12 YouTube Video Game Openers (FREE/PAID)</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/audience-connection-through-instagram-stories-questions-for-2024/"><u>Audience Connection Through Instagram Stories Questions for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-practices-selecting-among-top-9-free-logo-designers/"><u>Best Practices Selecting Among Top 9 Free Logo Designers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/breaking-into-livestrances-a-gamers-guide-to-youtube-success-for-2024/"><u>Breaking Into Livestrances A Gamers' Guide to YouTube Success for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/building-a-youtubing-brand-from-scratch-with-these-8-courses-for-2024/"><u>Building a YouTubing Brand From Scratch with These 8 Courses for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discover-the-best-no-cost-soundtracks-for-video-production-for-2024/"><u>Discover the Best No-Cost Soundtracks for Video Production for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-your-videos-with-effective-youtube-thumbnails/"><u>Elevate Your Videos with Effective YouTube Thumbnails</u></a></li>
-<li><a href="https://driver-install.techidaily.com/hp-omen-15-modernizing-operating-system-components/"><u>HP Omen 15: Modernizing Operating System Components</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/must-have-apps-for-real-time-video-translation-for-2024/"><u>Must-Have Apps for Real-Time Video Translation for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-free-and-fantastic-the-best-vob-video-editors/"><u>New 2024 Approved Free and Fantastic The Best VOB Video Editors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-engagement-cutting-edge-hashtags-for-hit-making-videos/"><u>[New] Elevate Engagement Cutting-Edge Hashtags for Hit-Making Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevating-shorts-visibility-a-thumbnail-transformation-journey/"><u>[New] Elevating Shorts Visibility A Thumbnail Transformation Journey</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-seek-out-stimulating-subscriber-spaces/"><u>[Updated] In 2024, Seek Out Stimulating Subscriber Spaces</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-youtube-gaming-content-with-key-freefire-hashtags/"><u>2024 Approved Elevate Your YouTube Gaming Content With Key FreeFire Hashtags</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-maximize-your-workflow-with-efficient-use-of-macs-preview-tool/"><u>2024 Approved Maximize Your Workflow with Efficient Use of Mac's Preview Tool</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dispatching-dreadful-green-screen-distortion-on-mac-editing-sessions-for-2024/"><u>Dispatching Dreadful Green Screen Distortion on Mac-Editing Sessions for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/fade-techniques-to-pare-down-audio-intensity-in-logic-pro/"><u>Fade Techniques to Pare Down Audio Intensity in Logic Pro</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-conduct-cost-effective-seminars-using-youtube/"><u>In 2024, Conduct Cost-Effective Seminars Using YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-to-galaxy-s23-ultra-converter-convert-mkv-for-galaxy-s23-ultra-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV to Galaxy S23 Ultra converter - convert MKV for Galaxy S23 Ultra</u></a></li>
+<li><a href="https://win-answers.techidaily.com/speedy-hacks-to-resolve-lagging-in-assassins-creed-valhalla-gamers-guide/"><u>Speedy Hacks to Resolve Lagging in Assassin's Creed: Valhalla - Gamer's Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/updated-bluetooth-drivers-for-seamless-connectivity-zexmte-models-compatible-with-windows-operating-systems-11-7-8/"><u>Updated Bluetooth Drivers for Seamless Connectivity: Zexmte Models Compatible with Windows Operating Systems (11, 7, 8)</u></a></li>
 </ul></div>
 

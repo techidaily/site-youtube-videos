@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Clips, Captured  A No-Cost Screencasting Tutorial\""
-date: 2025-02-03T21:25:35.759Z
-updated: 2025-02-10T19:48:00.771Z
+date: 2025-02-15T17:36:04.144Z
+updated: 2025-02-20T16:06:10.562Z
 tags:
   - ai video
   - ai youtube
@@ -50,11 +50,7 @@ For macOS 10.12 or later
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Recording Screencast Video with YouTube
@@ -65,6 +61,10 @@ Step 2: On the create an event page, add a title for your screencast video; set 
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
 
 Step 4: Hit the screen share button from the left toolbox and choose the desktop window that you wish to record. Now press start the Broadcast button to start screen recording. Note that it is a private session that cannot be watched by anyone else.
@@ -72,7 +72,7 @@ Step 4: Hit the screen share button from the left toolbox and choose the desktop
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
@@ -99,7 +99,7 @@ Let's watch the video below to check how to record your screen with Filmora and 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Conclusion
@@ -109,7 +109,7 @@ With all impressive features, there is no doubt to say that Filmora can serve yo
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -127,17 +127,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-cutting-edge-radio-theatre-scripting/"><u>[New] 2024 Approved Cutting-Edge Radio Theatre Scripting</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-cutting-edge-8-screen-tech-lists/"><u>[New] In 2024, Cutting-Edge 8 Screen Tech Lists</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-the-perfect-close-youtubes-free-end-screen-tools/"><u>[Updated] In 2024, Crafting the Perfect Close YouTube's Free End Screen Tools</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-navigating-through-the-best-10-free-video-chat-options-for-business-and-education-sectors/"><u>[Updated] Navigating Through the Best 10 Free Video Chat Options for Business and Education Sectors</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-visual-hook-creating-captivating-youtube-thumbnails-to-drive-traffic/"><u>2024 Approved A Visual Hook Creating Captivating YouTube Thumbnails to Drive Traffic</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-captivating-youtube-closures-expert-guides-included/"><u>Crafting Captivating YouTube Closures - Expert Guides Included</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/direct-entry-into-your-channel-simplifying-the-follow-button-creation-for-2024/"><u>Direct Entry Into Your Channel Simplifying the Follow Button Creation for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/direction-and-intensity-in-video-lighting/"><u>Direction and Intensity in Video Lighting</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-managing-your-pets-diet-with-the-petsafe-automatic-food-dispenser/"><u>Expert Insights on Managing Your Pet's Diet with the PetSafe Automatic Food Dispenser</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/free-mkv-file-player-downloads-compatible-with-windows-10-and-macos/"><u>Free MKV File Player Downloads: Compatible with Windows 10 & MacOS</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-x100-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo X100 to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-elevate-your-window-experience-with-these-undiscovered-tricks/"><u>[New] In 2024, Elevate Your Window Experience with These Undiscovered Tricks</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-maximizing-your-potential-is-a-joined-force-right-for-you/"><u>[New] Maximizing Your Potential Is a Joined Force Right for You?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-accelerate-yt-growth-strategies-for-1kplus-subscribers/"><u>[Updated] Accelerate YT Growth Strategies for 1K+ Subscribers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-earnings-in-the-virtual-playground/"><u>[Updated] Earnings in the Virtual Playground</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-engineering-captivating-video-teasers-for-online-presence/"><u>[Updated] Engineering Captivating Video Teasers for Online Presence</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-ensuring-visual-presentation-youtube-shorts-thumbnails-fix/"><u>[Updated] Ensuring Visual Presentation YouTube Shorts Thumbnails Fix</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-snap-to-perfection-editing-strategies-that-work-wonders/"><u>[Updated] Snap to Perfection Editing Strategies That Work Wonders</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-oppo-reno-10-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Oppo Reno 10 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-oppo-k11-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Oppo K11 5GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-a-step-by-step-guide-to-youtube-stats-analysis-via-social-blade-platform/"><u>In 2024, A Step-by-Step Guide to YouTube Stats Analysis via Social Blade Platform</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-broadcast-your-music-mp3-conversion-and-upload-on-youtube/"><u>In 2024, Broadcast Your Music MP3 Conversion and Upload on YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-maximizing-focus-zooming-in-msteams/"><u>In 2024, Maximizing Focus Zooming In MSTEAMS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-navigating-instagrams-sponsorship-jungle-for-affluent-creators/"><u>In 2024, Navigating Instagram's Sponsorship Jungle for Affluent Creators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/list-of-8-youtube-outlets-skyrocketing-in-viewership/"><u>List of 8 YouTube Outlets Skyrocketing in Viewership</u></a></li>
+<li><a href="https://techtrends.techidaily.com/maximizing-your-experience-the-ultimate-guide-to-optimize-settings-on-apple-tv/"><u>Maximizing Your Experience: The Ultimate Guide to Optimize Settings on Apple TV</u></a></li>
 </ul></div>
 

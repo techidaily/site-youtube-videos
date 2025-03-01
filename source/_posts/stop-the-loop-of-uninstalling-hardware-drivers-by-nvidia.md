@@ -1,7 +1,7 @@
 ---
 title: Stop the Loop of Uninstalling Hardware Drivers by Nvidia
-date: 2025-02-09T16:39:46.957Z
-updated: 2025-02-10T23:08:54.785Z
+date: 2025-02-14T18:15:21.636Z
+updated: 2025-02-20T17:27:05.421Z
 tags:
   - win11
   - win10
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 ## Stop the Loop of Uninstalling Hardware Drivers by Nvidia
 
  Whenever you download and install a new**Nvidia driver** on your PC, it**keeps uninstalling itself** a few days later? Don’t worry, it’s fixable! And in most cases, the fix is pretty fast and simple…
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Try these fixes
 
@@ -37,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 1. On your keyboard, press the**Windows logo** ![](https://images.drivereasy.com/wp-content/uploads/2018/07/img_5b4ecde832800.png) key and**R** at the same time to invoke the Run box.
 2. Type**control** and press**Enter** to go to Control Panel.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59b08cdf4e.png)
 3. Click**System and Security** .  
 
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 4. Click**System** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc59bd79ae6d.jpg)
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 7. Select**No** , and click**Save changes** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5a1202b9e9.jpg)
@@ -69,27 +69,15 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5994c83f8c.jpg)
 10. Open the downloaded file and follow the on-screen instructions to install the driver.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 11. Restart your computer and check if the problem is resolved. If not, try Fix 2, below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 2: Delete the logging file in your Windows Registry
 
 1. You should first make sure all Nvidia services are stopped:  
    1. Press the**Windows log** ![](https://images.drivereasy.com/wp-content/uploads/2018/07/img_5b4ecde832800.png) key and**R** together to open the Run box.  
    2. Type**services.msc**  then click**OK** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
    ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5a9433a0fb.png)  
    3. Select and stop**all** Nvidia services.  
@@ -98,13 +86,17 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 2. You should also check that all Nvidia programs are ended:  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
    1. Press**Ctrl+Shift+Esc** to open Task Manager.  
    2. End**all** of Nvidia apps and processes.  
    ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5b0564178c.jpg)
 3. You can then delete the logging file in your Windows Registry:  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
    1. Press**Windows+R** to open the Run box.  
    2. Type **regedit** and press**Enter** .  
@@ -116,6 +108,10 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 4. Visit the Nvidia website to download and install the needed driver. If you’re not confident playing around with drivers manually, you can, instead, update your Nvidia driver automatically with**Driver Easy** in Fix 3, below.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3: Update your Nvidia driver
 
@@ -131,6 +127,10 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc58e7b30171.jpg)
 4. Restart your computer and check if your Nvidia driver now works properly. If it doesn’t, contact Driver Easy’s support team at**<support@drivereasy.com>** for further assistance. They’d be happy to help you. Or you can move on to Fix 4, below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ---
 
 ### Fix 4: Reinstall your Nvidia driver
@@ -141,7 +141,7 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 3. Delete all Nvidia programs.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc5b6e7f170d.jpg)
@@ -170,22 +170,18 @@ thumbnail: https://thmb.techidaily.com/4b6f911edef1a152102da59f1919fcc97e9e702d6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-complete-guide-to-using-google-docs-for-speech-recognition/"><u>[New] Complete Guide to Using Google Docs for Speech Recognition</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-evaluating-the-effectiveness-of-vidma-screen-recorders-for-2024/"><u>[New] Evaluating the Effectiveness of Vidma Screen Recorders for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-ultimate-guide-to-free-video-playback-vlc-or-mpc/"><u>[New] In 2024, The Ultimate Guide to Free Video Playback VLC or MPC?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-step-by-step-guide-succeed-with-spotify-marketing-for-2024/"><u>[Updated] Step-by-Step Guide Succeed with Spotify Marketing for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-spiritual-stretching-youtubes-best-yoga-content-crews/"><u>2024 Approved Spiritual Stretching – YouTube’s Best Yoga Content Crews</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhancing-comments-with-emojis-on-youtube-for-2024/"><u>Enhancing Comments with Emojis on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-strategies-for-successful-mukbang-production/"><u>Essential Strategies for Successful Mukbang Production</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-assemble-a-personalized-youtube-music-list/"><u>How to Assemble a Personalized YouTube Music List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-edit-youtube-videos-in-sony-vegas/"><u>How to Edit YouTube Videos in Sony Vegas</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-asus-rog-phone-7-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Asus ROG Phone 7 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-audio-wizards-unveiled-top-5-techniques-for-win10/"><u>In 2024, Audio Wizards Unveiled Top 5 Techniques for Win10</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-breaking-the-monotony-innovative-yt-playlist-shuffling/"><u>In 2024, Breaking the Monotony Innovative YT Playlist Shuffling</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-effortless-rearrangement-of-your-personalized-lists/"><u>In 2024, Effortless Rearrangement of Your Personalized Lists</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevating-audience-excitement-with-top-ideas/"><u>In 2024, Elevating Audience Excitement with Top Ideas</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-enhancing-visual-content-turning-youtube-clips-into-animated-gifs/"><u>In 2024, Enhancing Visual Content Turning Youtube Clips Into Animated GIFs</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-90-gt-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor 90 GT To Phone | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-steps-for-mp3-streams-on-youtube/"><u>[New] Essential Steps for MP3 Streams on Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-eye-catching-video-ad-campaigns-top-creators-exposed/"><u>[Updated] 2024 Approved Eye-Catching Video Ad Campaigns Top Creators Exposed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-secrets-to-mastering-chromebook-zoom-features/"><u>[Updated] 2024 Approved Secrets to Mastering Chromebook Zoom Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-essential-linkedin-courses-for-advancing-professional-expertise/"><u>2024’S Essential LinkedIn Courses for Advancing Professional Expertise</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/access-all-subtitles-top-10-free-tools-for-youtube-videos/"><u>Access All Subtitles Top 10 Free Tools for YouTube Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/decoding-youtubes-algorithm-the-role-of-keyword-optimization/"><u>Decoding YouTube's Algorithm The Role of Keyword Optimization</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/get-the-full-marvels-what-if-the-perfect-complement-to-your-apple-vision-pro-now-available-at-no-cost/"><u>Get the Full Marvel's 'What If...?': The Perfect Complement to Your Apple Vision Pro, Now Available at No Cost!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/guide-discovering-your-elusive-airpods-with-the-power-of-find-my/"><u>Guide: Discovering Your Elusive AirPods with the Power of 'Find My'</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-guide-to-3d-animation-software-free-and-paid-solutions-for-2024/"><u>New The Ultimate Guide to 3D Animation Software Free and Paid Solutions for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/personalize-your-pixelated-world-the-ultimate-guide-to-discovering-creator-types-via-6-tests/"><u>Personalize Your Pixelated World The Ultimate Guide to Discovering Creator Types via 6 Tests</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/tactics-to-increase-youtube-video-engagement-and-views/"><u>Tactics to Increase YouTube Video Engagement and Views</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/tech-critics-choice-an-expert-look-at-hardware-by-toms-equipmentreview/"><u>Tech Critic's Choice: An Expert Look at Hardware by Tom's EquipmentReview</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unboxing-the-secrets-to-stunning-shorts-thumbnails/"><u>Unboxing the Secrets to Stunning Shorts Thumbnails</u></a></li>
 </ul></div>
 

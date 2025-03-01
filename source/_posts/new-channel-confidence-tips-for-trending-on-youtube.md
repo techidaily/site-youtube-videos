@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Confidence  Tips for Trending on YouTube\""
-date: 2025-02-05T21:08:01.560Z
-updated: 2025-02-10T21:44:49.099Z
+date: 2025-02-14T16:06:17.040Z
+updated: 2025-02-20T17:11:38.158Z
 tags:
   - ai video
   - ai youtube
@@ -29,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/287414ff43ab53f27880b8114eed3693184381a70
 For most people, vlogging is not something that comes naturally. Like any skill, it takes practice to improve. When someone is good at vlogging, they make it look easy.
 
 When we watch the most popular YouTubers, the traits that make them successful are often invisible, because we are so consumed by their vlog. In this article, I’ll highlight 8 tips from the most accomplished vloggers on the Internet, so that you can vlog confidently and make the best YouTube videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **1\. Be Authentic**
 
@@ -59,7 +63,7 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -69,10 +73,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -87,7 +87,7 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -135,13 +135,13 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -159,24 +159,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-crafting-a-submission-that-works-on-apples-platform-for-2024/"><u>[Updated] Crafting a Submission that Works on Apple's Platform for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-behind-the-scenes-of-carminatis-youtube-earnings/"><u>2024 Approved Behind the Scenes of Carminati’s YouTube Earnings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-common-issues-with-youtube-shorts-thumbnails/"><u>2024 Approved Common Issues with YouTube Shorts Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-channels-standing-with-these-tactics/"><u>2024 Approved Elevate Your Channel's Standing with These Tactics</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevating-profits-via-celebrity-skincare-channels/"><u>2024 Approved Elevating Profits via Celebrity Skincare Channels</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-outreach-with-strategic-partner-selection-on-youtube/"><u>2024 Approved Enhancing Outreach with Strategic Partner Selection on YouTube</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-walkthrough-for-movie-making-on-windows-8/"><u>2024 Approved The Ultimate Walkthrough for Movie Making on Windows 8</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/isual-appeal-with-these-methods-for-yt-video-inclusion-in-ppt-for-2024/"><u>Add Visual Appeal with These Methods for YT Video Inclusion in PPT for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/captivating-startups-discovering-the-best-15-video-intros/"><u>Captivating Startups Discovering the Best 15 Video Intros</u></a></li>
-<li><a href="https://article-tips.techidaily.com/crafting-your-sound-story-utilizing-auditions-fade-in-for-2024/"><u>Crafting Your Sound Story Utilizing Audition's Fade In for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-the-mechanics-of-subscriber-tracking-for-2024/"><u>Decoding the Mechanics of Subscriber Tracking for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/editors-elite-gadgets-best-machines-for-screen-magic-for-2024/"><u>Editor’s Elite Gadgets Best Machines for Screen Magic for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevating-your-footage-imovie-videos-for-youtube-enthusiasts/"><u>Elevating Your Footage IMovie Videos for YouTube Enthusiasts</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-infinix-note-30-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Infinix Note 30 to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-vivo-y27-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Vivo Y27 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Vivo V27 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-leading-free-image-editors-10-essential-androidios-tools/"><u>In 2024, The Leading Free Image Editors - 10 Essential Android/iOS Tools</u></a></li>
-<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-quick-and-easy-how-to-transform-your-mobile-device-into-a-vr-headset/"><u>[New] In 2024, Quick and Easy How to Transform Your Mobile Device Into a VR Headset</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-5-game-recording-software-ranked-and-rated-for-2024/"><u>[New] Top 5 Game Recording Software Ranked and Rated for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-ultimate-earnings-prediction-top-6-tiktok-tools-for-2024/"><u>[New] Ultimate Earnings Prediction Top 6 TikTok Tools for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-elevating-vimeo-video-speed/"><u>[Updated] 2024 Approved Elevating Vimeo Video Speed</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-streamlined-strategies-mastering-screen-record-on-an-hp-notebook/"><u>[Updated] In 2024, Streamlined Strategies Mastering Screen Record on an HP Notebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-effective-youtube-thumbnails-and-banners-for-2024/"><u>Crafting Effective YouTube Thumbnails & Banners for 2024</u></a></li>
+<li><a href="https://win-web3.techidaily.com/frei-verfugbare-patchlosung-fur-windows-11-herunterladen-ohne-kosten/"><u>Frei Verfügbare Patchlösung Für Windows 11 – Herunterladen Ohne Kosten</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-audio-enhancement-for-online-video-creators/"><u>In 2024, Audio Enhancement for Online Video Creators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-discovering-your-customized-youtube-playlist/"><u>In 2024, Discovering Your Customized YouTube Playlist</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-nix-the-sneaky-youtube-quick-playback-feature/"><u>In 2024, Nix the Sneaky YouTube Quick Playback Feature</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionize-your-visual-experience-shop-the-cutting-edge-pixel-dense-viewfinity-s9-monitor-by-samsung-for-just-899-with-a-built-in-4k-webcam-grab-your-dis46/"><u>Revolutionize Your Visual Experience - Shop the Cutting-Edge Pixel-Dense ViewFinity S9 Monitor by Samsung for Just $899 with a Built-In 4K Webcam – Grab Your Discounted Deal Now, Save 44%</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/uploading-finesse-imovie-videos-meeting-youtube-standards/"><u>Uploading Finesse IMovie Videos Meeting YouTube Standards</u></a></li>
 </ul></div>
 

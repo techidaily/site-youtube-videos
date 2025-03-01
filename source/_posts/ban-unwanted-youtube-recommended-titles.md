@@ -1,7 +1,7 @@
 ---
 title: "Ban Unwanted YouTube Recommended Titles"
-date: 2024-07-22T16:07:40.552Z
-updated: 2024-07-23T16:07:40.552Z
+date: 2025-02-16T16:54:26.491Z
+updated: 2025-02-20T17:53:21.063Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
 
 # YouTube Recommended Videos - Block the Videos I Don't Like
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,9 +38,6 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## Manage Your Watch History
 
 ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
@@ -79,17 +73,18 @@ The only way to stop certain types of videos from being recommended for you is t
  Are you usually happy with YouTube's recommended videos?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What video editing software did YouTube suggested videos are used?
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -115,9 +110,6 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Manage Your Watch History
 
 ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
@@ -152,88 +144,6 @@ The only way to stop certain types of videos from being recommended for you is t
 
  Are you usually happy with YouTube's recommended videos?
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
-## What video editing software did YouTube suggested videos are used?
-
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-YouTube is forever recommending videos for you whether it's in your dashboard or next to the video you're already watching. In theory, these recommendations are based on your viewing habits and you're only directed to videos you're interested in.
-
-Except we all know that’s not always what happens.
-
-YouTube’s recommendations are based on more than just what you’ve watched and searched for, and sometimes even the data on that can get skewed over time. Not all your searches reflect your real tastes, and as your search history builds up the algorithm can start having trouble with all that data.
-
-Here’s what you can do about it:
-
-1. [**Manage Your Watch History**](#manage)
-2. [**Tell YouTube You Aren’t Interested**](#notinterested)
-3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
-
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
-## Manage Your Watch History
-
-![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
-
-Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
-
-You will be able to completely clear your watch history, remove specific videos from it, or pause your history while you look at videos you don’t want a record of you visiting. By taking control of your history, you can make sure nothing you looked up on a random whim is reflected in your recommendations.
-
-If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Tell YouTube You Aren’t Interested
-
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
-
-Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
-
-What they do have is a system for you to flag recommendations you don’t like.
-
-Hover over the thumbnail of a video you don’t want to be recommended to you and a small icon that looks like three stacked dots will appear next to the title. Click on that, and then click **Not Interested**.
-
-When you tell YouTube you aren’t interested in certain videos they use that data to adjust what they recommend for you.
-
-## But Why Does It Recommend Stuff I Don’t Like?
-
-Your search/watch history is not the only thing that determines what YouTube recommends for you. Nobody outside of Google knows exactly how the algorithm works, but we do know one of the major factors influencing it is to watch **time**.
-
-Watch time refers to how a video effects the session time of a viewer. If a video has proven it can keep viewers on YouTube for longer it is more likely to get recommended, even if it isn't closely related to the interests of individual viewers. The ultimate goal of the algorithm is to keep you on the site longer. Part of that is recommending things, surely, you'll be interested in, and part of that is trying to get you interested in things that'll keep you around.
-
-  A video that is simply watched for longer, because it is engaging and can hold viewers’ attention for a long time, will have a high watch time. So will a video that is short, but which leads into a playlist which holds peoples’ attention. If a video is a frequent session starter – people see it outside of YouTube (i.e. in a Google search) and get to the site through it – then its watch time will be high because it is given credit for all of the time viewers are spending on YouTube watching other videos after they get there.
-
-The only way to stop certain types of videos from being recommended for you is to take advantage of the ‘not interested’ feature.
-
- Are you usually happy with YouTube's recommended videos?
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## What video editing software did YouTube suggested videos are used?
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -264,9 +174,6 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## Manage Your Watch History
 
 ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
@@ -279,10 +186,11 @@ If you are being recommended more things you aren’t interested in than things 
 
 ## Tell YouTube You Aren’t Interested
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 
@@ -293,9 +201,9 @@ Hover over the thumbnail of a video you don’t want to be recommended to you an
 When you tell YouTube you aren’t interested in certain videos they use that data to adjust what they recommend for you.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## But Why Does It Recommend Stuff I Don’t Like?
 
 Your search/watch history is not the only thing that determines what YouTube recommends for you. Nobody outside of Google knows exactly how the algorithm works, but we do know one of the major factors influencing it is to watch **time**.
@@ -310,15 +218,85 @@ The only way to stop certain types of videos from being recommended for you is t
 
 ## What video editing software did YouTube suggested videos are used?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube is forever recommending videos for you whether it's in your dashboard or next to the video you're already watching. In theory, these recommendations are based on your viewing habits and you're only directed to videos you're interested in.
+
+Except we all know that’s not always what happens.
+
+YouTube’s recommendations are based on more than just what you’ve watched and searched for, and sometimes even the data on that can get skewed over time. Not all your searches reflect your real tastes, and as your search history builds up the algorithm can start having trouble with all that data.
+
+Here’s what you can do about it:
+
+1. [**Manage Your Watch History**](#manage)
+2. [**Tell YouTube You Aren’t Interested**](#notinterested)
+3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Manage Your Watch History
+
+![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
+
+You will be able to completely clear your watch history, remove specific videos from it, or pause your history while you look at videos you don’t want a record of you visiting. By taking control of your history, you can make sure nothing you looked up on a random whim is reflected in your recommendations.
+
+If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
+
+## Tell YouTube You Aren’t Interested
+
+![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+
+Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
+
+What they do have is a system for you to flag recommendations you don’t like.
+
+Hover over the thumbnail of a video you don’t want to be recommended to you and a small icon that looks like three stacked dots will appear next to the title. Click on that, and then click **Not Interested**.
+
+When you tell YouTube you aren’t interested in certain videos they use that data to adjust what they recommend for you.
+
+## But Why Does It Recommend Stuff I Don’t Like?
+
+Your search/watch history is not the only thing that determines what YouTube recommends for you. Nobody outside of Google knows exactly how the algorithm works, but we do know one of the major factors influencing it is to watch **time**.
+
+Watch time refers to how a video effects the session time of a viewer. If a video has proven it can keep viewers on YouTube for longer it is more likely to get recommended, even if it isn't closely related to the interests of individual viewers. The ultimate goal of the algorithm is to keep you on the site longer. Part of that is recommending things, surely, you'll be interested in, and part of that is trying to get you interested in things that'll keep you around.
+
+  A video that is simply watched for longer, because it is engaging and can hold viewers’ attention for a long time, will have a high watch time. So will a video that is short, but which leads into a playlist which holds peoples’ attention. If a video is a frequent session starter – people see it outside of YouTube (i.e. in a Google search) and get to the site through it – then its watch time will be high because it is given credit for all of the time viewers are spending on YouTube watching other videos after they get there.
+
+The only way to stop certain types of videos from being recommended for you is to take advantage of the ‘not interested’ feature.
+
+ Are you usually happy with YouTube's recommended videos?
+
+## What video editing software did YouTube suggested videos are used?
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -338,9 +316,6 @@ Follow @Richard Bennett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## Structuring Engaging Online Vignettes
 
 # How to Make a Channel Trailer
@@ -397,86 +372,6 @@ The people viewing your trailer did not come to YouTube for the purpose of watch
 
 Thirty seconds should be long enough to tell people what your channel is about, show off your personality, and ask them to subscribe. If you take much longer, viewers will click away before they hear your full pitch.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 2: How to Add a Channel Trailer Using Wondershare Filmora
-
-Here are a few simple steps to setting up your channel trailer.
-
-1. Turn on channel customization. Go to My Channel and click the gear icon over your channel’s banner. Switch **Customize the layout of your channel** from off to on.
-2. Upload your trailer video like you would any other video.
-3. Go to your channel and click on the **For new visitors** tab, which should appear after you’ve turned on customization.
-4. Click **Channel trailer** and choose your video, or paste in its URL.
-
-If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Your channel trailer is the video viewers who are not already subscribed to you will see when they visit your channel page. It is your chance to make a quick pitch to them about why they should subscribe. You can use your channel trailer to let new visitors to your channel know what kind of videos you make and to convince them to subscribe. Here are 5 tips to make an effective YouTube channel trailer.
-
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 1: 5 Tips for Making a Great Channel Trailer
-
-Here are our top 5 recommendations for anybody creating a YouTube channel trailer:
-
-#### Reach Out – It’s All About Your Viewers
-
-Use your channel trailer to try to connect to the individual viewer watching it. Greet that one person as one person, as a ‘you’, instead of as a member of a group (i.e., avoid saying ‘you guys’).
-
-The more you can make your trailer about the person watching it, the better. You are telling them about yourself, but you are doing it for their benefit. Address them directly (i.e. ‘If you like…’ or ‘you don’t want to miss’.) and make everything you say about them. For example, instead of saying ‘I post tutorials about’, try ‘you can learn about’.
-
-#### Flaunt Your Personality – It’s All About You
-
-One of the golden rules of YouTube is ‘be yourself’. People will subscribe because they enjoy your personality and want to see more of it.
-
-Use your trailer as an opportunity to showcase your unique perspective. Be yourself, and be the person that is excited to be making great YouTube videos. You are at your best when you let people see how much you care about something, so show your viewers how much you care about delivering great video content. This is what will make people want to subscribe.
-
-#### Talk about All the Cool Stuff You Do
-
-The best channel trailers give viewers a window into your channel. You need to show people what to expect from you as a personality, but you also need to tell them what to expect in terms of your videos.
-
-Your channel trailer should include information like: what kinds of videos you make, why you make them, and what your upload schedule is.
-
-Be specific. Instead of saying you make videos about makeup, say you make look tutorials and talk about your favorite styles. Instead of saying you are a gamer, tell your potential subscribers what games you post about and what some of your favorites are.
-
-A specific schedule is important for getting people to subscribe. Generally, viewers do not subscribe to channels that have not posted in a long time. They subscribe because they do not want to miss out on new content, and if you follow a schedule, they will trust that that new content is on its way.
-
-#### Ask Them to Subscribe
-
-Do not forget to ask the person to view your trailer to subscribe.
-
-A lot of people go into YouTube thinking people will subscribe if they like their videos, and so making great videos is the only way to get people to subscribe. This is not true.
-
-Making great videos is the first step to getting subscribers, but the second step is to ask for them. Not everyone subscribes to every channel they visit and enjoy. A person who enjoys your videos is more likely to subscribe if you prompt them to.
-
-#### 30 Seconds
-
-The ideal length for a YouTube channel trailer is 30 seconds, or between 30 seconds and 1 minute.
-
-The people viewing your trailer did not come to YouTube for the purpose of watching it. They are unlikely to give it much time before they continue browsing. This means you need to grab their attention tightly right away, but it also means you need to keep your trailer bite-sized.
-
-Thirty seconds should be long enough to tell people what your channel is about, show off your personality, and ask them to subscribe. If you take much longer, viewers will click away before they hear your full pitch.
-
 ## Part 2: How to Add a Channel Trailer Using Wondershare Filmora
 
 Here are a few simple steps to setting up your channel trailer.
@@ -559,19 +454,11 @@ Here are a few simple steps to setting up your channel trailer.
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -642,16 +529,87 @@ Here are a few simple steps to setting up your channel trailer.
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
 
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Your channel trailer is the video viewers who are not already subscribed to you will see when they visit your channel page. It is your chance to make a quick pitch to them about why they should subscribe. You can use your channel trailer to let new visitors to your channel know what kind of videos you make and to convince them to subscribe. Here are 5 tips to make an effective YouTube channel trailer.
+
+## Part 1: 5 Tips for Making a Great Channel Trailer
+
+Here are our top 5 recommendations for anybody creating a YouTube channel trailer:
+
+#### Reach Out – It’s All About Your Viewers
+
+Use your channel trailer to try to connect to the individual viewer watching it. Greet that one person as one person, as a ‘you’, instead of as a member of a group (i.e., avoid saying ‘you guys’).
+
+The more you can make your trailer about the person watching it, the better. You are telling them about yourself, but you are doing it for their benefit. Address them directly (i.e. ‘If you like…’ or ‘you don’t want to miss’.) and make everything you say about them. For example, instead of saying ‘I post tutorials about’, try ‘you can learn about’.
+
+#### Flaunt Your Personality – It’s All About You
+
+One of the golden rules of YouTube is ‘be yourself’. People will subscribe because they enjoy your personality and want to see more of it.
+
+Use your trailer as an opportunity to showcase your unique perspective. Be yourself, and be the person that is excited to be making great YouTube videos. You are at your best when you let people see how much you care about something, so show your viewers how much you care about delivering great video content. This is what will make people want to subscribe.
+
+#### Talk about All the Cool Stuff You Do
+
+The best channel trailers give viewers a window into your channel. You need to show people what to expect from you as a personality, but you also need to tell them what to expect in terms of your videos.
+
+Your channel trailer should include information like: what kinds of videos you make, why you make them, and what your upload schedule is.
+
+Be specific. Instead of saying you make videos about makeup, say you make look tutorials and talk about your favorite styles. Instead of saying you are a gamer, tell your potential subscribers what games you post about and what some of your favorites are.
+
+A specific schedule is important for getting people to subscribe. Generally, viewers do not subscribe to channels that have not posted in a long time. They subscribe because they do not want to miss out on new content, and if you follow a schedule, they will trust that that new content is on its way.
+
+#### Ask Them to Subscribe
+
+Do not forget to ask the person to view your trailer to subscribe.
+
+A lot of people go into YouTube thinking people will subscribe if they like their videos, and so making great videos is the only way to get people to subscribe. This is not true.
+
+Making great videos is the first step to getting subscribers, but the second step is to ask for them. Not everyone subscribes to every channel they visit and enjoy. A person who enjoys your videos is more likely to subscribe if you prompt them to.
+
+#### 30 Seconds
+
+The ideal length for a YouTube channel trailer is 30 seconds, or between 30 seconds and 1 minute.
+
+The people viewing your trailer did not come to YouTube for the purpose of watching it. They are unlikely to give it much time before they continue browsing. This means you need to grab their attention tightly right away, but it also means you need to keep your trailer bite-sized.
+
+Thirty seconds should be long enough to tell people what your channel is about, show off your personality, and ask them to subscribe. If you take much longer, viewers will click away before they hear your full pitch.
+
+## Part 2: How to Add a Channel Trailer Using Wondershare Filmora
+
+Here are a few simple steps to setting up your channel trailer.
+
+1. Turn on channel customization. Go to My Channel and click the gear icon over your channel’s banner. Switch **Customize the layout of your channel** from off to on.
+2. Upload your trailer video like you would any other video.
+3. Go to your channel and click on the **For new visitors** tab, which should appear after you’ve turned on customization.
+4. Click **Channel trailer** and choose your video, or paste in its URL.
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
+
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -673,7 +631,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/updated-comedic-content-concepts-7-hilarious-vlog-ideas-for-laughter-lovers/"><u>[Updated] Comedic Content Concepts 7 Hilarious Vlog Ideas for Laughter Lovers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-boost-online-presence-innovative-youtube-channel-names/"><u>2024 Approved Boost Online Presence Innovative YouTube Channel Names</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/chart-topping-tunes-compiling-an-impressive-youtube-playlist-for-2024/"><u>Chart-Topping Tunes Compiling an Impressive YouTube Playlist for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/copyright-safe-techniques-for-youtube-to-mp4-for-2024/"><u>Copyright-Safe Techniques for Youtube-to-MP4 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/elevate-your-mind-while-you-multitask-top-15-ideas-for-podcast-lovers/"><u>Elevate Your Mind While You Multitask Top 15 Ideas for Podcast Lovers</u></a></li>
+<li><a href="https://program-issues.techidaily.com/expert-advice-diagnosing-and-repairing-the-persistent-dark-mode-glitch-in-rainbow-six-siege-for-windows/"><u>Expert Advice: Diagnosing and Repairing the Persistent Dark Mode Glitch in Rainbow Six Siege for Windows</u></a></li>
+<li><a href="https://extra-information.techidaily.com/fast-easy-free-the-top-choices-for-onsite-gif-to-video-changes/"><u>Fast, Easy, Free The Top Choices for Onsite GIF to Video Changes</u></a></li>
+<li><a href="https://fox-where.techidaily.com/find-the-right-product-version-expert-search-guide/"><u>Find the Right Product Version: Expert Search Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/futureling-mastering-languages-at-dubai-expo-2020/"><u>FutureLing: Mastering Languages at Dubai Expo 2020</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-automated-text-transcription-powerpoints-new-edge/"><u>In 2024, Automated Text Transcription PowerPoint's New Edge</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-the-new-youtube-earnings-landscape/"><u>Navigating the New YouTube Earnings Landscape</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-music-from-honor-90-lite-by-fonelab-android-recover-music/"><u>Possible solutions to restore deleted music from Honor 90 Lite</u></a></li>
+<li><a href="https://extra-information.techidaily.com/sifting-through-legacy-works-a-cultural-journey/"><u>Sifting Through Legacy Works A Cultural Journey</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unsticking-iphone-from-apple-logo-a-step-by-step-guide-7-methods/"><u>Unsticking iPhone From Apple Logo: A Step-by-Step Guide (7 Methods)</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Achieve Sharpness  Camera Tips Without a Tripod for 2024\""
-date: 2024-07-22T16:04:56.173Z
-updated: 2024-07-23T16:04:56.173Z
+date: 2025-02-14T17:19:21.602Z
+updated: 2025-02-20T18:11:00.103Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
 # DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -35,9 +32,6 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
@@ -58,9 +52,6 @@ Here it is with binder clips:
 
 And here it is with hair clips:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -90,10 +81,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 _All of your supplies plus the finished product._
@@ -118,6 +105,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -132,23 +123,14 @@ Follow @Richard Bennett
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -165,9 +147,6 @@ Here it is with binder clips:
 
 And here it is with hair clips:
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -192,18 +171,20 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -225,9 +206,6 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -274,10 +252,6 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -295,18 +269,12 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 _All of your supplies plus the finished product._
@@ -353,9 +321,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -372,18 +337,12 @@ Here it is with binder clips:
 
 And here it is with hair clips:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -449,9 +408,6 @@ Follow @Richard Bennett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Innovate and Captivate: Top 10 Video Response Examples
 
 # Best YouTube Video Reaction Ideas
@@ -468,9 +424,6 @@ However, copyright restrictions prevent you from commenting on any video you fin
 
 Previously we have demonstrated [how to create a YouTube reaction video with Filmora](https://tools.techidaily.com/wondershare/filmora/download/), check it to get some inspiration.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -479,34 +432,30 @@ Previously we have demonstrated [how to create a YouTube reaction video with Fil
 
 The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ### 1\. React to music videos
 
 Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Video game reactions
 
 Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attention on YouTube, and if you are a fan of any of them you can easily react to the gameplay. Reacting to video games is only a good idea if your channel is dedicated to gaming, because otherwise, this reaction video idea may seem off-topic.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. React to video’s comments
 
 YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Make a ‘Kids React To’ videos
 
 Videos of children reacting to different genres of music are already getting thousands of views every day. So, if you like working with children you should consider making a variation of this type of video. There are so many different things children can react to, you just have to find a few that fit perfectly into your channel’s topic.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ### 5\. React to ‘React To’ Videos
 
 Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
@@ -515,9 +464,6 @@ Even though reacting to a reaction video sounds silly, it is anything but becaus
 
 Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 7\. Record reactions of elderly people
 
 It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
@@ -530,9 +476,6 @@ Over the course of the last decade, we’ve seen so many challenges go viral, as
 
 We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 10\. Comment on [movie trailers](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you are running a movie channel on YouTube, your followers are expecting your comment on the latest releases. Sharing your opinion about trailers of movies you like or dislike with your audience is going to help you start a conversation about that movie. This idea is only worth considering if you are a movie buff, since analyzing a movie trailer or reacting to it is anything but easy.
@@ -541,18 +484,16 @@ Interested in Movie Trailer? You can now make it with some [best movie trailer m
 
 With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Conclusion**
 
 Coming up with a unique idea for a reaction video isn’t necessarily a simple process, because there are so many reaction videos on YouTube. That is why the YouTube video reaction ideas you choose to have to fit perfectly into your channel’s theme. What is your favorite YouTube video reaction idea? Share your opinions in the comments.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -583,9 +524,6 @@ The process of [making a YouTube video](https://tools.techidaily.com/wondershare
 
 Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Video game reactions
 
 Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attention on YouTube, and if you are a fan of any of them you can easily react to the gameplay. Reacting to video games is only a good idea if your channel is dedicated to gaming, because otherwise, this reaction video idea may seem off-topic.
@@ -594,54 +532,38 @@ Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attent
 
 YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Make a ‘Kids React To’ videos
 
 Videos of children reacting to different genres of music are already getting thousands of views every day. So, if you like working with children you should consider making a variation of this type of video. There are so many different things children can react to, you just have to find a few that fit perfectly into your channel’s topic.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### 5\. React to ‘React To’ Videos
 
 Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6\. Comment on your old videos
 
 Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ### 7\. Record reactions of elderly people
 
 It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### 8\. React to different challenges
 
 Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 9\. React to TV shows
 
 We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ### 10\. Comment on [movie trailers](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you are running a movie channel on YouTube, your followers are expecting your comment on the latest releases. Sharing your opinion about trailers of movies you like or dislike with your audience is going to help you start a conversation about that movie. This idea is only worth considering if you are a movie buff, since analyzing a movie trailer or reacting to it is anything but easy.
@@ -650,9 +572,6 @@ Interested in Movie Trailer? You can now make it with some [best movie trailer m
 
 With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Conclusion**
@@ -694,8 +613,9 @@ Music videos are among the most popular genres of videos on YouTube, which makes
 Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attention on YouTube, and if you are a fan of any of them you can easily react to the gameplay. Reacting to video games is only a good idea if your channel is dedicated to gaming, because otherwise, this reaction video idea may seem off-topic.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. React to video’s comments
 
 YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
@@ -708,9 +628,6 @@ Videos of children reacting to different genres of music are already getting tho
 
 Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 6\. Comment on your old videos
 
 Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
@@ -719,23 +636,14 @@ Producing new content for your YouTube channel regularly is important for so man
 
 It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 8\. React to different challenges
 
 Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 9\. React to TV shows
 
 We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 10\. Comment on [movie trailers](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you are running a movie channel on YouTube, your followers are expecting your comment on the latest releases. Sharing your opinion about trailers of movies you like or dislike with your audience is going to help you start a conversation about that movie. This idea is only worth considering if you are a movie buff, since analyzing a movie trailer or reacting to it is anything but easy.
@@ -745,6 +653,10 @@ Interested in Movie Trailer? You can now make it with some [best movie trailer m
 With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -776,9 +688,6 @@ Previously we have demonstrated [how to create a YouTube reaction video with Fil
 
 The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. React to music videos
 
 Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
@@ -803,9 +712,6 @@ Even though reacting to a reaction video sounds silly, it is anything but becaus
 
 Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 7\. Record reactions of elderly people
 
 It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
@@ -832,9 +738,6 @@ With these reaction video ideas in mind, you can practise it on YouTube, or TikT
 
 Coming up with a unique idea for a reaction video isn’t necessarily a simple process, because there are so many reaction videos on YouTube. That is why the YouTube video reaction ideas you choose to have to fit perfectly into your channel’s theme. What is your favorite YouTube video reaction idea? Share your opinions in the comments.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -856,7 +759,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-skyrocketing-engagement-on-igtv-with-smart-hash-tagging/"><u>[Updated] 2024 Approved Skyrocketing Engagement on IGTV with Smart Hash Tagging</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-quintessential-new-wave-of-facebook-updates/"><u>[Updated] The Quintessential New Wave of Facebook Updates</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-5-essential-tips-for-monetizing-your-content-finding-the-right-viewer-count/"><u>2024 Approved 5 Essential Tips for Monetizing Your Content Finding the Right Viewer Count</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channel-your-creativity-crafting-youtube-trailers-in-filmora-for-2024/"><u>Channel Your Creativity Crafting YouTube Trailers in Filmora for 2024</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/how-to-create-frame-bar-free-flipbooks-with-ease-on-flipbuilder-platform/"><u>How to Create Frame-Bar-Free Flipbooks with Ease on FlipBuilder Platform</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-itel-s23plus-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Itel S23+ to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-poco-m6-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Poco M6 5G online without jailbreak</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-the-science-of-quantum-hdr/"><u>In 2024, Mastering the Science of Quantum HDR</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/print-queue-unavailable-on-local-pc/"><u>Print Queue Unavailable on Local PC</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/quick-fix-from-raw-images-to-high-quality-youtube-thumbnails/"><u>Quick Fix From Raw Images To High-Quality YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streaming-success-starts-here-8-tips-for-beginners/"><u>Streaming Success Starts Here - 8 Tips for Beginners</u></a></li>
+<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-from-apple-iphone-13-pro-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server From Apple iPhone 13 Pro</u></a></li>
+</ul></div>
 

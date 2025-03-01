@@ -1,7 +1,7 @@
 ---
 title: "\"The Elite 5  YouTube Channel Power Players\""
-date: 2025-02-05T00:11:25.020Z
-updated: 2025-02-10T22:47:11.799Z
+date: 2025-02-15T17:13:16.928Z
+updated: 2025-02-20T17:48:52.523Z
 tags:
   - ai video
   - ai youtube
@@ -50,24 +50,16 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\.  PewDiePie
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  2\.  HolaSoyGerman
@@ -79,12 +71,16 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
@@ -94,15 +90,15 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
@@ -122,6 +118,10 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -137,20 +137,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-pioneering-websites-for-modern-letterforms/"><u>[New] Pioneering Websites for Modern Letterforms</u></a></li>
-<li><a href="https://win11.techidaily.com/bypass-ignored-win11-themes-worth-checking/"><u>Bypass Ignored: Win11 Themes Worth Checking</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpts-new-voice-mastering-prompt-and-command-interactions/"><u>ChatGPT's New Voice: Mastering Prompt and Command Interactions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-budget-channels-to-big-brands-youtube-sponsorships-demystified/"><u>From Budget Channels to Big Brands YouTube Sponsorships Demystified</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/how-to-adjust-your-internet-connection-via-windows-pcs-control-panel-guided-steps-by-yl-computing/"><u>How to Adjust Your Internet Connection via Windows PC's Control Panel - Guided Steps by YL Computing</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-honor-magic-6-pro-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Honor Magic 6 Pro Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-asus-rog-phone-8-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Asus ROG Phone 8</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-beginners-guide-top-10-youtube-editing-tricks/"><u>In 2024, Beginner's Guide Top 10 YouTube Editing Tricks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-best-practices-in-digital-image-creation-for-youtube/"><u>In 2024, Best Practices in Digital Image Creation for YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-easy-steps-for-exporting-videos-from-youtube-to-dailymotion/"><u>In 2024, Easy Steps for Exporting Videos From YouTube to Dailymotion</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-youtube-presence-with-studio-insights/"><u>In 2024, Elevate Your YouTube Presence with Studio Insights</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevating-your-channels-identity-with-titles/"><u>In 2024, Elevating Your Channel's Identity with Titles</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Samsung Galaxy S24 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/photo-sharpening-mastery-with-1-10-online-editors/"><u>Photo Sharpening Mastery with #1-10 Online Editors</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-unresponsive-file-explorer-in-windows-11-effective-methods-and-tips/"><u>Troubleshooting Unresponsive File Explorer in Windows 11 – Effective Methods and Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-channel-honor-roll-play-button-and-follower-awards/"><u>[New] Channel Honor Roll - Play Button & Follower Awards</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-comprehensive-guide-to-downloading-standardized-youtube-images/"><u>[Updated] Comprehensive Guide to Downloading Standardized YouTube Images</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-crafting-captivating-igtv-cover-photos-thumbnails-for-2024/"><u>[Updated] Crafting Captivating IGTV Cover Photos (Thumbnails) for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cutting-edge-tools-free-youtube-intro-creators/"><u>[Updated] Cutting-Edge Tools Free YouTube Intro Creators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-guide-how-to-catch-every-thrilling-moment-in-cricket/"><u>[Updated] Step-by-Step Guide How to Catch Every Thrilling Moment in Cricket</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unlock-the-potential-of-snapchat-boomerangs-for-2024/"><u>[Updated] Unlock the Potential of Snapchat Boomerangs for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-navigating-online-hostility-on-video-platforms/"><u>2024 Approved Navigating Online Hostility on Video Platforms</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/all-you-need-to-know-about-the-anticipated-tesla-smartphone-release-timeline-estimated-cost-and-feature-leakage/"><u>All You Need to Know About the Anticipated Tesla Smartphone - Release Timeline, Estimated Cost & Feature Leakage</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/battle-of-the-brains-which-is-superior-chatgpt-or-bing-chat/"><u>Battle of the Brains: Which Is Superior, ChatGPT or Bing Chat?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/dynamic-design-the-art-of-adding-motion-to-photos-in-adobe-illustrators-for-2024/"><u>Dynamic Design The Art of Adding Motion to Photos in Adobe Illustrators for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-6-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 6 without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-dive-into-youtubes-best-practices-for-playlist-design/"><u>In 2024, Dive Into Youtube's Best Practices for Playlist Design</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210088521-9781528766999-one-hundred-proofs-that-the-earth-is-not-a-globe/"><u>One Hundred Proofs that the Earth is Not a Globe | Free Book</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/rapid-methods-unsettle-youtube-playback-scheme/"><u>Rapid Methods Unsettle YouTube Playback Scheme</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-your-youtube-shorts-earnings-potential/"><u>Unlock Your YouTube Shorts Earnings Potential</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-expertise-pathway-choosing-between-standard-studio-and-beta/"><u>YouTube Expertise Pathway Choosing Between Standard Studio and Beta</u></a></li>
 </ul></div>
 

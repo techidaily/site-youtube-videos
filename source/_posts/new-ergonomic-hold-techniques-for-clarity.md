@@ -1,7 +1,7 @@
 ---
 title: "[New] Ergonomic Hold Techniques for Clarity"
-date: 2025-02-09T18:56:48.002Z
-updated: 2025-02-10T20:29:27.486Z
+date: 2025-02-15T16:50:47.022Z
+updated: 2025-02-20T17:41:39.103Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/48bbf816680af2439ef36580a7c2fe3c4155339da
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Your Video with Wondershare Filmora
@@ -39,13 +39,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -67,7 +67,7 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -99,6 +99,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -121,10 +125,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -140,19 +140,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-beginners-bible-to-your-youtube-audio-visual-arsenal/"><u>[New] Beginner's Bible to Your YouTube Audio-Visual Arsenal</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-tools-for-android-and-ios-users-seeking-playlist-extractors/"><u>[New] Essential Tools for Android & iOS Users Seeking Playlist Extractors</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-elevate-your-drone-videos-with-the-best-editing-programs/"><u>[New] In 2024, Elevate Your Drone Videos with the Best Editing Programs</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-insiders-pick-of-advanced-audio-software-a-vtubers-guide/"><u>[New] Insider's Pick of Advanced Audio Software A Vtuber's Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-comprehensive-checklist-for-perfecting-your-reddit-posts/"><u>[New] The Comprehensive Checklist for Perfecting Your Reddit Posts</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-the-art-of-anime-adaptation-jujutsu-kaisens-tiktok-success/"><u>[Updated] 2024 Approved The Art of Anime Adaptation Jujutsu Kaisen's TikTok Success</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-advanced-techniques-for-trimming-youtube-footage/"><u>[Updated] Advanced Techniques for Trimming YouTube Footage</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mobile-filmmaking-tips-designing-engaging-youtubes-thumbnails/"><u>[Updated] Mobile Filmmaking Tips Designing Engaging YouTubes Thumbnails</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-pinnacle-vr-devices-the-essential-list/"><u>2024 Approved Pinnacle VR Devices The Essential List</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/low-cost-recording-choices-top-11-vlogger-essentials/"><u>Low-Cost Recording Choices Top 11 Vlogger Essentials</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-motherboard-picks-deciphering-7-critical-aspects-to-assess-before-buying/"><u>Mastering Motherboard Picks: Deciphering 7 Critical Aspects to Assess Before Buying</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/scrutinizing-youtubes-top-viewed-community-inputs/"><u>Scrutinizing YouTube's Top Viewed Community Inputs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/step-by-step-legally-convert-youtube-to-mp4-format/"><u>Step-by-Step Legally Convert YouTube to MP4 Format</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/your-go-to-list-of-international-adventure-vids/"><u>Your Go-To List of International Adventure Vids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-a-comprehensive-walkthrough-for-embedding-youtube-plays-in-web-design/"><u>[New] A Comprehensive Walkthrough for Embedding YouTube Plays in Web Design</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-creating-stunning-youtube-openings-best-tools-list/"><u>[New] Creating Stunning YouTube Openings - Best Tools List</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-premiere-seminar-title-assembler/"><u>[New] Premiere Seminar Title Assembler</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-enlightened-efforts-applewatch-unlocks-macgizmo/"><u>[Updated] 2024 Approved Enlightened Efforts AppleWatch Unlocks MacGizmo</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-compreehensive-guide-to-youtube-thumbnail-creation-mac/"><u>2024 Approved A Compreehensive Guide to YouTube Thumbnail Creation (Mac)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-youtube-tagging-strategies-for-optimal-visibility/"><u>Essential YouTube Tagging Strategies for Optimal Visibility</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/framing-the-perfect-waterway-narrative/"><u>Framing the Perfect Waterway Narrative</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-exploring-best-4k-video-converter-apps-for-mp3-output/"><u>In 2024, Exploring Best 4K Video Converter Apps for MP3 Output</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-oppo-a38-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Oppo A38 Device</u></a></li>
+<li><a href="https://windows11.techidaily.com/tcpip-port-safety-a-windows-perspective/"><u>TCP/IP Port Safety: A Windows Perspective</u></a></li>
+<li><a href="https://win-bits.techidaily.com/titre-seo-meilleur-reference-clonage-parfait-du-ssd-intenso-avec-sata-iii-logiciel-dexcellence/"><u>Titre SEO Meilleur Référencé : « Clonage Parfait Du SSD Intenso Avec SATA III - Logiciel D'Excellence »</u></a></li>
 </ul></div>
 

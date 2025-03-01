@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2025-02-04T00:56:04.606Z
-updated: 2025-02-10T23:51:23.619Z
+date: 2025-02-14T16:43:01.562Z
+updated: 2025-02-20T17:22:18.733Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/7c8eb4a6751ebbb720d8baa15eb6264cc6e760acb
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,19 +143,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-dominance-in-video-landscape-mirrorless-vs-dslr-cameras/"><u>[New] In 2024, Dominance in Video Landscape Mirrorless vs DSLR Cameras</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/trategic-play-tips-by-top-game-masters/"><u>[New] Strategic Play Tips by Top Game Masters</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unveiling-the-secrets-to-stellar-youtube-intros/"><u>[Updated] Unveiling the Secrets to Stellar YouTube Intros</u></a></li>
-<li><a href="https://win-updates.techidaily.com/ace-the-stage-alone-unleashing-a-stellar-solo-performance-through-expertly-crafted-karaoke-playlists/"><u>Ace the Stage Alone: Unleashing a Stellar Solo Performance Through Expertly Crafted Karaoke Playlists</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-forge-strong-content-partnerships-on-youtube/"><u>How to Forge Strong Content Partnerships on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-youtube-determines-your-true-view-count/"><u>How YouTube Determines Your True View Count</u></a></li>
-<li><a href="https://techidaily.com/1723262403567-huge-savings-save-200-on-the-alienware-aurora-r16-with-rtx-4070-super-now-just-1499/"><u>Huge Savings: Save $200 on the Alienware Aurora R16 with RTX 4070 Super – Now Just $1,499</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-infinix-hot-40-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-discover-the-7-most-popular-video-apps-for-iphones-and-android-live-streaming/"><u>In 2024, Discover The 7 Most Popular Video Apps for iPhones & Android Live Streaming</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-enhancing-video-reach-convert-yt-to-igtv/"><u>In 2024, Enhancing Video Reach Convert YT to IGTV</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/inside-look-at-vimeo-and-youtubes-market-strategies/"><u>Inside Look at Vimeo and YouTube’s Market Strategies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/insights-into-the-algorithm-choosing-noteworthy-video-comments/"><u>Insights Into the Algorithm Choosing Noteworthy Video Comments</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/zoom-assisted-video-production-for-tiktok-for-2024/"><u>Zoom-Assisted Video Production for TikTok for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-banter-bonanza-the-best-comedians-on-the-web/"><u>[New] Banter Bonanza The Best Comedians on the Web</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-crafting-viral-videos-how-to-excel-in-youtubers-music-reactions/"><u>[New] Crafting Viral Videos How to Excel in Youtubers' Music Reactions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-breaking-down-youtube-short-barriers/"><u>[Updated] Breaking Down YouTube Short Barriers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-prime-video-converter-for-social-media-platforms/"><u>[Updated] In 2024, Prime Video Converter for Social Media Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-practices-for-designing-an-engaging-youtube-teaser/"><u>2024 Approved Best Practices for Designing an Engaging YouTube Teaser</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/30-must-have-youtube-intros-tools-for-beginners-all-free/"><u>30 Must-Have YouTube Intros Tools for Beginners, All Free</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/global-market-anticipates-sale-of-39-million-moments-post-crisis-resurgence-in-board-deliveries/"><u>Global Market Anticipates Sale of 39 Million Moments: Post-Crisis Resurgence in Board Deliveries</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-the-windows-host-process-rundll32-has-stopped-working-issue/"><u>How to Fix the 'Windows Host Process (Rundll32) Has Stopped Working' Issue</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-tips-and-tricks-for-creating-killer-short-videos-on-yt/"><u>In 2024, Essential Tips and Tricks for Creating Killer Short Videos on YT</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-proven-ways-to-enhance-your-home-nba-streams/"><u>In 2024, Proven Ways to Enhance Your Home NBA Streams</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-vivo-x90s-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Vivo X90S ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-best-websites-to-add-emojis-to-photos-online/"><u>New 2024 Approved Best Websites to Add Emojis to Photos Online</u></a></li>
+<li><a href="https://win11.techidaily.com/reviving-your-windows-inactive-start-button/"><u>Reviving Your Window's Inactive Start Button</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/upgrade-your-youtube-bio-with-pro-templates/"><u>Upgrade Your Youtube Bio with Pro Templates</u></a></li>
 </ul></div>
 
