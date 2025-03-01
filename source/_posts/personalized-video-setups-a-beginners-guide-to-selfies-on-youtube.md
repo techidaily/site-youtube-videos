@@ -1,7 +1,7 @@
 ---
 title: "\"Personalized Video Setups  A Beginner's Guide to Selfies on YouTube\""
-date: 2025-02-16T16:32:33.643Z
-updated: 2025-02-20T16:31:30.992Z
+date: 2025-02-27T00:50:11.779Z
+updated: 2025-02-28T19:48:58.867Z
 tags:
   - ai video
   - ai youtube
@@ -39,10 +39,6 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -56,10 +52,6 @@ In the video above, Sean Cannell demonstrates this set-up. As you can see from t
 Objects and people that just make it into the sides of the frame will appear more stretched out as the wide-angle causes distortion and enhances perspectives.
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
 
@@ -75,10 +67,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -86,10 +74,6 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -106,10 +90,6 @@ In the video, he says there’s about 8 feet (2.4 meters) between himself and hi
 It is difficult to know whether the movement in his eyes is caused by not being far enough from the lens or from his horizontal nystagmus condition in his eyes.
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
 
@@ -134,21 +114,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-a-dive-into-history-the-definitive-list-of-student-friendly-channels-1-10/"><u>[New] A Dive Into History The Definitive List of Student-Friendly Channels #1-10</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-a-step-by-step-approach-to-discard-youtube-watch-later-items/"><u>[New] A Step-by-Step Approach to Discard YouTube Watch Later Items</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-create-impact-with-intro-excellence-best-free-services-reviewed/"><u>[New] Create Impact with Intro Excellence Best Free Services Reviewed</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-exclusive-deals-on-superior-quality-economical-asmr-mics/"><u>[New] Exclusive Deals on Superior-Quality, Economical ASMR Mics</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-get-pcs-audio-capture-tool-x-recorder-for-2024/"><u>[New] Get PC's Audio Capture Tool X-Recorder for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-discovering-the-secret-to-engaging-content-with-aspect-ratios-in-youtube/"><u>[Updated] Discovering the Secret to Engaging Content with ASPECT RATIOS in YOUTUBE</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-comparing-360-immersion-to-vr-experience/"><u>[Updated] In 2024, Comparing 360° Immersion to VR Experience</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/10-best-webcams-to-enhance-your-podcast-experience/"><u>10 Best Webcams to Enhance Your Podcast Experience</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/analyzing-t-series-youtube-financial-gains-for-2024/"><u>Analyzing T-Series Youtube Financial Gains for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/building-captivating-online-media-summaries/"><u>Building Captivating Online Media Summaries</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/disabling-site-alerts-in-your-browser-tips-for-chrome-firefox-and-edge-users/"><u>Disabling Site Alerts in Your Browser: Tips for Chrome, Firefox & Edge Users</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/polo-clubs-resist-social-platforming/"><u>Polo Clubs Resist Social Platforming</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/sham-tech-outsmarted-keep-your-data-secure-from-fakes/"><u>Sham Tech Outsmarted: Keep Your Data Secure From Fakes!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-conversion-guide-youtube-to-igtv/"><u>The Ultimate Conversion Guide YouTube to IGTV</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transformar-videos-de-webm-en-audios-acc-m4a-sin-costo-con-convertidor-en-linea-usando-movavi/"><u>Transformar Vídeos De WebM en Audios ACC (M4A) Sin Costo Con Convertidor en Línea - Usando Movavi</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-avoid-facebooks-targeted-video-promotions/"><u>[New] Avoid Facebook's Targeted Video Promotions</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-future-of-mobile-videography-6-pioneering-apps-beyond-periscope/"><u>[New] The Future of Mobile Videography 6 Pioneering Apps Beyond Periscope</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-bypass-a-youtube-strike-and-keep-creating-videos/"><u>[Updated] How to Bypass a YouTube Strike and Keep Creating Videos</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhance-brand-recognition-inserting-watermarklogo-in-youtube-videos-for-2024/"><u>Enhance Brand Recognition Inserting Watermark/Logo in Youtube Videos for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/exclusive-access-to-premium-playlists-on-mobile-devices/"><u>Exclusive Access to Premium Playlists on Mobile Devices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/exploring-video-threads-on-youtube/"><u>Exploring Video Threads on YouTube</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ideal-tags-elevating-your-contents-discovery-potential/"><u>Ideal Tags Elevating Your Content's Discovery Potential</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-access-unlimited-free-high-quality-green-screen-footage-online/"><u>In 2024, Access Unlimited Free, High-Quality Green Screen Footage Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-dynamic-subscriber-buttons-for-video-creators-filmora-edition/"><u>In 2024, Dynamic Subscriber Buttons for Video Creators - Filmora Edition</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-minuscule-cinematic-design/"><u>In 2024, Minuscule Cinematic Design</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723210300766-seamless-dual-display-setup-for-windows-7-users-no-more-unseen-screens/"><u>Seamless Dual Display Setup for Windows 7 Users - No More Unseen Screens</u></a></li>
 </ul></div>
 

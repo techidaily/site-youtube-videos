@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Fix Guide: Eliminating Red Dead Redemption 2 Game Crashes on Windows"
-date: 2025-02-19T16:38:27.612Z
-updated: 2025-02-20T16:47:09.090Z
+date: 2025-02-25T19:11:04.916Z
+updated: 2025-02-28T19:33:23.925Z
 tags:
   - win11
   - win10
@@ -53,10 +53,6 @@ Stop blaming yourself for losing your temper when the FPS (frame per second) dro
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Close CPU- and bandwidth-intensive services and applications
 
  If there are bandwidth-intensive services and applications, like background downloads, music streaming, or video streaming, running when you’re gaming, please disable them, as their occupation of the network connection resource is likely the culprit to your low FPS in games. The same logic goes with CPU-intensive programs like**Intel Turbo Boost Technology** , so if you have it installed and running, please disable it as well.
@@ -104,14 +100,6 @@ To do so:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/Snipaste_2021-06-01_10-06-54.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4.2 Switch to a public DNS server
 
  Then please use a public DNS server to see if helps to improve the FPS in games. Here we’ll use the Google DNS server as an example since it’s fast and secure:
@@ -123,19 +111,11 @@ To do so:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/change-adapter-options.png)
 3. Right-click**the network you’re using** , then click**Properties** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/click-ethernet.png)
 4. Select**Internet Protocol Version 4 (TCP/IPv4)** , then click**Properties** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/ipv4.png)
 5. Select**Use the following DNS server addresses** , fill in the Google DNS server addresses as below, then click**OK** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  **Preferred DNS server: 8.8.8.8**  
  **Alternate DNS server: 8.8.4.4**  
@@ -146,19 +126,11 @@ To do so:
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Update graphics card and network card drivers
 
  Another reason why FPS drops in your games is probably outdated or incorrect drivers for your graphics and network cards. This is because outdated, incorrect, or missing drivers for your display card and network card could lead to unstable graphics rendering and slow network connection, and therefore the stuttering and the FPS dropping problems. So you should update your device drivers to see if it helps.
 
  There are mainly 2 ways you can update the drivers for your video card and network card: manually or automatically.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Option 1: Update your graphics and network drivers manually
 
@@ -200,10 +172,6 @@ and your network card manufacturer:
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Modify the Power Mode
 
  The default power plan by Windows strikes a balance between power consumption and PC performance, which is a good choice most of the time, especially when you’re not using resource-hungry applications a lot. But games usually need more resources than other regular software programs, so it’s not a bad idea to switch to the **High performance**  plan to improve your game performance. This is even more true when you’re dealing with the FPS dropping problem.
@@ -216,10 +184,6 @@ To change the power mode:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-power-options.png)
 3. Then run your game to see if the frame rate per second is higher. If the problem remains still, please move on to the next fix.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ---
 
@@ -250,16 +214,24 @@ To change the power mode:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-comprehensive-guide-to-drone-visuals/"><u>[New] Comprehensive Guide to Drone Visuals</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-essentials-of-monetization-youtube-policy-update-for-2024/"><u>[New] The Essentials of Monetization YouTube Policy Update for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-breakdown-of-youtubes-monetization-update/"><u>[Updated] Breakdown of YouTube's Monetization Update</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-quick-and-easy-comedy-unraveling-ifunnys-meme-magic/"><u>[Updated] Quick & Easy Comedy Unraveling iFunny's Meme Magic</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210551537-9798985224825-chimera-conflict/"><u>Chimera Conflict | Free Book</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-budget-friendly-webinar-strategies-for-youtube/"><u>In 2024, Budget-Friendly Webinar Strategies for YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-a-hit-list-youtubes-way-for-fans/"><u>In 2024, Crafting a Hit-List Youtube's Way for Fans</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/navigating-ad-blocking-in-chrome-firefox-android-and-ios-for-youtube/"><u>Navigating Ad-Blocking in Chrome, Firefox, Android, & iOS for YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/swift-switcheroo-rearranging-yt-lists-in-a-minute/"><u>Swift Switcheroo Rearranging YT Lists in a Minute</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-apex-of-luxury-mobile-tech-a-detailed-look-at-the-exquisite-samsung-galaxy-s10/"><u>The Apex of Luxury Mobile Tech: A Detailed Look at the Exquisite Samsung Galaxy S10</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-virtual-gathering-film-cutter/"><u>[New] 2024 Approved Virtual Gathering Film Cutter</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-crafting-the-perfect-schedule-for-jobs-and-youtube/"><u>[New] Crafting the Perfect Schedule for Jobs & YouTube</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-simple-tips-for-capturing-google-voice-conversations/"><u>[New] In 2024, Simple Tips for Capturing Google Voice Conversations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-transformative-instagram-edits-professional-strategies-for-2024/"><u>[New] Transformative Instagram Edits Professional Strategies for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-crafting-dynamic-duo-videos-on-macos-sierra/"><u>[Updated] 2024 Approved Crafting Dynamic Duo Videos on macOS Sierra</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-winning-strategies-a-deep-dive-into-spotifys-ad-realm/"><u>[Updated] 2024 Approved Winning Strategies A Deep Dive Into Spotify's Ad Realm</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enjoy-youtube-music-anytime-with-these-23-essential-no-cost-audio-extractors/"><u>[Updated] Enjoy YouTube Music Anytime with These 23 Essential, No-Cost Audio Extractors</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-pcandroid-friendly-methods-to-post-videos-on-facebook-successfully/"><u>[Updated] PC/Android-Friendly Methods to Post Videos on Facebook Successfully</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Nubia Z50 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/join-the-chorus-of-discontent-the-unforeseen-consequences-of-moving-to-ios-18-on-your-iphone-as-revealed-readers/"><u>Join the Chorus of Discontent: The Unforeseen Consequences of Moving to iOS 18 on Your iPhone, as Revealed Readers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-timeliness-using-current-events-to-your-advantage/"><u>Mastering Timeliness Using Current Events to Your Advantage</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-the-shadows-an-overview-of-youtubes-unlisted-videos/"><u>Navigating the Shadows An Overview of YouTube's Unlisted Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/strategizing-to-spot-and-capture-youtubes-hidden-markets/"><u>Strategizing to Spot and Capture Youtube's Hidden Markets</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/sustainable-growth-developing-a-long-term-personal-brand-on-youtube/"><u>Sustainable Growth Developing a Long-Term Personal Brand on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-8-authentic-youtube-growth-tools/"><u>Top 8 Authentic YouTube Growth Tools</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/troubleshooting-mp4-video-insertion-issues-tips-and-tricks-for-seamless-integration-into-your-powerpoint-presentations/"><u>Troubleshooting MP4 Video Insertion Issues: Tips & Tricks for Seamless Integration Into Your PowerPoint Presentations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/tweaking-video-rhythms-on-youtube-desktopmobile/"><u>Tweaking Video Rhythms on YouTube (Desktop/Mobile)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unleashing-creativity-writing-scripts-for-youtube-content-excellence/"><u>Unleashing Creativity Writing Scripts for YouTube Content Excellence</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/iuodhuodroodkplusobppluss9vplusobhummsueuuplusodjplusodvoodieodhplusocoplusocueocrplusobrumvtplusamgeoboeawutoi/"><u>テレビで使う録画ハードディスクの長持ち方:</u></a></li>
 </ul></div>
 

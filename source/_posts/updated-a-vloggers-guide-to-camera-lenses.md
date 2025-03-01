@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Vlogger's Guide To Camera Lenses"
-date: 2025-02-09T23:08:24.094Z
-updated: 2025-02-10T20:01:04.891Z
+date: 2025-02-26T02:02:05.213Z
+updated: 2025-02-28T20:26:46.966Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -81,10 +77,6 @@ Being further away from your camera, however, means that you’ll have to use a 
 As telephoto lenses are even more zoomed in, you’ll need to be even further away from your camera to fit yourself inside your camera frame. Why would any vlogger ever need to be that far away from their camera? One word… teleprompter. If you want or need to stick to a script, you’ll have to be far away enough from your camera that it doesn’t appear like your eyes are scanning left to right. You then close in the distance with a telephoto lens.
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Crop Factor
 
@@ -113,10 +105,6 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
@@ -141,10 +129,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -158,10 +142,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -178,24 +158,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-broadcast-brilliance-with-cost-effective-templates/"><u>[New] Broadcast Brilliance with Cost-Effective Templates</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-dynamic-discussions-for-regular-streaming/"><u>[New] Dynamic Discussions for Regular Streaming</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-your-channels-standing-with-these-tactics/"><u>[New] Elevate Your Channel's Standing with These Tactics</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-enhance-your-iphone-hd-video-clarity-in-premiere-pro-effortlessly/"><u>[New] In 2024, Enhance Your iPhone HD Video Clarity in Premiere Pro Effortlessly</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unraveling-the-magic-of-mixed-reality/"><u>[New] Unraveling the Magic of Mixed Reality</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-how-to-safeguard-your-feed-remove-followers/"><u>[Updated] 2024 Approved How to Safeguard Your Feed Remove Followers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-revolutionizing-video-content-youtube-marketings-top-5-secrets/"><u>[Updated] 2024 Approved Revolutionizing Video Content YouTube Marketing's #Top 5 Secrets</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-beginners-guide-to-video-production-free-course-series/"><u>[Updated] Beginner's Guide to Video Production Free Course Series</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-bright-ideas-top-17-lighting-setups-for-youtubers/"><u>[Updated] Bright Ideas Top 17 Lighting Setups for YouTubers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-cutting-through-the-clutter-youtubes-copyright-evolution/"><u>[Updated] Cutting Through the Clutter YouTube's Copyright Evolution</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-take-full-page-screen-images/"><u>[Updated] In 2024, Take Full-Page Screen Images</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-profit-strategies-in-youtube-marketing/"><u>[Updated] Profit Strategies in YouTube Marketing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-step-by-step-guide-to-saving-your-youtube-playlists/"><u>2024 Approved Step-by-Step Guide to Saving Your YouTube Playlists</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-oppo-a2-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Oppo A2 in 5 Easy Ways | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-honor-x50-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Honor X50 and Browser | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/master-the-craft-streamlining-your-online-television-recordings/"><u>Master the Craft Streamlining Your Online Television Recordings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-the-knowledge-of-asmr-media/"><u>Mastering the Knowledge of ASMR Media</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/shine-on-mastering-the-art-of-illumination-for-youtube-videos/"><u>Shine On Mastering the Art of Illumination for YouTube Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/understanding-satire-building-parodies-online/"><u>Understanding Satire Building Parodies Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-decoding-the-metrics-for-youtube-video-hierarchy/"><u>[New] Decoding the Metrics for YouTube Video Hierarchy</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-discover-who-youre-watching-6-quizzes-for-youtube-fans/"><u>[New] Discover Who You're Watching 6 Quizzes for YouTube Fans</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-iphotovidsyncer-seamless-imageplusvideo-playback/"><u>[New] IPhotoVidSyncer Seamless Image+Video Playback</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-crafting-powerful-partnerships-a-guide-to-choosing-youtube-allies/"><u>[Updated] Crafting Powerful Partnerships A Guide to Choosing YouTube Allies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-diy-movie-making-on-youtube-and-comparable-creative-tools/"><u>[Updated] DIY Movie Making on YouTube & Comparable Creative Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-entering-the-world-of-content-creation-sign-up-tutorial/"><u>[Updated] Entering the World of Content Creation Sign Up Tutorial</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/fb-video-direction-whats-the-right-angle-in-2024/"><u>FB Video Direction What's the Right Angle, In 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-amplify-viewership-with-these-top-10-youtube-reaction-strategies/"><u>In 2024, Amplify Viewership with These Top 10 YouTube Reaction Strategies</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/pet-cube-reveals-how-to-keep-families-together-anywhere/"><u>Pet Cube Reveals How to Keep Families Together Anywhere</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/setting-up-your-own-mac-based-sports-chat-space-for-2024/"><u>Setting Up Your Own Mac-Based Sports Chat Space for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-5-leading-ai-powered-prompt-creation-tools-compatible-with-all-ai-platforms/"><u>Top 5 Leading AI-Powered Prompt Creation Tools Compatible with All AI Platforms</u></a></li>
 </ul></div>
 

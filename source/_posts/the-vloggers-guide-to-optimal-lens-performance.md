@@ -1,7 +1,7 @@
 ---
 title: "The Vlogger's Guide to Optimal Lens Performance"
-date: 2025-02-09T00:52:17.092Z
-updated: 2025-02-11T02:07:25.520Z
+date: 2025-02-22T02:56:31.340Z
+updated: 2025-02-28T21:21:15.036Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -82,10 +78,6 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -93,10 +85,6 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -113,17 +101,9 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -178,20 +158,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-lens-legends-6-choices-the-finest-4k-dslrs-revealed/"><u>[New] 2024 Approved Lens Legends' 6 Choices The Finest 4K DSLRs Revealed</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-boost-your-channel-top-14-gaming-vids-for-youtube-success/"><u>[New] Boost Your Channel Top 14 Gaming Vids for YouTube Success</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-driving-traffic-to-long-form-videos-via-shorts/"><u>[New] Driving Traffic to Long-Form Videos via Shorts</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-packaging-growth-tactics/"><u>[New] Packaging Growth Tactics</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-pro-level-snap-tech-free-from-any-delaying-hiccups/"><u>[New] Pro-Level Snap Tech Free From Any Delaying Hiccups</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-becoming-a-lyric-video-pro-a-lyric-video-makers-journey/"><u>[Updated] Becoming a Lyric Video Pro A Lyric Video Maker's Journey</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-cutting-the-excess-a-guide-to-shortening-youtube-videos/"><u>[Updated] Cutting the Excess A Guide to Shortening YouTube Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-photoshops-handy-hacks-for-horizontal-and-vertical-warping/"><u>[Updated] Photoshop's Handy Hacks for Horizontal and Vertical Warping</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-poco-c65-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Poco C65 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/monetizing-your-content-deciphering-the-minimum-views-needed/"><u>Monetizing Your Content Deciphering the Minimum Views Needed</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-fix-for-microsoft-store-connectivity-issues-causing-non-opening-scenarios/"><u>Step-by-Step Fix for Microsoft Store Connectivity Issues Causing Non-Opening Scenarios</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-best-pc-setups-for-serious-gamers-balancing-cost-with-performance/"><u>The Best PC Setups for Serious Gamers : Balancing Cost with Performance</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/top-8-free-videography-programs-perfect-for-indie-filmmakers/"><u>Top 8 Free Videography Programs Perfect For Indie Filmmakers</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/understanding-the-legality-of-secretly-recording-conversations-do-you-need-consent/"><u>Understanding the Legality of Secretly Recording Conversations: Do You Need Consent?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-analytics-how-to-analyze-your-and-competitors-youtube-video/"><u>YouTube Analytics – How to Analyze Your and Competitor's YouTube Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-clip-conquest-top-tags-for-dominating-video-trends-on-social-media/"><u>[New] 2024 Approved Clip Conquest Top Tags for Dominating Video Trends on Social Media</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-android-audio-archive-a-curated-list-of-top-6-free-music-downloading-apps/"><u>[New] Android Audio Archive A Curated List of Top 6 Free Music Downloading Apps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-online-concert-for-a-click-music-and-memories/"><u>[New] Online Concert for a Click Music and Memories</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-graphical-glimpse-radeons-resurgence/"><u>[Updated] 2024 Approved Graphical Glimpse Radeon's Resurgence</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-crafting-clicks-top-tags-for-gamers-content/"><u>[Updated] Crafting Clicks Top Tags for Gamers' Content</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/easy-guide-capturing-your-screen-on-windows-or-macos/"><u>Easy Guide: Capturing Your Screen on Windows or macOS</u></a></li>
+<li><a href="https://win-forum.techidaily.com/hoogtepunten-van-het-ontsnappen-van-ondergrondsounds-uit-videos-en-audios-3-handige-tijgers/"><u>Hoogtepunten Van Het Ontsnappen Van Ondergrondsounds Uit Video's en Audios - 3 Handige Tijgers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-top-10-game-bar-alternative-recorders/"><u>In 2024, Top 10 Game Bar Alternative Recorders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/maximize-your-media-a-review-of-top-youtube-downloader-software/"><u>Maximize Your Media A Review of Top YouTube Downloader Software</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/score-the-best-bargains-for-premium-benq-screens-during-amazons-prime-day-event/"><u>Score the Best Bargains for Premium BenQ Screens During Amazon's Prime Day Event</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/troubleshooting-guide-resolving-steam-fatal-error-due-to-missing-steamuidll-file/"><u>Troubleshooting Guide: Resolving Steam Fatal Error Due To Missing steamui.dll File</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unveiling-potential-videos-through-google-trend-study/"><u>Unveiling Potential Videos Through Google Trend Study</u></a></li>
 </ul></div>
 

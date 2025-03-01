@@ -1,7 +1,7 @@
 ---
 title: Tackling Back 4 Blood's Infamous UE4 Error in Desert Wastelands of Gobi
-date: 2025-02-18T17:21:51.343Z
-updated: 2025-02-20T18:16:46.460Z
+date: 2025-02-24T00:38:08.969Z
+updated: 2025-02-28T17:13:54.922Z
 tags:
   - win11
   - win10
@@ -37,10 +37,6 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 
  Try running the game and the game launcher as administrator to see if it helps. If not, try the next solution.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 2 – Verify the integrity of game files
 
  Files of your game installation might get corrupt sometimes, or be deleted as a false positive by antivirus, which could cause crashing issues during gameplay. Fortunately, you can verify the integrity of the game’s installation through Steam.
@@ -50,10 +46,6 @@ Many Elite Dangerous players have been reporting the game crashing issue. It occ
 **2)** Click **LIBRARY** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/02/2020-02-14_17-15-17.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **3)** Right-click **Elite Dangerous**  and select **Properties** .
 
@@ -68,10 +60,6 @@ This could take several minutes. Wait for the process to be complete.
 **5)**  Relaunch your game to test the issue.
 
  Still failing? Try the next solution to update your graphics driver to the most recent version.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 3 – Update your graphics driver
 
@@ -119,10 +107,6 @@ This could take several minutes. Wait for the process to be complete.
 
 Your game still won’t work correctly? Read on and try Fix 5.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 6 – Lower your graphics settings
 
  If you’re playing Elite Dangerous on higher graphics settings than your PC can handle, you may run into crashing issues. To see if that’s the core issue, try lowering your graphics settings.
@@ -135,10 +119,6 @@ Your game still won’t work correctly? Read on and try Fix 5.
 
 If the crashing still happens, continue with the next solution below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 7 – Run the game in Windowed mode
 
  In some cases, Elite Dangerous crashes due to resolution or refresh issues. If that’s the problem for you, running the game in Windowed mode may help fix it.
@@ -146,10 +126,6 @@ If the crashing still happens, continue with the next solution below.
 **1)** On your keyboard, press the**Windows logo key** and**R** at the same time.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-17_17-03-22.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **2)** Copy **%localappdata%Frontier DevelopmentsElite DangerousOptionsGraphics** and paste it into the text box, then press**Enter** .
 
@@ -182,20 +158,24 @@ If the crashing still happens, continue with the next solution below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-essential-techniques-to-avert-windows-11-photos-crashes/"><u>[New] 2024 Approved Essential Techniques to Avert Windows 11 Photos Crashes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-discovering-ideal-hashtags-for-your-youtube-videos/"><u>[New] Discovering Ideal Hashtags for Your YouTube Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-proven-strategies-for-building-an-insightful-and-interactive-instagram-puzzle-feed/"><u>[New] In 2024, Proven Strategies for Building an Insightful and Interactive Instagram Puzzle Feed</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-decoding-youtube-cpm-for-content-creators-success/"><u>2024 Approved Decoding YouTube CPM for Content Creators' Success</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-demystifying-youtubes-seo-a-keyword-research-guide/"><u>2024 Approved Demystifying YouTube's SEO A Keyword Research Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-elevated-experiences-through-listening-to-podcasts/"><u>2024 Approved Elevated Experiences Through Listening to Podcasts</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-precision-editing-for-perfect-numbers-on-tiktok-videos/"><u>2024 Approved Precision Editing for Perfect Numbers on TikTok Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-an-impactful-online-presence-with-perfect-yt-dimensions/"><u>Crafting an Impactful Online Presence with Perfect YT Dimensions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discover-times-tales-top-10-historical-channels-to-study-with/"><u>Discover Time's Tales Top 10 Historical Channels to Study With</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-strategy-to-empower-short-form-content-makers-for-2024/"><u>Dissecting YouTube’s Strategy to Empower Short-Form Content Makers for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-constructive-steps-to-personalized-google-vr-headset/"><u>In 2024, Constructive Steps to Personalized Google VR Headset</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-optimal-choices-for-endless-data-preservation/"><u>In 2024, Optimal Choices for Endless Data Preservation</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Vivo Y27 4G | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/mastering-the-social-media-puzzle-decoding-ig-data-for-enhanced-campaigns-for-2024/"><u>Mastering the Social Media Puzzle Decoding IG Data for Enhanced Campaigns for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/peering-into-mr-beasts-economic-landscape/"><u>Peering Into Mr. Beast's Economic Landscape</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-banishing-bogus-followers-from-instagram-landscape/"><u>[New] Banishing Bogus Followers From Instagram Landscape</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-enhancing-your-spotify-collection-with-youtube-music-integration-for-2024/"><u>[Updated] Enhancing Your Spotify Collection with YouTube Music Integration for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-exploring-the-latest-in-instagram-filters-for-stunning-visuals-for-2024/"><u>[Updated] Exploring the Latest in Instagram Filters for Stunning Visuals for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-hunters-top-picks-best-video-gear-reviewed/"><u>[Updated] Hunters' Top Picks Best Video Gear Reviewed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-essential-mix-combining-intro-and-exit-strategies-for-success/"><u>2024 Approved The Essential Mix Combining Intro & Exit Strategies for Success</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unlock-your-potential-with-expert-picked-video-stabilization-tools/"><u>2024 Approved Unlock Your Potential with Expert-Picked Video Stabilization Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/embrace-9-festive-feasts-watch-holiday-epics-at-zero-cost-online-for-2024/"><u>Embrace 9 Festive Feasts Watch Holiday Epics at Zero Cost Online for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhanced-audio-experience-top-5-game-headsets-for-streaming-for-2024/"><u>Enhanced Audio Experience Top 5 Game Headsets for Streaming for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-viewer-interest-with-thumbnails-for-2024/"><u>Enhancing Viewer Interest with Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-11-zero-cost-youtube-moniker-makers-for-2024/"><u>Essential 11 Zero-Cost YouTube Moniker Makers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-maximize-your-youtube-shorts-earnings/"><u>How to Maximize Your YouTube Shorts Earnings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-captivating-content-the-power-of-hashtagging-in-gaming-yt/"><u>In 2024, Crafting Captivating Content The Power of Hashtagging in Gaming YT</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-earning-hacks-for-youtube-short-creators/"><u>In 2024, Earning Hacks for YouTube Short Creators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/innovation-hub-for-youtube-gurus/"><u>Innovation Hub for YouTube Gurus</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/iosandroid-comparison-youtube-app-explored/"><u>IOS/Android Comparison YouTube App Explored</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/1724766792460-iphone/"><u>IPhoneで突然写真がなくなった？画像消失の理由と回復方法集</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-best-10-chinese-video-to-english-translator/"><u>New In 2024, Best 10 Chinese Video to English Translator</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-music-from-oneplus-nord-ce-3-lite-5g-by-fonelab-android-recover-music/"><u>Possible solutions to restore deleted music from OnePlus Nord CE 3 Lite 5G</u></a></li>
+<li><a href="https://win-able.techidaily.com/trouble-with-gta-5-here-are-fixes-to-get-it-up-and-running/"><u>Trouble with GTA 5? Here Are Fixes to Get It Up and Running!</u></a></li>
 </ul></div>
 

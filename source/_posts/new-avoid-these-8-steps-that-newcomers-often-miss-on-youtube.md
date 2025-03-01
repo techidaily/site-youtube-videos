@@ -1,7 +1,7 @@
 ---
 title: "[New] Avoid These 8 Steps that Newcomers Often Miss on YouTube"
-date: 2025-02-09T20:44:16.037Z
-updated: 2025-02-10T19:08:03.688Z
+date: 2025-02-28T03:26:10.987Z
+updated: 2025-02-28T19:46:42.478Z
 tags:
   - ai video
   - ai youtube
@@ -38,10 +38,6 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
@@ -62,10 +58,6 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -74,29 +66,17 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -123,16 +103,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-audience-retention-the-key-to-a-great-youtube-conclusion/"><u>[New] Audience Retention The Key to a Great YouTube Conclusion</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/scalate-your-channel-with-a-swift-move-towards-youtube-partner-status/"><u>[New] Escalate Your Channel with a Swift Move Towards YouTube Partner Status</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-examining-youtubers-monthly-revenue-strategies/"><u>[New] In 2024, Examining YouTubers' Monthly Revenue Strategies</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-transforming-single-shots-into-a-spectacular-tile-symphony/"><u>[New] Transforming Single Shots Into a Spectacular Tile Symphony</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-dialing-up-deliverables-a-comprehensive-guide-to-gainful-vlogging/"><u>[Updated] Dialing Up Deliverables A Comprehensive Guide to Gainful Vlogging</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-easy-download-of-youtube-preview-pictures/"><u>[Updated] Easy Download of YouTube Preview Pictures</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-how-to-make-asmr-videos-all-you-need-to-know/"><u>[Updated] How to Make ASMR Videos All You Need to Know</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-skagen-falster-3-timeless-elegance-fused-with-advanced-features/"><u>Exploring the Skagen Falster 3: Timeless Elegance Fused with Advanced Features</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/how-does-the-zen-5-based-ryzen-9-9950x-engineered-sample-measure-up-blender-test-results-at-full-power-explored/"><u>How Does the Zen 5 Based Ryzen 9 9950X Engineered Sample Measure Up? Blender Test Results at Full Power Explored</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-ultimate-guide-to-iphone-ringtone-alterations/"><u>The Ultimate Guide to iPhone Ringtone Alterations</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-list-of-premier-youtube-cosmetics-experts/"><u>The Ultimate List of Premier YouTube Cosmetics Experts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-8-best-webspots-free-eco-backdrops-and-footage-collection/"><u>[Updated] 8 Best Webspots FREE Eco-Backdrops and Footage Collection</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-beyond-likes-and-shares-concealed-factors-that-impact-story-consumption-for-2024/"><u>[Updated] Beyond Likes & Shares Concealed Factors That Impact Story Consumption for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-diy-photography-support-systems/"><u>[Updated] DIY Photography Support Systems</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-your-style-with-youtubes-best-hauls/"><u>[Updated] Elevating Your Style with YouTube's Best Hauls</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-samsung-galaxy-f14-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Samsung Galaxy F14 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/conversion-sans-frais-mp3-de-video-f4v-via-movavi-online/"><u>Conversion Sans Frais : MP3 De Vidéo F4V via Movavi Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/outlookcom-vs-gmail-which-leads-the-charge-as-your-primary-email-service/"><u>Outlook.com Vs. Gmail: Which Leads the Charge as Your Primary Email Service?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/subtle-techniques-make-unwanted-backgrounds-disappear-in-videos/"><u>Subtle Techniques Make Unwanted Backgrounds Disappear in Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-guide-to-youtube-video-lighting-tips/"><u>The Essential Guide to YouTube Video Lighting Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-fundamentals-of-quality-streaming-how-to-do-it-right-with-wirecast-and-youtube/"><u>The Fundamentals of Quality Streaming How to Do It Right with WireCast and Youtube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-guide-how-to-seamlessly-import-images-from-iphone-onto-pc-bypassing-itunes/"><u>The Ultimate Guide: How To Seamlessly Import Images From iPhone Onto PC Bypassing iTunes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-ultimate-top-5-iphone-podcast-apps-guide/"><u>The Ultimate Top 5 iPhone Podcast Apps Guide</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/ultimate-guide-on-iphone-12-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide on iPhone 12 iCloud Activation Lock Bypass</u></a></li>
 </ul></div>
 

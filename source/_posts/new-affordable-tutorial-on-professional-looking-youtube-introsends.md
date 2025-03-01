@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2025-02-14T16:43:01.562Z
-updated: 2025-02-20T17:22:18.733Z
+date: 2025-02-21T16:44:11.385Z
+updated: 2025-03-01T01:18:21.829Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/7c8eb4a6751ebbb720d8baa15eb6264cc6e760acb
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +68,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -84,10 +76,6 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -124,10 +112,6 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -143,20 +127,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-banter-bonanza-the-best-comedians-on-the-web/"><u>[New] Banter Bonanza The Best Comedians on the Web</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-crafting-viral-videos-how-to-excel-in-youtubers-music-reactions/"><u>[New] Crafting Viral Videos How to Excel in Youtubers' Music Reactions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-breaking-down-youtube-short-barriers/"><u>[Updated] Breaking Down YouTube Short Barriers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-prime-video-converter-for-social-media-platforms/"><u>[Updated] In 2024, Prime Video Converter for Social Media Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-practices-for-designing-an-engaging-youtube-teaser/"><u>2024 Approved Best Practices for Designing an Engaging YouTube Teaser</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/30-must-have-youtube-intros-tools-for-beginners-all-free/"><u>30 Must-Have YouTube Intros Tools for Beginners, All Free</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/global-market-anticipates-sale-of-39-million-moments-post-crisis-resurgence-in-board-deliveries/"><u>Global Market Anticipates Sale of 39 Million Moments: Post-Crisis Resurgence in Board Deliveries</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-fix-the-windows-host-process-rundll32-has-stopped-working-issue/"><u>How to Fix the 'Windows Host Process (Rundll32) Has Stopped Working' Issue</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-tips-and-tricks-for-creating-killer-short-videos-on-yt/"><u>In 2024, Essential Tips and Tricks for Creating Killer Short Videos on YT</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-proven-ways-to-enhance-your-home-nba-streams/"><u>In 2024, Proven Ways to Enhance Your Home NBA Streams</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-vivo-x90s-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Vivo X90S ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-best-websites-to-add-emojis-to-photos-online/"><u>New 2024 Approved Best Websites to Add Emojis to Photos Online</u></a></li>
-<li><a href="https://win11.techidaily.com/reviving-your-windows-inactive-start-button/"><u>Reviving Your Window's Inactive Start Button</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/upgrade-your-youtube-bio-with-pro-templates/"><u>Upgrade Your Youtube Bio with Pro Templates</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-high-definition-recording-reigns-supreme-top-picks-listed/"><u>[Updated] High Definition Recording Reigns Supreme Top Picks Listed</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-accelerating-your-creative-process-high-quality-3d-models-tools/"><u>2024 Approved Accelerating Your Creative Process High-Quality 3D Models Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/engaging-students-the-power-of-youtube-in-education/"><u>Engaging Students The Power of YouTube in Education</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-live-stream-to-high-fidelity-choosing-budget-friendly-wav-tools/"><u>From Live Stream to High Fidelity Choosing Budget-Friendly WAV Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-boosting-video-quality-the-best-cameras-for-vloggers-dreams/"><u>In 2024, Boosting Video Quality The Best Cameras for Vloggers' Dreams</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-copycat-chronicles-the-science-of-satire/"><u>In 2024, Copycat Chronicles The Science of Satire</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-decoding-youtubes-operations-following-uploads/"><u>In 2024, Decoding YouTube’s Operations Following Uploads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-edu-core-definitive-learning-channels-online/"><u>In 2024, Edu-Core Definitive Learning Channels Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-enable-quiet-youtube-bgplay-for-iphone-and-android/"><u>In 2024, Enable Quiet YouTube BGPlay for iPhone & Android</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-prime-selection-of-webcams-for-optimal-zoom-video-quality/"><u>In 2024, Prime Selection of Webcams for Optimal Zoom Video Quality</u></a></li>
+<li><a href="https://win-bits.techidaily.com/master-web-development-through-enhanced-html-modification-in-emeditor/"><u>Master Web Development Through Enhanced HTML Modification in EmEditor</u></a></li>
+<li><a href="https://program-issues.techidaily.com/pc-players-rejoice-new-world-now-runs-smoothly-without-unexpected-shutdowns/"><u>PC Players Rejoice: 'New World' Now Runs Smoothly without Unexpected Shutdowns</u></a></li>
+<li><a href="https://win-web.techidaily.com/schritt-fur-schritt-anleitung-grundlegende-datensynchronisierung-mit-der-software-aomei-backupper/"><u>Schritt-Für-Schritt-Anleitung: Grundlegende Datensynchronisierung Mit Der Software AOMEI Backupper</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-free-software-for-converting-dvds-to-vob-files-a-comprehensive-guide/"><u>Top Free Software for Converting DVDs to VOB Files: A Comprehensive Guide</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-the-complete-guide-to-audio-manipulation-in-avidemux/"><u>Updated 2024 Approved The Complete Guide to Audio Manipulation in Avidemux</u></a></li>
 </ul></div>
 

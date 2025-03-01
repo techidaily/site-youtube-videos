@@ -1,7 +1,7 @@
 ---
 title: "The Essential Guide to YouTube Video Lighting Tips"
-date: 2025-02-09T19:35:44.737Z
-updated: 2025-02-10T16:58:29.938Z
+date: 2025-02-28T01:24:43.172Z
+updated: 2025-02-28T19:36:47.947Z
 tags:
   - ai video
   - ai youtube
@@ -61,17 +61,9 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1. Light Control
 
@@ -83,19 +75,11 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -104,10 +88,6 @@ As a YouTuber, you may not only want yourself to be seen optimally with proper l
 What you’ll need to ensure that your background is sufficiently lit is 4-point lighting setup. The 4-point lighting setup is the same as a 3-point lighting setup, but with an additional light shining at your background.
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
 
@@ -132,21 +112,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-demystifying-the-mechanics-of-youtube-studio/"><u>[New] Demystifying the Mechanics of YouTube Studio</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-discovering-the-magic-behind-youtube-shorts/"><u>[New] Discovering the Magic Behind Youtube Shorts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-video-presentation-with-these-7-free-makers/"><u>[New] In 2024, Elevate Your Video Presentation with These 7 Free Makers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-boost-your-channels-crafting-captivating-yt-descriptions-using-custom-templates/"><u>[Updated] Boost Your Channels Crafting Captivating YT Descriptions Using Custom Templates</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-cutting-edge-tools-for-unique-youtube-channel-names/"><u>[Updated] Cutting-Edge Tools for Unique YouTube Channel Names</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-enhance-your-music-library-top-6-free-ios-apps-for-audio-conversion/"><u>[Updated] Enhance Your Music Library Top 6 Free iOS Apps for Audio Conversion</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-the-leading-free-software-for-quality-desktop-recording/"><u>[Updated] The Leading Free Software for Quality Desktop Recording</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-guide-to-mac-iphone-and-ipad-pip/"><u>2024 Approved The Ultimate Guide to Mac, iPhone, and iPad PIP</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1724766526141-macx-mediatrans/"><u>人気のデータ移動ソフト：MacX MediaTransで正式版を手に入れる方法 - レビューとバイザクション!</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elevate-vlogging-select-best-handheld-and-tripod-systems/"><u>Elevate Vlogging Select Best Handheld and Tripod Systems</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/mastering-modern-computing-expert-advice-from-toms-hardware-hub/"><u>Mastering Modern Computing: Expert Advice From Tom's Hardware Hub</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-your-system-with-snappydriver-v113-a-complete-review/"><u>Mastering Your System with SnappyDriver V1.13 - A Complete Review</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/no-paywalls-here-learn-how-to-record-and-save-your-youtube-experience-for-free/"><u>No Paywalls Here! Learn How To Record and Save Your YouTube Experience For Free</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/summary-of-short-videos-simplicity-included/"><u>Summary of Short Videos, Simplicity Included</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/tech-titans-speak-out-discovering-ai-chatbot-kingpins/"><u>Tech Titans Speak Out: Discovering AI Chatbot Kingpins</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/upgrade-path-to-better-gaming-updating-your-graphic-drivers-for-forza-horizon-5/"><u>Upgrade Path to Better Gaming: Updating Your Graphic Drivers for Forza Horizon 5</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-easily-enable-offline-access-to-youtube-on-iphoneipad/"><u>[New] Easily Enable Offline Access to YouTube on iPhone/iPad</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-iphone-2024-voice-memo-capturer/"><u>[New] IPhone 2024 Voice Memo Capturer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-ace-search-engine-rankings-on-youtube-11-proven-seo-methods/"><u>[Updated] In 2024, Ace Search Engine Rankings on YouTube 11 Proven SEO Methods</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/easy-entrance-to-follow-creating-a-user-friendly-subscribe-link/"><u>Easy Entrance to Follow Creating a User-Friendly Subscribe Link</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-user-experience-with-personalized-youtube-card-implementation-for-2024/"><u>Elevating User Experience with Personalized YouTube Card Implementation for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-guide-to-hashtagging-for-game-focused-yt-channels-for-2024/"><u>Essential Guide to Hashtagging for Game-Focused YT Channels for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/fast-tracked-fame-youtubes-pacey-video-breakthroughs/"><u>Fast-Tracked Fame YouTube's Pacey Video Breakthroughs</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-best-motion-tracking-apps-for-ios-and-android/"><u>New Best Motion Tracking Apps for iOS and Android</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-x100-pro-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on X100 Pro</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/surprising-leader-in-professional-laptops-emerges-outshining-thinkpad-and-macbook-revealed-by-zdnet/"><u>Surprising Leader in Professional Laptops Emerges, Outshining ThinkPad & MacBook | Revealed by ZDNET</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-razer-book-13-unveiled-a-small-gadget-with-giant-capabilities/"><u>The Razer Book 13 Unveiled: A Small Gadget with Giant Capabilities</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/watching-dvds-made-easy-a-step-by-step-guide-to-opening-videots-folders-on-pc-mac-laptops-and-mobile-devices/"><u>Watching DVDs Made Easy: A Step-by-Step Guide to Opening Video_TS Folders on PC, Mac, Laptops & Mobile Devices</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Advanced Filmmaking Techniques  Selecting Top-Notch Lenses\""
-date: 2025-02-06T02:04:26.444Z
-updated: 2025-02-10T22:47:53.562Z
+date: 2025-02-27T23:36:33.117Z
+updated: 2025-02-28T17:03:10.928Z
 tags:
   - ai video
   - ai youtube
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/59a195ec28420319fea5f3f07d0383273230910a4
 
 A DSLR is the ideal camera for some vlogs, and using a DSLR means you get to customize the look of your vlog by choosing the perfect lens. Choosing the best camera lens for your YouTube channel can be tricky because there are so many options. This article will walk you through some of them, and make two recommendations of great vlogging lenses. If you already have a good understanding of how camera lenses work then feel free to scroll down to the lens recs.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. Understanding Lenses: Zoom lens, Fixed lens, aperture, f-stop
 
 There are two main categories of camera lenses: ‘zoom’ – lenses that allow you to zoom in and out – and ‘fixed’. If your lenses are tools then zoom lenses are Swiss army knives; they are very versatile. Fixed lenses, also called prime lenses, have more specific purposes. Do you need a tool that can do a lot of things, or a tool that is perfect for one specific job? Sometimes it is useful to have access to both.
@@ -37,10 +33,6 @@ There are two main categories of camera lenses: ‘zoom’ – lenses that allow
 We have explained the differences between Fixed lens and Zoom lens and advantages of using each lens, check this article: [Zoom Lens vs. Fixed Lenses: Which one is best for YouTuber?](https://tools.techidaily.com/wondershare/filmora/download/) for the detailed information.
 
 Before we get into the recommendations here is a little background information on lenses in general:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
 
@@ -59,10 +51,6 @@ Light passes through your lens’s aperture on its way to your camera’s sensor
 F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more information on f-stops and blurring your background read “The Best Bokeh Lens - How to Get the Blurred Background for YouTube Videos” and watch Tasha’s video.
 
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
 
@@ -87,10 +75,6 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 #### Specialist lenses
 
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
 
@@ -129,10 +113,6 @@ Recording **moving objects** from a distance requires you to have a lens that al
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
 A lot of zoom lenses do not have wide enough apertures to create blurred backgrounds, but this Tamron lens is an exception at f/2.8\. This low f-stop also means that it performs better in poor lighting conditions than a lot of other zoom lenses. If your shooting conditions change a lot – if you often change locations, for example – then it will be good to have a sturdy, well-built, zoom lens like the AF 17-mm that can be quickly adapted to new angles and distances.
@@ -160,18 +140,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-30-pathways-to-unique-metaverse-meme-production/"><u>[New] 30 Pathways to Unique Metaverse Meme Production</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-accessing-your-curated-music-lists-on-youtube/"><u>[New] Accessing Your Curated Music Lists on Youtube</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-premier-5-iphones-for-podcast-aficionados/"><u>[New] In 2024, Premier 5 iPhones for Podcast Aficionados</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-discover-9-easy-no-cost-editing-software-options/"><u>[Updated] Discover 9 Easy, No-Cost Editing Software Options</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-cost-cutting-options-for-purchasing-gopros/"><u>2024 Approved Cost-Cutting Options for Purchasing GoPros</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/dissecting-screenflows-impact-on-mac-creatives-and-developers/"><u>Dissecting ScreenFlow's Impact on Mac Creatives and Developers</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-windows-11-security-navigating-tpm-complexities/"><u>Mastering Windows 11 Security: Navigating TPM Complexities</u></a></li>
-<li><a href="https://article-posts.techidaily.com/revamping-your-mobile-melodies-an-expert-iphone-ringtone-guide-for-2024/"><u>Revamping Your Mobile Melodies An Expert iPhone Ringtone Guide for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/structured-approach-to-managing-youtube-videos-a-complete-watch-later-system/"><u>Structured Approach to Managing YouTube Videos A Complete Watch Later System</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-essentials-of-earning-on-youtube-latest-changes/"><u>The Essentials of Earning on YouTube Latest Changes</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-honor-magic-6-pro-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Honor Magic 6 Pro Phone Pattern Lock</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unending-shutdown-method-how-to-kill-off-youtube-shorts/"><u>Unending Shutdown Method How to Kill Off Youtube Shorts</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-virtual-event-space-12-channel-livestream-experience/"><u>[New] 2024 Approved Virtual Event Space 12-Channel Livestream Experience</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-a-path-to-youtube-wealth-cpm-analysis/"><u>[New] Charting a Path to YouTube Wealth CPM Analysis</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-curtail-unrequested-youtube-content-streams/"><u>[New] Curtail Unrequested YouTube Content Streams</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-decoding-steps-to-access-your-channels-eyeballs/"><u>[New] Decoding Steps to Access Your Channel's Eyeballs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tailoring-content-advanced-pc-video-editing-methods-for-youtube/"><u>[Updated] Tailoring Content Advanced PC Video Editing Methods for YouTube</u></a></li>
+<li><a href="https://video-capture.techidaily.com/streamlining-your-digital-workspace-mastering-zoom-sessions/"><u>Streamlining Your Digital Workspace Mastering Zoom Sessions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-art-of-optimization-boosting-your-youtube-video-rankings/"><u>The Art of Optimization Boosting Your YouTube Video Rankings</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/top-methods-for-transforming-videos-into-compatible-formats-for-whatsapp-sharing/"><u>Top Methods for Transforming Videos Into Compatible Formats for WhatsApp Sharing</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-security-key-picks-industry-experts-reviews-and-ratings-zdnet/"><u>Top-Rated Security Key Picks : Industry Experts' Reviews and Ratings - ZDNet</u></a></li>
 </ul></div>
 

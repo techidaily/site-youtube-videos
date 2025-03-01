@@ -1,7 +1,7 @@
 ---
 title: "[New] Discovering How YouTube Runs Its Creator Workshop"
-date: 2025-02-17T18:16:01.208Z
-updated: 2025-02-20T17:41:30.984Z
+date: 2025-02-21T17:38:58.889Z
+updated: 2025-02-28T20:52:47.896Z
 tags:
   - ai video
   - ai youtube
@@ -34,19 +34,11 @@ On the main dashboard of the Creator Studio, you will see a menu that includes y
 
 Also on the dashboard, you can see analytics for the most successful videos that you have posted.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Adjusting the Dashboard
 
 Pinning new charts to the dashboard will ensure that all of the data you need most often is easily viewable upon first entering the Creator Studio. All you need to do to add new widgets to the dashboard sidebar is to use the **add widget** feature.
 
 Making adjustments to your current widgets simply involves clicking on the gear icon in the top right corner to add custom tiles as well as rearrange the order of the various widgets that you have selected.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## YouTube Creator Studio Tools
 
@@ -62,25 +54,13 @@ How many times a week do you check your stats in the YouTube Creator Studio?
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Edit YouTube Videos with Filmora
 
 As one of the most versatile video editing software, Filmora offers various types of templates and effects with an intuitive interface, which helps you custom your videos without hassle. Download the free trial version and get started now.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -97,14 +77,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-top-10-strategies-for-youtube-shorts-that-make-an-impact/"><u>[New] 2024 Approved Top 10 Strategies for Youtube Shorts That Make an Impact</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-most-compelling-free-ae-design-samples/"><u>[Updated] 2024 Approved The Most Compelling Free AE Design Samples</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-effortless-tutorial-for-top-notch-yt-video-thumbnails/"><u>2024 Approved Effortless Tutorial for Top-Notch YT Video Thumbnails</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/adsense-profits-on-youtube-earnings-per-thousand-video-watchers-for-2024/"><u>AdSense Profits on YouTube Earnings per Thousand Video Watchers for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-your-content-steps-to-boosting-youtube-visibility/"><u>Elevate Your Content Steps to Boosting YouTube Visibility</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhancing-viewers-staying-power-top-6-strategies-for-youtube-success/"><u>Enhancing Viewers' Staying Power Top 6 Strategies for YouTube Success</u></a></li>
-<li><a href="https://win-able.techidaily.com/football-manager-2022-not-launching-solved/"><u>Football Manager 2022 Not Launching [SOLVED]</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-s17e-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Vivo S17e Phone without Any Data Loss</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-guide-for-effortless-youtube-shorts-design/"><u>[New] 2024 Approved The Ultimate Guide for Effortless YouTube Shorts Design</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-captivating-clips-keywords-that-ignite-viral-shorts-on-youtube/"><u>[New] Captivating Clips Keywords That Ignite Viral Shorts on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-cinematic-evolution-the-best-youtube-guides-for-new-filmmakers/"><u>[New] Cinematic Evolution The Best YouTube Guides for New Filmmakers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-download-youtube-audio-safely-and-legally-in-3-ways/"><u>[New] Download Youtube Audio Safely & Legally in 3 Ways</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-encase-full-browser-window/"><u>[New] Encase Full Browser Window</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhancing-youtube-content-via-finalcut-pro-techniques/"><u>[New] Enhancing YouTube Content via FinalCut Pro Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-harmonize-your-hours-synchronized-video-playback-across-platforms/"><u>[New] In 2024, Harmonize Your Hours Synchronized Video Playback Across Platforms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-embrace-a-new-identity-free-fire-sound-alteration-techniques-for-beginners/"><u>2024 Approved Embrace a New Identity Free Fire Sound Alteration Techniques for Beginners</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/aomei-backupper-glossary-key-terminology-and-definitions-explained/"><u>AOMEI Backupper Glossary: Key Terminology and Definitions Explained</u></a></li>
+<li><a href="https://blog-min.techidaily.com/corrupted-mp4-recovery-a-complimentary-guide-for-quick-fixes-on-pc-and-mac/"><u>Corrupted MP4 Recovery: A Complimentary Guide for Quick Fixes on PC & Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-messenger-icons-and-symbols-what-do-they-mean/"><u>Facebook Messenger Icons and Symbols: What Do They Mean?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mapping-social-interest-to-video-idea-generation-with-google/"><u>Mapping Social Interest to Video Idea Generation with Google</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/minecraft-community-image-bank-access/"><u>Minecraft Community Image Bank Access</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/selectionnez-la-superiorite-en-switchant-de-toshiba-vers-des-solides-etat-ssd-pour-une-performance-accrue/"><u>Sélectionnez La Supériorité en Switchant De Toshiba Vers Des Solides-État (SSD) Pour Une Performance Accrue</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-streaming-audio-preservation-methods-and-equipment/"><u>Updated Streaming Audio Preservation Methods and Equipment</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/your-pathway-to-youtube-live-success-stories/"><u>Your Pathway to YouTube Live Success Stories</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-revenue-analysis-made-simple/"><u>YouTube Revenue Analysis Made Simple</u></a></li>
 </ul></div>
 

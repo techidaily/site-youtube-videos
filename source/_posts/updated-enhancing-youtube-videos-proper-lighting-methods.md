@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing YouTube Videos  Proper Lighting Methods\""
-date: 2025-02-14T17:09:04.428Z
-updated: 2025-02-20T17:05:28.715Z
+date: 2025-02-25T00:35:15.170Z
+updated: 2025-02-28T18:53:59.773Z
 tags:
   - ai video
   - ai youtube
@@ -39,10 +39,6 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1.  Window Lighting
 
 The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
@@ -52,10 +48,6 @@ Window lighting for me was especially difficult to work with because I live in a
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
@@ -73,17 +65,9 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
@@ -111,10 +95,6 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -132,17 +112,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discovering-the-secrets-of-asmr-media/"><u>[New] 2024 Approved Discovering the Secrets of ASMR Media</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-engineering-engaging-media-excerpts/"><u>[New] Engineering Engaging Media Excerpts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-crafting-compelling-freefire-vids-with-strategy-guide/"><u>[Updated] Crafting Compelling FreeFire Vids with Strategy Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-top-10-strategies-for-impactful-spotify-ads/"><u>[Updated] In 2024, Top 10 Strategies for Impactful Spotify Ads</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-top-10-female-gamers-on-youtube/"><u>2024 Approved Top 10 Female Gamers on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/best-voice-conversion-tools-for-vlogging-professionals-for-2024/"><u>Best Voice Conversion Tools for Vlogging Professionals for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/decelerate-creativity-your-path-to-spectacular-ig-reels-for-2024/"><u>Decelerate Creativity Your Path to Spectacular IG Reels for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-ankers-latest-innovation-a-compact-and-eye-catching-portable-power-solution/"><u>Discover Anker's Latest Innovation - A Compact and Eye-Catching Portable Power Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-apples-upgraded-masterpiece-series-4-apple-watch-redefined/"><u>In-Depth Look at Apple's Upgraded Masterpiece: Series 4 Apple Watch Redefined</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-mastering-conversational-skills/"><u>The Essential Guide to Mastering Conversational Skills</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshoot-how-to-get-your-iphone-connected-to-your-pc-easily/"><u>Troubleshoot: How to Get Your iPhone Connected to Your PC Easily</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/universal-online-creation-the-top-10-easy-youtube-videos-for-beginners/"><u>Universal Online Creation The Top 10 Easy YouTube Videos For Beginners</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-efficient-tools-for-xmlssattml-to-srt-conversion/"><u>[Updated] 2024 Approved Efficient Tools for XML/SSA/TTML to SRT Conversion</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-social-splash-10-best-templates-for-online-shares/"><u>[Updated] Social Splash 10 Best Templates for Online Shares</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-mastering-the-art-of-gesture-tracking/"><u>2024 Approved Mastering the Art of Gesture Tracking</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/avoiding-piracy-safe-techniques-for-youtube-to-mp4/"><u>Avoiding Piracy Safe Techniques for Youtube-to-MP4</u></a></li>
+<li><a href="https://driver-download.techidaily.com/bluetooth-support-for-csr-devices-download-the-official-driver-now/"><u>Bluetooth Support for CSR Devices – Download the Official Driver Now</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/chart-topping-ideas-to-invigorate-your-youtube-channel-for-2024/"><u>Chart-Topping Ideas to Invigorate Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/detailed-guide-youtubes-end-screens-explained-for-2024/"><u>Detailed Guide YouTube's End Screens Explained for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/diy-split-screen-video-tutorials-for-youtube-enthusiasts/"><u>DIY Split-Screen Video Tutorials for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dynamic-animated-and-personalized-filmora-subscribe-button-for-youtube/"><u>Dynamic, Animated, and Personalized Filmora Subscribe Button for YouTube</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-poco-x6-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Poco X6 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/mobile-bibliophiles-unite-discover-kobo-clara-hds-features-in-our-in-depth-review/"><u>Mobile Bibliophiles Unite! Discover Kobo Clara HD's Features in Our In-Depth Review</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mold-amusement-pictures-for-giphy-platform-for-2024/"><u>Mold Amusement Pictures for Giphy Platform for 2024</u></a></li>
 </ul></div>
 

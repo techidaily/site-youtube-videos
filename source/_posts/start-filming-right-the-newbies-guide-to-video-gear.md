@@ -1,7 +1,7 @@
 ---
 title: "\"Start Filming Right  The Newbie's Guide to Video Gear\""
-date: 2025-02-15T18:20:28.720Z
-updated: 2025-02-20T16:44:58.611Z
+date: 2025-02-27T02:46:23.484Z
+updated: 2025-02-28T19:41:50.532Z
 tags:
   - ai video
   - ai youtube
@@ -30,10 +30,6 @@ If you want to start creating videos and uploading them onto YouTube, you’ll n
 
 | Table of Contents [YOUTUBE EQUIPMENT: CAMERA](#YOUTUBE-EQUIPMENT-CAMERA) [What To Look For In A Camera As A YouTuber](#what-to-look-for-in-a-camera-as-a-youtuber)[Best Cheap Vlogging Cameras](#best-cheap-vlogging-cameras)[Best Entry-Level and Mid-Range Vlogging Cameras](#best-entry-level-and-mid-range-vlogging-cameras) [YOUTUBE EQUIPMENT: LENS](#YOUTUBE-EQUIPMENT-LENS) [The Wide-Angle Lens](#the-wide-angle-lens)[Optical Image Stabilization](#optical-image-stabilization) [YOUTUBE EQUIPMENT: TRIPOD](#YOUTUBE-EQUIPMENT-TRIPOD) [YOUTUBE EQUIPMENT: MICROPHONE](#YOUTUBE-EQUIPMENT-MICROPHONE) [YOUTUBE EQUIPMENT: SMARTPHONE ACCESSORIES](#YOUTUBE-EQUIPMENT-SMARTPHONE-ACCESSORIES) [YOUTUBE EQUIPMENT: LIGHT](#YOUTUBE-EQUIPMENT-LIGHT) [YOUTUBE EQUIPMENT: COMPUTER](#YOUTUBE-EQUIPMENT-COMPUTER) [YOUTUBE EQUIPMENT: VIDEO EDITING SOFTWARE](#YOUTUBE-EQUIPMENT-VIDEO-EDITING-SOFTWARE) [YOUTUBE EQUIPMENT: AUDIO](#youtube-equipment-audio) [Music Libraries](#music-libraries)[Sound Effects](#sound-effects) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: YOUTUBE EQUIPMENT: CAMERA
 
@@ -71,10 +67,6 @@ Below are the best cheap vlogging cameras that you can get for under $500\. They
 | NikonCoolpixB500   | ![Nikon B500](https://images.wondershare.com/filmora/article-images/nikon-coolpix-b500-camera.jpg) | February2016 | SLR-like (bridge) | **Tilting** | **No**  | $250 (MSRP) |
 | PolaroidCube+      | ![Polaroid Cube](https://images.wondershare.com/filmora/article-images/polaroid-cube-camera.jpg)   | June2015     | Action Camera     | **No**      | **No**  | $99 (MSRP)  |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 | SonyAlphaa5100     | ![Sony a5100](https://images.wondershare.com/filmora/article-images/sony-a5100-camera.jpg)         | August2014   | Mirrorless        | Flip Up     | **No**  | $450 (MSRP) |
 
 | ![Polaroid Cube](https://images.wondershare.com/filmora/article-images/polaroid-cube-camera.jpg)   | **Best cheap vlogging camera under $100:** Polaroid Cube+ Even before GoPro released their GoPro Session, Polaroid was the first to come out with a 1.4-inch, cube-shaped action camera, small enough to mount on a bike or a helmet. This camera has built-in magnets so that you can attach them to metal surfaces. This action camera is water-resistant, shock-proof, and weather-proof. It can record full HD 1080p videos at 60 fps with its wide-angle lens. You can connect this camera with your phone to preview and take your shots.          |
@@ -85,10 +77,6 @@ Below are the best cheap vlogging cameras that you can get for under $500\. They
 
 | ![Nikon A900](https://images.wondershare.com/filmora/article-images/nikon-coolpix-a900-camera.png) | **Best cheap vlogging camera under $400:** Nikon A900 The Nikon A900 not only comes with a non-interchangeable zoom lens, but it can also record videos in UHD 4K quality. Like the Nikon B500, the A900's ISO goes only up to 3200, making it a weak performer in poorly lit conditions.                                                                                                                                                                                                                                                                |
 | ![Sony a5100](https://images.wondershare.com/filmora/article-images/sony-a5100-camera.jpg)         | **Best cheap vlogging camera under $500:** Sony a5100 Among the cameras listed in our top cheap cameras list, the Sony a5100 is the only one you can interchange lenses with. All Sony E-mount lenses are compatible with this camera. This camera can record up to 1080p videos at 60 fps. Out of all of the above top cheap cameras, this one also auto focuses the best.                                                                                                                                                                              |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ###  
 
@@ -116,14 +104,6 @@ If you have a bigger budget to work with, the following vlogging cameras are gre
 | ![Canon SL2](https://images.wondershare.com/filmora/article-images/canon-sl2-vlog-camera.jpg)   | **Best entry-level DSLR camera for vlogging:** Canon EOS SL2 The Canon EOS SL2 delivers a lot of power at a low price. This DSLR camera can capture full HD 1080p videos at 60 fps.                                                                                                                                                                                                                         |
 | ![Canon 80D](https://images.wondershare.com/filmora/article-images/canon-80d-vlog-camera.jpg)   | **Best mid-range DSLR camera for vlogging:** Canon EOS 80D The Canon 80D is an exceptional mid-range DSLR vlogging camera with many features. Coming with a 45-point all cross phase detection autofocusing and a dual pixel CMOS AF system, the camera is great at finding the right focus while recording video.                                                                                          |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ###  
 
 ## Part 2: YOUTUBE EQUIPMENT: LENS
@@ -149,10 +129,6 @@ For more information on camera lenses, check out my [Vlogger’s Guide To Camera
 
 | ![Joby GorillaPod SLR-Zoom](https://images.wondershare.com/filmora/article-images/joby-gorillapod-tripod.jpg)   | **Joby GorillaPod With Ballhead** When you film yourself handheld, it’s difficult to keep your arm higher up so that your camera shoots down at an ideal angle. You may also notice that a lot of your arm gets into your shot, which you and other viewers might find distracting. Holding your camera up by a GorillaPod, however, can give you the extension you need to get that higher angle shot more easily, all without so much of your arm getting into your shot. |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: YOUTUBE EQUIPMENT: MICROPHONE
 
 Most vlogging cameras come with a built-in microphone that gets the job done. If you want higher quality audio recordings, though, you should check out the following list of top microphones.
@@ -166,10 +142,6 @@ To read more about each of these microphones, check out our post on [The 19 Best
 ## Part 5: YOUTUBE EQUIPMENT: SMARTPHONE ACCESSORIES
 
 ![SMARTPHONE ACCESSORIES for YouTube Starter](https://images.wondershare.com/filmora/article-images/youtube-equipment-smartphone-accessories.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Using your smartphone’s camera to film your YouTube videos is a great idea since it’s light, portable, and most likely always with you. The following six smartphone accessories can help you make better YouTube videos:
 
@@ -191,16 +163,8 @@ The solution to this problem is getting additional video lighting equipment with
 | ![Daytime Light Bulbs](https://images.wondershare.com/filmora/article-images/daytime-light-bulbs.jpg)   | **Daytime Light Bulbs** Your home is most likely lit with incandescent light bulbs that illuminate orange-tinted light. You can remove those light bulbs and replace them with daytime light bulbs that illuminate more of a white colored light.                                                                                                                                                     |
 | ------------------------------------------------------------------------------------------------------- | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 | ![On-Camera LED Light](https://images.wondershare.com/filmora/article-images/on-camera-led-light.jpg)   | **On-Camera LED Light** If you need more light just in front of the camera and you need this light to be portable, LED lights that attach to your camera’s hot/cold shoe will do the job.                                                                                                                                                                                                             |
 | ![LED Ring Light](https://images.wondershare.com/filmora/article-images/led-ring-light.jpg)             | **LED Ring Light** If you need more light just in front of the camera, you don’t have a lot of space, and you don’t need this light to be small and portable, an LED ring light is the best piece of equipment for you. You can position your camera inside the circular space of the ring light. This kind of light also gives your eyes the circular shaped highlight that many people like to see. |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 | ![Softbox Video Light](https://images.wondershare.com/filmora/article-images/softbox-video-light.jpg)   | **Softbox Video Light** If you need more light and have more space, another piece of lighting equipment good for beginners is a softbox video light.                                                                                                                                                                                                                                                  |
 
@@ -233,10 +197,6 @@ Read more about these laptop computers for 4K video editing in [The Best Laptops
 | [OpenShot Video Editor](https://www.openshot.org/) (Windows, Mac, Linux) [ShotCut](https://shotcut.org/) (Windows, Mac, Linux) [Hitfilm Express](https://hitfilm.com/express) (Windows, Mac) [VideoPad Video Editor](http://www.nchsoftware.com/videopad/index.html) (Windows) [Lightworks](https://www.lwks.com/) (Windows, Mac, Linux) [VSDC Video Editor](http://www.videosoftdev.com/) (Windows) [Machete Video Editor Lite](http://www.machetesoft.com/home/about-machete-video-editor-lite.html) (Windows) [Avidemux](http://avidemux.sourceforge.net/) (Windows, Mac, Linux, BSD) Read more about each of these softwares in our post about [The Best Free Video Editing Software for YouTube](https://tools.techidaily.com/wondershare/filmora/download/). | [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) (Windows, Mac) - $40 one year license, $79.99 perpetual license. Free trial [Final Cut Pro](https://www.apple.com/ca/final-cut-pro/) (Mac) - $299.99, Free trial [Vegas Movie Studio](https://www.vegascreativesoftware.com/ca/vegas-movie-studio/) (Windows) - $49.99 |
 
 ## YOUTUBE EQUIPMENT: AUDIO
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Music Libraries**
 
@@ -275,20 +235,17 @@ Follow @Sumia Rafique
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/raphicgrind-studio-for-2024/"><u>[New] GraphicGrind Studio for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-activating-grid-view-in-google-meet-webinars-a-step-by-step-guide-for-2024/"><u>[Updated] Activating Grid View in Google Meet Webinars A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-comprehensive-guide-your-shorts-hidden-thumbnails/"><u>[Updated] Comprehensive Guide Your Shorts' Hidden Thumbnails</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-kinetic-control-over-android-a-compre-authorize-deep-dive-into-kinemaster/"><u>[Updated] Kinetic Control Over Android - A Compre Authorize Deep Dive Into KineMaster</u></a></li>
-<li><a href="https://fox-that.techidaily.com/10-easy-ways-to-fix-common-apple-pay-issues/"><u>10 Easy Ways to Fix Common Apple Pay Issues</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-delightful-no-cost-access-to-youtubes-nine-full-length-yule-celebrations/"><u>2024 Approved Delightful, No-Cost Access to YouTube's Nine Full-Length Yule Celebrations</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-digital-sharpening-from-youtube-shorts-to-mp4/"><u>2024 Approved Digital Sharpening From YouTube Shorts to MP4</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/essential-list-free-costless-desktop-and-web-screening-solutions-for-2024/"><u>Essential List Free, Costless Desktop & Web Screening Solutions for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-oppo-f25-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Oppo F25 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-channel-descriptions/"><u>Mastering YouTube Channel Descriptions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-playlist-wizard-youtube-music-edition/"><u>The Playlist Wizard YouTube Music Edition</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-role-of-youtube-images-in-video-promotion-and-discovery/"><u>The Role of Youtube Images in Video Promotion and Discovery</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-ultimate-smartphone-to-vr-makeover-tutorial/"><u>The Ultimate Smartphone-to-VR Makeover Tutorial</u></a></li>
-<li><a href="https://games-able.techidaily.com/unlock-the-true-potential-of-your-nintendo-switch-with-these-tips/"><u>Unlock the True Potential of Your Nintendo Switch with These Tips</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unpacking-the-pros-and-cons-of-modest-might-and-luxury-touches-on-the-google-pixel-5/"><u>Unpacking the Pros and Cons of Modest Might and Luxury Touches on the Google Pixel 5</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-tripping-up-heres-how-to-avoid-it/"><u>[New] 2024 Approved Tripping Up? Here's How to Avoid It</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-inside-the-new-windows-11-innovations/"><u>[Updated] In 2024, Inside the New Windows 11 Innovations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-curating-soundscapes-a-detailed-look-at-youtube-playlists/"><u>2024 Approved Curating Soundscapes A Detailed Look at YouTube Playlists</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-comparative-analysis-of-youtubes-ownership-vs-cc-licenses-for-2024/"><u>A Comparative Analysis of Youtube's Ownership Vs. CC Licenses for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-practices-for-designing-compelling-youtube-video-thumbnails-for-2024/"><u>Best Practices for Designing Compelling YouTube Video Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/captivating-crafting-writing-intriguing-youtube-descriptions-with-templates/"><u>Captivating Crafting Writing Intriguing Youtube Descriptions with Templates</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-the-course-of-monetization-for-creator-economy-on-youtubeshorts-for-2024/"><u>Charting the Course of Monetization for Creator Economy on YouTubeshorts for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/eliminating-constant-crashes-of-content-warning-on-your-personal-computer/"><u>Eliminating Constant Crashes of Content Warning on Your Personal Computer</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/getting-your-laptops-audio-back-on-track-expert-fixes-and-tips/"><u>Getting Your Laptop's Audio Back on Track – Expert Fixes and Tips</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-huawei-p60mirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Huawei P60Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/pinnacle-business-cloud-haven-for-2024/"><u>Pinnacle Business Cloud Haven for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/safeguarding-games-how-to-activate-screen-lock-on-switch-console/"><u>Safeguarding Games: How to Activate Screen Lock on Switch Console</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY Photography Support Systems"
-date: 2025-02-03T16:29:54.761Z
-updated: 2025-02-11T03:28:03.568Z
+date: 2025-02-26T21:17:19.519Z
+updated: 2025-03-01T03:04:46.154Z
 tags:
   - ai video
   - ai youtube
@@ -50,25 +50,13 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -95,10 +83,6 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -121,10 +105,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -140,24 +120,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-26-metaverse-milestones-a-journey-into-virtual-realms/"><u>[New] In 2024, 26 Metaverse Milestones A Journey Into Virtual Realms</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-gb-usage-for-full-day-film-length/"><u>[New] In 2024, GB Usage for Full-Day Film Length</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-sound-sphere-navigating-music-uploads-for-2024/"><u>[New] The Sound Sphere Navigating Music Uploads for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-bandicam-demystified-a-clearer-understanding-of-2023-functionality/"><u>2024 Approved Bandicam Demystified A Clearer Understanding of 2023 Functionality</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-the-year-of-digital-gamer-fortunes/"><u>2024 The Year of Digital Gamer Fortunes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/analyzing-youtube-adrevenue-average-payments-by-thousands-of-views/"><u>Analyzing Youtube AdRevenue Average Payments by Thousands of Views</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-engaging-video-teasers-for-youtube-success-for-2024/"><u>Crafting Engaging Video Teasers for YouTube Success for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-the-youtube-view-number-for-profitability-for-2024/"><u>Decoding the YouTube View Number for Profitability for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/elph-190-powershot-reliable-quality-affordably/"><u>ELPH 190 PowerShot: Reliable Quality Affordably</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhance-engagement-mastering-template-based-video-description-writing-for-2024/"><u>Enhance Engagement Mastering Template-Based Video Description Writing for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/exclusive-exploration-superior-vr-games-on-google-cardboard/"><u>Exclusive Exploration Superior VR Games on Google Cardboard</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-free-to-paid-subscriber-count-surpasses-500/"><u>From Free to Paid Subscriber Count Surpasses 500</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-oneplus-nord-n30-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can OnePlus Nord N30 5GMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-lets-see-how-you-can-run-windows-and-mac-os-video-editing-apps-such-as-filmora-final-cut-pro-imovie-sony-vegas-pro-or-any-other-powerful-video-editi/"><u>In 2024, Lets See How You Can Run Windows and Mac OS Video Editing Apps, Such as Filmora, Final Cut Pro, iMovie, Sony Vegas Pro or Any Other Powerful Video Editing Software From Your Chromebook</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-ultra-fast-picture-reader-for-windows-11/"><u>In 2024, Ultra-Fast Picture Reader for Windows 11</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/learning-leaders-most-influential-edu-tutorials-yt/"><u>Learning Leaders Most Influential Edu Tutorials YT</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/spotlight-on-10-youtube-channels-with-swift-popularity-boosts/"><u>Spotlight on 10 YouTube Channels With Swift Popularity Boosts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-youtuber-revolutionary-jake-pauls-content-conquest/"><u>The YouTuber Revolutionary Jake Paul's Content Conquest</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-content-discovery-the-tubebuddy-way/"><u>[New] Elevate Content Discovery The TubeBuddy Way</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-top-channel-creators-reveal-their-favorite-quick-setup-ideas-for-your-business/"><u>[Updated] 2024 Approved Top Channel Creators Reveal Their Favorite Quick Setup Ideas for Your Business</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-aesthetic-ambitions-launching-a-youtube-channel-for-makeup-maven/"><u>[Updated] Aesthetic Ambitions Launching a YouTube Channel for Makeup Maven</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-how-to-choose-between-filmora-and-democreator/"><u>[Updated] In 2024, How to Choose Between Filmora and Democreator</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-scripting-space-and-time-manipulation-for-movies/"><u>[Updated] In 2024, Scripting Space & Time Manipulation for Movies</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-charting-the-financial-pathway-of-tseries-within-youtube-market-space/"><u>2024 Approved Charting the Financial Pathway of TSeries Within YouTube Market Space</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-installation-instructions-for-the-ultimate-logitech-driving-force-gt-experience-on-pcs-windows-71011/"><u>Download and Installation Instructions for the Ultimate Logitech Driving Force GT Experience on PCs (Windows 7/10/11)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-content-game-studio-aptitude-essentials/"><u>Elevate Your Content Game Studio Aptitude Essentials</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95937128-9780525509660-enchantments/"><u>Enchantments | Free Book</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/fifa-visuals-key-youtube-video-trends/"><u>FIFA Visuals Key YouTube Video Trends</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/five-steps-to-resolve-chromecast-connectivity-problems-quickly/"><u>Five Steps to Resolve Chromecast Connectivity Problems Quickly</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/hacking-the-process-instant-deletion-on-youtube/"><u>Hacking the Process Instant Deletion on Youtube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-building-engagement-the-role-of-youtube-shorts-template-design/"><u>In 2024, Building Engagement The Role of YouTube Shorts Template Design</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Tecno Spark Go (2024) | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pro-list-best-free-video-subtitles-and-downloader/"><u>Pro List Best Free Video Subtitles & Downloader</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolve-the-darkness-fixing-your-fallout-4s-persistent-pitch-black-problem/"><u>Resolve the Darkness: Fixing Your Fallout 4'S Persistent Pitch-Black Problem</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-by-step-guide-distribute-your-youtube-collection/"><u>Step-by-Step Guide Distribute Your YouTube Collection</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/windows-11-compatibility-with-idt-high-definition-sound-card-solved/"><u>Windows 11 Compatibility with IDT High Definition Sound Card - Solved!</u></a></li>
 </ul></div>
 

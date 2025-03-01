@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Effortless Strategy  Deleting Dislikes From YouTube Discussions\""
-date: 2025-02-17T16:44:22.336Z
-updated: 2025-02-20T16:41:41.042Z
+date: 2025-02-23T19:49:49.861Z
+updated: 2025-02-28T18:05:01.878Z
 tags:
   - ai video
   - ai youtube
@@ -57,10 +57,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -72,10 +68,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -120,10 +112,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -132,10 +120,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
@@ -143,10 +127,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -163,16 +143,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-6-free-youtube-outros-for-aspiring-filmmakers/"><u>[New] 6 FREE YouTube Outros for Aspiring Filmmakers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-interactive-medicine-through-tech-innovations/"><u>[New] Interactive Medicine Through Tech Innovations</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ensuring-continuity-with-exported-gpt-data/"><u>Ensuring Continuity with Exported GPT Data</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-sony-xperia-1-v-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Sony Xperia 1 V PC | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-steps-to-producing-a-youtube-hit-music-reaction-video-guide/"><u>In 2024, Essential Steps to Producing a YouTube Hit Music Reaction Video Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-tips-for-crafting-youtube-shorts-templates/"><u>In 2024, Essential Tips for Crafting YouTube Shorts Templates</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/initiate-social-media-exploration-with-a-new-twitter/"><u>Initiate Social Media Exploration with a New Twitter</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/monetize-more-strategies-for-youtubes-updated-partner-plan/"><u>Monetize More Strategies for YouTube's Updated Partner Plan</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/step-into-the-metaverse-analyzing-6-engrossing-cases/"><u>Step Into the Metaverse Analyzing 6 Engrossing Cases</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-downloading-and-updating-synaptics-drivers-on-your-windows-system/"><u>Step-by-Step: Downloading and Updating Synaptics Drivers on Your Windows System</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unlocking-siris-potential-how-to-accessible-text-to-speech-functionality-across-ios-and-macos-systems/"><u>Unlocking Siri's Potential: How to Accessible Text-to-Speech Functionality Across iOS and macOS Systems</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-legal-aspects-and-ethical-considerations-of-recording-whatsapp/"><u>[New] 2024 Approved Legal Aspects and Ethical Considerations of Recording WhatsApp</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oosting-channel-success-scaling-for-a-million-viewers-for-2024/"><u>[New] Boosting Channel Success Scaling for a Million Viewers for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/avatar-assembly-the-no-frills-guide-to-virtual-realms-for-2024/"><u>Avatar Assembly The No-Frills Guide to Virtual Realms for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/engaging-audience-from-anywhere-phone-based-filming-techniques-for-2024/"><u>Engaging Audience From Anywhere Phone-Based Filming Techniques for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-engagement-professional-pc-techniques-for-youtube-editors/"><u>Enhancing Engagement Professional PC Techniques for YouTube Editors</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-stop-mass-effect-legendary-edition-from-crashing-on-pc-and-xbox-consoles/"><u>How to Stop Mass Effect Legendary Edition From Crashing on PC and Xbox Consoles</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-access-youtube-tracks-without-spending-a-dime-25plus-no-cost-audio-extractors/"><u>In 2024, Access YouTube Tracks Without Spending a Dime 25+ No-Cost Audio Extractors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-budget-friendly-strategies-to-infuse-text-and-video/"><u>In 2024, Budget-Friendly Strategies to Infuse Text & Video</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-charting-a-path-to-monthly-earnings-from-youtube/"><u>In 2024, Charting a Path to Monthly Earnings From YouTube</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-oppo-find-x6-pro-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Oppo Find X6 Pro</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-nokia-c22-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Nokia C22</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/investigating-spotlighted-comments-online/"><u>Investigating Spotlighted Comments Online</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-customization-adjusting-the-control-center-in-ios-18-on-your-iphone-expert-tips-by-zdnet/"><u>Mastering Customization: Adjusting the Control Center in iOS 18 on Your iPhone – Expert Tips by ZDNET</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-nokia-c12-plus-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Nokia C12 Plus Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/unveiling-the-ultimate-intelligent-fitness-routine/"><u>Unveiling the Ultimate Intelligent Fitness Routine</u></a></li>
 </ul></div>
 

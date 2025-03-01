@@ -1,7 +1,7 @@
 ---
 title: "\"Quick Guide  Crafting YouTube Thumbnails on Your Phone\""
-date: 2025-02-17T17:09:15.317Z
-updated: 2025-02-20T17:30:46.291Z
+date: 2025-02-24T20:28:19.451Z
+updated: 2025-02-28T16:21:47.878Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,6 @@ Step5 When you're satisfied with your thumbnail, **tap Done** in the top right c
 
 ![ios photo save](https://images.wondershare.com/filmora/article-images/ios-photo-save.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Pros
 
 * Convenient
@@ -100,10 +96,6 @@ Step4 Add text to the image and **customize** it to your liking.
 Step5 Change the resolution of the image to **1280 x 720 pixels**.
 
 ![pixellab change resolution](https://images.wondershare.com/filmora/article-images/pixellab-change-resolution.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step6 Save the image to your gallery by exporting it.
 
@@ -148,10 +140,6 @@ Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
 ![youtube save thumbnail](https://images.wondershare.com/filmora/article-images/youtube-save-thumbnail.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
 
 ## It May Interest You – Make YouTube Thumbnails on Windows/Mac
@@ -174,10 +162,6 @@ Step1 Launch Filmora, add the picture to the timeline and **select** the AI Port
 
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
@@ -185,10 +169,6 @@ Step2 Scale up and reposition the photo.
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
@@ -234,10 +214,6 @@ Whether you create your thumbnails on your mobile device or your computer, use a
 
 This method is best for users looking for a quick and easy way to create a thumbnail on the go and doesn't need many customization options. It's also a good option for users needing computer or graphic design software access. If you're looking for more advanced customization options or higher image quality, consider using other methods or software.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 2\. Make YouTube Thumbnails on Android/iPhone With Third-Party Apps
 
 In addition to using the built-in Photos app on your iPhone or Android device, there are also many third-party apps that you can use to create YouTube thumbnails. Some popular options include Canva, Adobe Spark, and FotoJet. These apps offer a wider range of customization options and design templates, making it easy to create professional-looking thumbnails even if you have yet to gain graphic design experience.
@@ -310,10 +286,6 @@ Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 ![youtube save thumbnail](https://images.wondershare.com/filmora/article-images/youtube-save-thumbnail.JPG)
 
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## It May Interest You – Make YouTube Thumbnails on Windows/Mac
 
@@ -421,19 +393,11 @@ There are a few sites where you can find Minecraft-themed channel art, and we’
 
 [**![free YouTube banner](https://images.wondershare.com/filmora/article-images/50-free-youtube-banners-banner.jpg)**](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netix on YouTube
 
 [Netix](https://www.youtube.com/channel/UCLW2fOeUEhu7kBvZwlOTZ4A/featured) posts Minecraft-themed graphics, and only Minecraft-themed graphics. You'll find a lot of high quality banners on this channel, and they're all free to download. Unlike a lot of creators who post one or two free banners, but mostly focus on other gaming content, Netix was at one point consistently posting new channel art (about once a month) for over a year.
 
 Besides Netix, there are a lot of other artists posting gaming or Minecraft-themed banners on YouTube with download links. Just type 'minecraft youtube banner' into the search bar.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## PlanetMinecraft Forums – Artists Section
 
@@ -454,10 +418,6 @@ Do you know anywhere else creators can get Minecraft YouTube banners?
 As one of the best video editing software for YouTubers, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -638,18 +598,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-boost-your-game-presence-a-comprehensible-guide-to-freegame-hashtags/"><u>[New] Boost Your Game Presence A Comprehensible Guide to FreeGame Hashtags</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-premium-players-pick-of-terraria-extensions-for-2024/"><u>[New] Premium Player's Pick of Terraria Extensions for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-youtube-video-archiving-made-simple/"><u>[Updated] 2024 Approved YouTube Video Archiving Made Simple</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-best-practices-for-youtube-outro-design/"><u>[Updated] Best Practices for YouTube Outro Design</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-eradicating-youtube-content-in-a-device-friendly-way/"><u>2024 Approved Eradicating YouTube Content in a Device-Friendly Way</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/6-free-software-to-convert-youtube-to-mp3-for-iphone/"><u>6 Free Software to Convert YouTube to MP3 for iPhone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-the-visual-appeal-of-your-video-credits/"><u>Elevate the Visual Appeal of Your Video Credits</u></a></li>
-<li><a href="https://program-issues.techidaily.com/enhancing-splitgate-experience-effective-strategies-to-fix-lag-low-fps-and-stuttering-issues/"><u>Enhancing Splitgate Experience: Effective Strategies to Fix Lag, Low FPS, & Stuttering Issues</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-demystifying-creator-studio-a-practical-handbook/"><u>In 2024, Demystifying Creator Studio A Practical Handbook</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-oppo-find-x6-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Oppo Find X6 Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-honor-magic-5-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Honor Magic 5 Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/methodology-to-purging-your-youtube-watch-later-playlist/"><u>Methodology to Purging Your YouTube Watch Later Playlist</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/reviving-deleted-inbox-items-a-comprehensive-guide-to-recovering-missed-e-mails-in-microsoft-outlook/"><u>Reviving Deleted Inbox Items – A Comprehensive Guide to Recovering Missed E-Mails in Microsoft Outlook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-free-form-funny-meme-tools-on-a-shoestring-budget/"><u>[New] 2024 Approved Free-Form Funny Meme Tools on a Shoestring Budget</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-chuckle-factory-designing-7-video-ideas-for-humorists/"><u>[New] Chuckle Factory Designing 7 Video Ideas for Humorists</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dodging-account-penaltinas-on-youtube/"><u>[New] Dodging Account Penaltinas on Youtube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outubes-top-tools-studio-vs-latest-beta-features/"><u>[New] YouTube's Top Tools Studio Vs. Latest Beta Features</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-download-youtube-playlists-with-ease-our-instructions/"><u>[Updated] Download YouTube Playlists with Ease - Our Instructions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-swiftly-overcome-video-send-errors-in-facebook-chat-for-iphones-android-for-2024/"><u>[Updated] Swiftly Overcome Video Send Errors in Facebook Chat for iPhones, Android for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-cultures-a-step-by-step-guide-for-aspiring-travel-vloggers/"><u>Capturing Cultures A Step-by-Step Guide for Aspiring Travel Vloggers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1721978747018-chatgpt-desktop-not-out-yet-check-out-this-excellent-alternative-to-stay-ahead/"><u>ChatGPT Desktop Not Out Yet? Check Out This Excellent Alternative to Stay Ahead</u></a></li>
+<li><a href="https://windows11.techidaily.com/determining-effective-network-sharing-tools-tech-giants-face-off/"><u>Determining Effective Network Sharing Tools: Tech Giants Face-Off</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-integrate-youtube-content-into-google-slides-effectively/"><u>In 2024, Integrate YouTube Content Into Google Slides Effectively</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-youtube-submission-a-filmmakers-guide-to-360-video/"><u>Navigating YouTube Submission A Filmmaker's Guide to 360 Video</u></a></li>
+<li><a href="https://techidaily.com/solved-mac-doesnt-recognize-my-iphone-13-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Solved Mac Doesnt Recognize my iPhone 13 | Stellar</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/transforming-raw-footage-expert-pc-editing-tips-for-youtube-creators/"><u>Transforming Raw Footage Expert PC Editing Tips for YouTube Creators</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unveiling-the-potential-of-thumbnails-in-video-marketing/"><u>Unveiling the Potential of Thumbnails in Video Marketing</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/utilizing-end-task-control-for-window-management/"><u>Utilizing End Task Control for Window Management</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/your-path-to-perfect-videos-with-any-of-these-7-free-tools/"><u>Your Path to Perfect Videos with Any of These 7 Free Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-update-your-shorts-are-visible-again/"><u>YouTube Update - Your Shorts Are Visible Again</u></a></li>
 </ul></div>
 
